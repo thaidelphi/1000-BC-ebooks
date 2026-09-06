@@ -2,9 +2,9 @@
 
 Pale gold light from the dawn of the fifth day filtered through the frozen mist, painting the towering limestone crags in a vibrant wash of amber and bronze.
 
-Sparkling rime frost encrusted the windshield and corrugated container roof of the ten-wheeler, the early morning temperature hovering stubbornly at minus eight degrees Celsius.
+Glittering hoarfrost encrusted the windshield and corrugated container roof of the ten-wheeler, the early morning temperature hovering at a brisk six to seven degrees Celsius.
 
-Amidst the biting sub-arctic chill, the thirty members of the Cliff Deer Tribe stirred from the warmest, safest sleep they had known in years.
+Amidst the biting autumn chill, the thirty members of the Cliff Deer Tribe stirred from the warmest, safest sleep they had known in years.
 
 They gathered around small, crackling campfires nestled beneath the massive steel chassis.
 
