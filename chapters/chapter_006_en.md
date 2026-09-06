@@ -16,7 +16,7 @@ Kuran hesitated for a fraction of a heartbeat. But looking into Thame’s calm, 
 
 Inside the enclosed container, the biting sub-arctic wind vanished, replaced by still, dry, draft-free shelter. The corrugated steel ribs served as an impenetrable protective bunker.
 
-Thame cleared a stack of cardboard boxes and laid out Uncle Det’s down sleeping bag across the dry plywood floorboards. Kuran laid El-ya down with trembling gentleness.
+Thame cleared a stack of cardboard boxes and laid out Uncle Wan’s down sleeping bag across the dry plywood floorboards. Kuran laid El-ya down with trembling gentleness.
 
 The young huntress was burning like green wood in an open furnace. Her lips were parched, cracked, and flecked with dried blood; her respirations were rapid, shallow, and ragged enough to chill the soul.
 
@@ -26,13 +26,31 @@ Thame recognized the clinical signs immediately: acute cellulitis and an extensi
 
 Without immediate surgical incision and drainage, the anaerobic bacteria would generate lethal tissue gas, destroying the limb and inducing terminal septic shock and multi-organ failure within twenty-four hours.
 
-"Medical supplies... think, where are the medical supplies?!" Thame swept the beam of his tactical LED flashlight across the front wall of cargo crates in frantic haste.
-
-His eyes snagged on a sturdy cardboard parcel bearing tracking barcode `#TH-339102`.
-
-The thermal printed waybill read clearly: *Tactical Emergency Trauma & Combat First Aid Kit.*
-
-With shaking fingers, Thame flicked open his utility blade and sliced through the reinforced fiber tape.
+"Antibiotics... I need broad-spectrum antibiotics and antiseptic rinse!" Thame swore under his breath in rising panic.
+ 
+For a split second, he thought of the first-aid tin in Uncle Wan's cab glovebox, but he knew instantly that a few strips of paracetamol and muscle relaxants couldn't halt flesh-eating bacteria surging toward septic shock. El-ya needed heavy-duty antibiotics and surgical drainage gear—immediately!
+ 
+Yet searching for a small medical kit among more than 3,500 parcels stacked to the ceiling was like hunting for a needle in a pitch-black ocean.
+ 
+Thame tore into the cargo wall frantically, hauling down boxes and scanning thermal waybills under the frantic sweep of his flashlight.
+*First box: Women's fashion dresses*... useless!
+*Second box: Bluetooth speakers*... dammit!
+*Third box: Non-stick marble frying pan*... hell no!
+ 
+Cold sweat drenched his spine despite the freezing draft. El-ya’s breathing turned into shallow, ragged gasps. Her limbs shuddered violently as Kuran cradled his dying daughter with bloodshot, pleading eyes.
+ 
+"Get a grip, Thame... breathe!" Thame slapped himself hard across the cheek. "You hold a degree in transport engineering and logistics! Think... remember the stowage plan!"
+ 
+His trained instincts took over. This ten-wheeler had run the northern mountain corridor. Freight hadn't been packed at random; it followed destination zoning and high-liability segregation protocols. Emergency supplies, tactical gear, and medical kits bound for high-altitude research stations or national park ranger outposts were always secured in the mid-right block along the ratchet cargo straps. Moreover, packages containing liquids or pharmaceuticals were mandatorily marked with high-visibility fluorescent orange fragile labels.
+ 
+Scrambling over crates of home appliances, Thame squeezed between pallets along the right wall, driving his tactical flashlight deep into the recessed cargo tiers.
+ 
+Suddenly, the beam caught the telltale orange gleam of heavy-duty FRAGILE tape sealing a reinforced corrugated parcel wedged beneath a tensioned lashing strap.
+ 
+The thermal waybill bore barcode `#TH-339102`, addressed to a remote National Park Ranger Station.
+The consignment description was unmistakable: *Tactical Emergency Trauma & Combat First Aid Kit.*
+ 
+"Got you!" Thame wrenched the heavy box free with all his might, whipped out his bushcraft knife, and severed the reinforced fiber tape with trembling fingers.
 
 A high-visibility orange hard-shell case swung open, packed with professional-grade clinical equipment ready for immediate action:
 - **Amoxicillin 500mg** capsules (1 blister strip of 10)
@@ -91,7 +109,7 @@ El-ya’s entire body arched in a violent, agonizing spasm. Her teeth ground tog
 
 Her staggering endurance tore at Thame’s conscience, but he did not hesitate.
 
-With sterile gauze pads, he massaged and milked the tissue toward the puncture until the foul discharge gave way to bright arterial red. He poured boiled stream water—heated over the campfire and kept warm in Uncle Det’s vacuum thermos—into a clean steel cup, diluted it with Betadine until it was light tea-colored, and flushed the cavernous tract clean.
+With sterile gauze pads, he massaged and milked the tissue toward the puncture until the foul discharge gave way to bright arterial red. He poured boiled stream water—heated over the campfire and kept warm in Uncle Wan’s vacuum thermos—into a clean steel cup, diluted it with Betadine until it was light tea-colored, and flushed the cavernous tract clean.
 
 He packed a ribbon of iodized gauze deep into the wound pocket, leaving a wick extending outward, and bound the limb firmly with sterile cotton rolls.
 
@@ -119,11 +137,11 @@ Kuran, who had not looked away for a single second, dropped heavily to both knee
 
 Tears streamed unchecked down the chieftain's battle-scarred cheeks. He clasped Thame’s right hand between his rough, leathery palms, lowering his forehead until it rested against the young man’s knuckles in profound, wordless devotion.
 
-Thame breathed a silent sigh of relief. He patted Kuran’s broad shoulder, stepped out into the crisp night air, and climbed to the roof of the cab once more to update the forum.
+Thame breathed a silent sigh of relief. He patted Kuran’s broad shoulder, stepped out into the crisp night air, and climbed to the roof of the cab once more to update his Facebook post.
 
-The thread had exploded into hundreds of replies from people around the globe.
+By now, the mysterious disappearance of the young courier and his entire twenty-five-ton freight truck had gone viral worldwide. His emergency plea had been shared hundreds of thousands of times. Beneath his post, a raging torrent of thousands of comments blazed in real time from netizens across the globe, transfixed by the unfolding mystery.
 
-Yet the newest message, pinned directly to the banner by a verified user, froze the breath in Thame’s lungs:
+Yet the newest top comment, posted by a verified Oxford archaeologist, froze the breath in Thame’s lungs:
 
 `@BioArch_Oxford:`
 `"Everyone stop joking immediately! I enhanced the 4K raw metadata from the photo he just uploaded during that surgical incision..."`

@@ -2,7 +2,7 @@
 
 A chilling, deathly stillness descended over the limestone canyon the moment the pillar of pitch-black smoke in the south pierced the blood-red twilight sky.
 
-The sub-zero gale whistled through jagged rock fissures, carrying with it the unmistakable acrid stench of incinerated pine encampments and the faint, coppery tang of spilled blood.
+The chilling gale whistled through jagged rock fissures, carrying with it the unmistakable acrid stench of incinerated pine encampments and the faint, coppery tang of spilled blood.
 
 Kuran stood frozen beside the rear boarding ladder of the ten-wheeler, the weathered chieftain’s sinewy frame standing resolute against the freezing blast.
 
@@ -34,7 +34,7 @@ Freezing winds tore straight through them, completely lacking stone ramparts or 
 
 Kuran turned his pleading eyes back toward the vibrant orange twenty-five-ton cargo truck, his gaze overflowing with desperate reverence.
 
-He pantomimed driving and gestured vigorously for Thame to move the "giant iron beast" across the valley to rescue his people.
+He pointed urgently to the ten massive black rubber wheels—which looked like the monstrous paws of a sleeping titan—then toward the distant ridges, frantically pleading for Thame to "awaken" the iron beast and command it to walk across the valley to save his clan.
 
 Thame released a heavy sigh and slowly shook his head.
 
@@ -145,7 +145,7 @@ El-ya took the capsule into her mouth and swallowed the water obediently, devoid
 
 Her hunting fingers reached out, lightly brushing the cuff of Thame’s down parka, her cracked lips curving into a faint, poignant smile of complete trust.
 
-Hours slipped past until the black void of sub-arctic night enveloped the valley, the thermometer plunging to a punishing minus nine degrees Celsius.
+Hours slipped past until the cold night enveloped the valley, the temperature dropping sharply to around seven or eight degrees Celsius. Although it was not yet the punishing sub-zero freeze of the Great Winter due to strike in four to five months, for Paleolithic villagers clad only in thin scraps of cured deer hide, the biting nocturnal chill was more than enough to set their teeth chattering uncontrollably.
 
 Muffled shuffling footsteps and ragged breathing drifted up from the dark basin below.
 
