@@ -134,11 +134,11 @@ The archaeologist’s chilling question hung unresolved on the glowing OLED scre
 
 Before Thame’s frozen fingers could type a syllable, Moga’s shrill, panicked shriek ripped through the darkness below.
 
-The old shaman was standing atop the moraine boulders, pointing frantically toward the southern horizon across the frozen river.
+The old shaman was standing atop the limestone boulders, pointing frantically toward the southern horizon across the valley.
 
 Thame snapped his head up.
 
-Far across the southern tundra, beneath the bruised violet gloom of twilight, a monstrous pillar of oily black smoke was rising into the freezing sky.
+Far across the southern ridges and grasslands, beneath the bruised violet gloom of twilight, a monstrous pillar of oily black smoke was rising into the freezing sky.
 
 On the shifting wind rode the sickening stench of charred raw hide, scorched fat, and burning bone.
 
