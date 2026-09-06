@@ -68,13 +68,19 @@ The rank, musk-heavy stench of the cave bear still lingered faintly in the sub-z
 
 A violent shiver racked his body as the bitter wind cut clean through his cotton t-shirt and thin jacket. Thame hurried to the rear of the truck and climbed into the container hold.
 
-Inside, dim light filtered between the heavy doors across a mountain of over 3,500 parcels stacked from floor to ceiling.
+Inside the corrugated steel hold, dim morning light seeped between the heavy doors across over 3,500 sealed parcels stacked from floor to ceiling.
 
-This was a 21st-century treasure vault, dropped from heaven into the stone age.
+All his life, Thame had been raised with strict working-class integrity. As a trucker entrusted with cargo, every single box represented someone's hard-earned money and anticipation. Under any ordinary circumstance, he would never dream of tampering with customer deliveries.
 
-Thame flicked open a utility box cutter and switched on his tactical LED flashlight, scanning the shipping waybills along the nearest stack.
+Yet now... he was truly out of options. Every other human path was gone.
 
-"Gacha survival time... If I don't find proper winter gear right now, hypothermia will kill me within two hours."
+Outside, the temperature hovered near minus ten degrees. The glacial wind sliced through his thin clothes; his lips were turning blue, and his fingertips were trembling violently from early hypothermia. Without serious arctic insulation, he would freeze to death before noon—and a dead courier delivers nothing to anyone.
+
+Staring at the courier waybills, a knot of acute guilt tightened in his chest. He lowered his head toward the boxes, offering a silent, solemn apology to the unknown recipient.
+
+"Forgive me, whoever you are... I am completely out of options. If I don't open this, I freeze to death right here. If I ever make it back to civilization, I swear I'll repay every single cent."
+
+Driven by sheer biological survival and the absolute absence of any alternative, Thame took a steadying breath and drew his box cutter, carefully scoring the clear packing tape.
 
 The first package he targeted was parcel `#TH-994201`: an elongated corrugated box weighing roughly 2.4 kilograms. The shipping label indicated an outdoor gear distribution center in the northern highlands.
 

@@ -82,6 +82,8 @@ As the last daylight snuffed out and pitch-black night swallowed the tundra, Tha
 
 The familiar scent of cardboard, packing tape, and modern manufactured goods wafted out. His flashlight beam swept over the wall of 3,500 sealed courier parcels. Though several stacks had shifted and tilted from the violent plunge, the vast majority remained intact. Thame let out a quiet breath of relief—at least the customers' goods he was tasked to deliver hadn't been obliterated in the crash.
 
+Not once did it cross his mind to tamper with or appropriate a customer's package for himself. Every item belonged to an owner waiting at the end of the line, and until every other human option was completely exhausted, he would never violate someone else's property. He pushed the heavy doors shut and threw the locking bars home.
+
 *CRACK!*
 
 A massive branch snapped in the timberline three hundred meters away.
