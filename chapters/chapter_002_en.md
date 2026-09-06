@@ -138,36 +138,57 @@ Thame's eyes dilated in sheer shock. His heart thumped against his ribs like a w
 
 "Cell service?! How the hell is there a signal way out here in this valley?!"
 
-With trembling thumbs, he unlocked the display.
+He could scarcely believe his eyes. With shaking thumbs, he dialed emergency 191 and local rescue services immediately.
 
-Mainstream messaging apps failed to connect—the bandwidth was far too sluggish for modern media streams or VoIP protocols.
+Yet the screen buzzed with a brief error tone, cutting the call with a blunt prompt: *'Call Failed'*. The single flickering 2G bar was far too unstable to sustain voice calls.
+
+Thame tried opening mainstream messaging apps and satellite maps, but the spinners hung indefinitely. The bandwidth was far too sluggish to load map imagery or voice data.
 
 However, a global plain-text community forum application (Global Community Forum) began caching text strings line by agonizing line!
 
-Thame didn't hesitate. He tapped into the Emergency & Wilderness Survival sub-forum and hit *New Thread*.
+Thame wasted no time. He tapped into the Emergency Rescue sub-forum and created an urgent thread.
 
-Title: **[EMERGENCY] 10-wheel parcel truck careened off the pass into an uncharted gorge. Heavy fog, suspension destroyed, wheels shattered, completely stranded. A monstrous beast the size of a sedan just clawed the rig. Someone please help!**
+Title: **[EMERGENCY] 10-wheel logistics truck rammed off northern mountain pass yesterday afternoon. Stranded in uncharted karst gorge, cannot make calls, 1 bar of internet. Please alert rescue teams!**
 
 Body:
-*"I was driving an afternoon logistics haul over the northern mountain pass when an unnatural black fog rolled in and my truck was rammed down the slope. Woke up in an ancient limestone karst gorge with wild forests. No roads, no power lines, completely off-grid. Rig is completely immobilized in deep mud. Just survived an attack by an enormous beast that clawed the steel doors. I only have one flickering bar of 2G on top of the truck roof. Anyone with coordinate knowledge or wilderness survival expertise, please advise!"*
+*"I was driving an afternoon logistics haul over the northern mountain pass when an unnatural black fog rolled in and my truck was rammed down the slope. Knocked unconscious, woke up in an uncharted limestone karst gorge. No roads, no power lines, zero human traces. Suspension destroyed, wheels sunk in deep mud. Last night a beast the size of a sedan clawed the steel container. Cell service is only 1 bar on the roof, voice calls fail. Whoever sees this, please notify emergency rescue or send a helicopter!"*
 
-With shaking fingers, he pressed *Post*.
+With trembling fingers, he pressed *Post*. The progress bar hung for ten agonizing seconds before flashing green: *Post Successful.*
 
-The loading spinner hung for ten agonizing seconds before the green banner popped up: *Post Successful.*
+Thame crossed his arms against the biting wind, his chest tight with unbearable suspense.
 
-Thame stood shivering in the biting wind, his chest tight with unbearable suspense.
+Less than a minute later, the first notification pinged onto the screen.
 
-Thirty seconds later, the first notification pinged onto the screen.
+`@ChiangMai_Rescue_Vol:`
+*"A logistics haul truck was indeed reported missing on the mountain pass! Last night our search teams swept on foot and deployed drones along the ravine at the skid marks. But down below there's only dense brush and a sheer blind cliff. There is NO sign of your truck or wreckage anywhere! The tire tracks vanished into thin air! Where are you? Send GPS coordinates immediately!"*
 
-`@TrollMaster_99:`
-`"LMAOOOO! What survival game is this promoting, bro? Or is this an ARG marketing campaign for an indie horror flick? 10/10 creative writing! An uncharted gorge with car-sized monsters? What, did you crash into the Stone Age? Drop the server IP, I’m logging in right now!"`
+Thame typed back frantically:
+*"GPS is spinning indefinitely, won't lock onto any satellites! Down here is an open karst valley surrounded by sheer peaks. Front axle broken, wheels trapped, completely immobilized!"*
+
+`@North_Trekker:`
+*"If GPS won't lock, snap photos of your surroundings right now! Take panoramic shots of the peaks, rock cliffs, and tree lines. We'll cross-reference them with topographic and satellite maps to pinpoint your coordinates for the rescue team!"*
+
+Thame wasted no time. He snapped panoramic shots of the towering limestone karst spires, the ancient pine forest under the morning mist, and the three deep claw gouges on the steel container door.
+
+The single 2G bar forced him to compress the files into low-resolution images of just dozens of kilobytes. The upload bar crawled for a full minute before confirming: *Upload Successful.*
+
+The forum went dead silent for a few seconds. Then, notifications exploded across the thread!
+
+`@ChiangMai_Rescue_Vol:`
+*"Wait... where on earth are you?! We checked the Forestry Department's high-res satellite database across the entire mountain pass corridor. There is NOT A SINGLE karst valley with this topography anywhere in the region!"*
+
+`@Paleo_Geology:`
+*"Where was this photo taken?! Look at those limestone karst spires—they are razor-sharp, completely lacking tens of thousands of years of rain and wind erosion seen on modern karst formations! Spires like that do not exist anywhere in the modern world. And that pine canopy... such dense khasi pine distribution is textbook terminal Pleistocene ecosystem!"*
 
 `@VikingBushcraft:`
-`"If this isn't a sick joke... in that kind of mountainous terrain, a predator of that mass sounds like a prehistoric giant bear or a Pleistocene apex carnivore. DO NOT leave that vehicle. The scent of modern humans is an irresistible marker for prehistoric apex predators!"`
+*"And look at those claw marks on the steel door! Gouges deep enough to rip through sheet steel, with that paw spread—that belongs to an ice age apex predator weighing well over a ton. No modern animal in Thailand could ever do that... Are you even in the modern era?!"*
 
-Thame exhaled a ragged breath, half-exasperated, half-terrified. "Idiots... I’m not playing an online game! I’m actually trapped here!"
+`@TrollMaster_99:`
+*"LMAOOOO! That's obviously CGI! Wicked editing skills! A lost valley and slipping into the Stone Age? Who's gonna believe that!"*
 
-Before he could type a furious reply, his eyes flicked up past the bezel of the phone toward the limestone ridge across the draw.
+Thame stood petrified, his breath seizing as he read the heated debate on the screen... *"Not in the modern era?!"*
+
+Before he could type a reply, his eyes flicked up past the bezel of the phone toward the limestone ridge across the draw.
 
 He froze.
 
@@ -175,12 +196,12 @@ Roughly two hundred meters away, perched on a sheer rocky outcrop through the dr
 
 Three human silhouettes stood motionless against the gray sky.
 
-They were clad in thick, ragged charcoal-gray animal hides. In their hands, they gripped long thrusting spears tipped with glistening black obsidian points, and tall, recurve hunting bows fashioned from seasoned sinew and timber.
+They were clad in thick, ragged charcoal-gray animal hides. In their hands, they gripped long thrusting spears tipped with glistening black obsidian points, and tall recurve hunting bows fashioned from seasoned wood.
 
 Three pairs of predatory eyes, staring beneath tangled, braided hair, were locked unblinkingly onto the colossal steel monolith—and the solitary young man standing atop its roof.
 
 Thame's breath caught in his throat. His right hand instinctively dropped to the hilt of the 1095 bushcraft knife at his hip.
 
-The sight of primitive hunters cloaked in hides, coupled with the troll's mocking quip about crashing into the Stone Age, struck him with chilling clarity...
+The sight of primitive hunters cloaked in hides, coupled with the forum's geological and faunal analysis of a prehistoric world, struck him with chilling clarity...
 
-He hadn't merely skidded down a remote mountain slope... He was standing face-to-face with prehistoric humans from ten thousand years in the past!
+He hadn't merely skidded down a remote mountain slope... He was standing face-to-face with Stone Age humans from ten thousand years in the past!
