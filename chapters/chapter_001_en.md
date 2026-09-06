@@ -48,7 +48,7 @@ He inhaled sharply. The sharp smell of motor oil, damp loam, and the unfamiliar 
 
 He tested his fingers, ankles, and neck. Nothing felt broken—just deep contusions on his shoulder and a split skin at his brow. He reached for his ruggedized smartphone.
 
-Battery: 85%. Network status: *'No Service'*. GPS: spinning indefinitely without a coordinate fix. The digital lock screen was frozen dead at **14:47.**
+Battery: 85%. Network status: *'No Service'*. GPS: spinning indefinitely without a coordinate fix. The clock on his phone screen was running normally, displaying **17:52**—revealing that he had been knocked out cold for nearly three full hours after the crash at 14:47! (Meanwhile, the truck's dashboard clock remained dead and frozen at 14:47, killed the moment the impact severed electrical power.)
 
 The daylight of his home world was gone. Outside the glass stretched the gloomy, muted twilight of a dying day. The sky was an ominous vault of leaden fog, the sun already buried behind jagged peaks, threatening to disappear into complete night within minutes. A razor-sharp gale whistled through the door seals, and frost was already crystallizing across the dashboard plastics.
 
