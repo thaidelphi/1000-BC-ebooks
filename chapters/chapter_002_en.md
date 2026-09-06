@@ -42,11 +42,9 @@ The right steer tire and both rear duals on the drive axle were lacerated down t
 
 "Completely wrecked... beyond any field repair in this lifetime," Thame muttered, a hollow, self-deprecating smile curling his lips.
 
-He was twenty-four. Just out of engineering school, floating in limbo while waiting for job interview results.
+Though he had driven this ten-wheeler in place of Uncle Det countless times and knew every bolt and hydraulic line of its chassis, damage of this magnitude—sheared leaf springs and a twisted driveshaft stranded in a primeval wilderness without a garage—was beyond the salvaging power of any engineer.
 
-To make rent on a cramped city studio, he had taken this emergency haul for Uncle Det, whose appendix had burst just before departure.
-
-And now, the twenty-five-ton rig he was piloting had tumbled across ten thousand years of spacetime.
+He had simply agreed to take the wheel for his uncle to cover rent while waiting out engineering job callbacks. And now, the twenty-five-ton rig he was piloting had tumbled across ten thousand years of spacetime.
 
 "If a delivery is ten thousand years overdue... how many millions in penalty fees does the courier app charge?"
 

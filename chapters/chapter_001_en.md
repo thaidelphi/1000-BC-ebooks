@@ -2,7 +2,7 @@
 
 The steel wipers dragged rhythmically across the windshield, emitting a steady, wet *screeech... screeech...* against the downpour. It contended with the deep, resonant drone of the 7.7-liter turbocharged inline-six diesel engine as it hauled twenty-five tons of gross weight up the winding asphalt of the Northern Mountain Pass.
 
-Behind the wheel, Thame tightened his grip on the rim. At twenty-four, with an engineering degree still fresh in his drawer, he had stepped in to drive this afternoon haul for Uncle Det—his mother's elder brother and a lifelong trucker—who had been rushed into emergency appendectomy just hours earlier.
+Behind the wheel, Thame tightened his grip on the rim. At twenty-four, with an engineering degree fresh in hand, he was no stranger to heavy transport; throughout his university years and during seasonal breaks, he had substituted for Uncle Det—his mother's elder brother and a seasoned highway trucker—countless times. He knew every quirk of the drivetrain, the pressure curves of the air brakes, and every hidden nook of the sleeper cab by heart. When Uncle Det was rushed into an emergency appendectomy earlier that morning, Thame was the only driver trusted to take over this demanding afternoon run across the ridge.
 
 The assignment was straightforward: transport over 3,500 priority parcels across the crest to clear the regional logistics hub before nightfall.
 
@@ -112,12 +112,9 @@ A thunderous, guttural roar detonated against the night, shaking the pines and e
 
 Thame's heart slammed against his ribs like a sledgehammer. Sub-zero cold bit through his jacket, shaking his limbs. He gripped the crowbar with slick, frozen palms. He knew with dreadful clarity: if this behemoth smashed through the cracked windshield, a steel rod would not save his life.
 
-In that razor-edge between life and death, Uncle Det's gravelly voice echoed through his memory:
-*'Thame... if anything goes south out on a desolate road, I’ve got a locked box under the sleeper bunk. Don’t you ever forget it!'*
+In that razor-edge between life and death, Thame did not succumb to panic. Having driven this rig in place of Uncle Det many times, he knew the sleeper cab and its contents intimately. He already knew exactly where his uncle stashed his emergency survival gear and licensed protection for dangerous highway runs.
 
-Thame dropped to his knees in the pitch dark. Feeling along the worn velvet mattress of the sleeper cab, he found the latch and jammed the wedge of the crowbar into the seam, popping the hidden lock with a muffled snap.
-
-Inside the recessed steel box, his hands found four lifelines:
+Moving with silent, practiced muscle memory in the dark, Thame reached beneath the worn velvet bunk. He released the concealed latch he knew so well, opening the recessed steel locker without a wasted motion. Inside lay the emergency lifelines he knew by heart:
 
 1. **Sub-Zero Arctic Sleeping Bag (-15°C):** Thick, lofty goose down—salvation from hypothermia on night one.
 2. **10-Inch High-Carbon Steel Bowie Knife:** Full-tang, razor-sharp, balanced perfectly in hand.
