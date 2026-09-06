@@ -78,9 +78,9 @@ Stranded at the bottom of such a brutal, roadless gorge, even if the suspension 
 
 Yet by some grace, the heavy corrugated walls of the cargo box remained intact. The heavy aluminum diesel tank mounted to the chassis was undamaged—no punctures, cracks, or leaks. The fuel topped off before leaving the depot was still virtually full.
 
-As the last daylight snuffed out and pitch-black night swallowed the tundra, Thame climbed onto the rear underrun bar, hauled on the locking rods, and swung open the dual steel container doors.
+As the last daylight snuffed out and pitch-black night swallowed the tundra, Thame climbed onto the rear underrun bar, hauled on the locking rods, and swung open the dual steel container doors to inspect the cargo he was responsible for.
 
-The familiar scent of cardboard, packing tape, and modern manufactured goods wafted out. The flashlight beam swept over a mountain of 3,500 sealed boxes crammed wall-to-wall in the twenty-four-square-meter hold. A blind cache of tens of thousands of survival resources.
+The familiar scent of cardboard, packing tape, and modern manufactured goods wafted out. His flashlight beam swept over the wall of 3,500 sealed courier parcels. Though several stacks had shifted and tilted from the violent plunge, the vast majority remained intact. Thame let out a quiet breath of relief—at least the customers' goods he was tasked to deliver hadn't been obliterated in the crash.
 
 *CRACK!*
 
@@ -131,4 +131,4 @@ He believed he had merely suffered a disastrous highway accident—struck from b
 
 Whatever had happened out on that mountain pass was infinitely darker and more impossible than a standard road accident.
 
-In this freezing, pitch-black wilderness, the crippled steel fortress and the thousands of mysterious parcels inside were the solitary anchors that would decide whether he lived to see the morning light.
+In this freezing, pitch-black wilderness, this crippled ten-wheeled iron fortress and the loaded revolver in his hand were the solitary anchors that would decide whether he lived to see the morning light.
