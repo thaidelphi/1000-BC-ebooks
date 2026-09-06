@@ -128,21 +128,31 @@ Finally, primal survival instinct triumphed over professional ethics and moral c
 
 Gripping Uncle Det's heavy bowie knife, he climbed down from the cab, marched to the rear of the truck, severed the lead customs seal with a hard blow, and heaved open the heavy steel doors.
 
-He had to ransack the cargo hold to find food to eat and survival gear to withstand the deadly cold!
+He had to search the rear cargo container to find food to sustain his life and warm gear to withstand the deadly cold!
 
-The scent of cardboard and bubble wrap from over 3,500 parcels rushed out. Thame scanned the shipping labels frantically in the dim light.
+Yet amid more than 3,500 parcels packed floor to ceiling, blindly grabbing what he needed right away was an impossible fantasy.
 
-The first box he tore open was `#TH-994201`: a **Heavy-Duty Goose Down Parka** rated for -20°C.
+With shivering hands, his numb fingers frantically sifted through the stacks, scanning printed shipping waybills under the dim ambient light.
+
+"Fashion dresses... cosmetics... phone cases... high heels... plastic toys..." None of these modern consumer novelties could keep him alive!
+
+Shoving the useless boxes aside, he dug deeper into the stacks until his eyes locked onto a vendor name: *Subzero Alpine Gear & Winterwear*, parcel `#TH-994201`.
+
+Thame tore the box open immediately: inside was a **Heavy-Duty Goose Down Parka** rated for -20°C.
 
 He slipped it on immediately. The thick down trapped his body heat instantly, cutting the freezing wind and stopping hypothermia in its tracks.
 
-The second box was `#TH-118492`: a **1095 High-Carbon Steel Bushcraft Knife**.
+With his core temperature stabilizing, he realized he desperately needed a sturdier, sharper tool than Uncle Det's dulling bowie knife to open boxes and defend himself.
 
-With a four-millimeter spine, a razor-sharp Scandinavian grind, and olive-drab micarta scales, it included a molded Kydex sheath and an integrated ferrocerium rod. He clipped it to his left hip immediately.
+Rummaging through the hardware stacks, he spotted a slim rectangular box from an outdoor outfitter `#TH-118492`: a **1095 High-Carbon Steel Bushcraft Knife**.
 
-Thame used the new blade to slice open the third parcel:
+With a four-millimeter spine, a razor-sharp Scandinavian grind, and olive-drab micarta scales, it included a molded Kydex sheath and an integrated ferrocerium rod.
 
-At last, he struck salvation against starvation: parcel `#TH-204192`, a care package of baked snacks sent to relatives in the countryside, packed with **Four Large Packs of Golden Butter Crackers**, and right beside it were shipments of **Four Shrink-Wrapped Packs of Natural Mineral Water (Twenty-Four 1.5-Liter Bottles in Total)**!
+Yet his hollow stomach twisted with agonizing cramps; using the razor-sharp new blade, Thame frantically hunted through parcels marked as food supplies.
+
+Bypassing boxes of uncooked instant noodles and spoiled perishables, he finally struck salvation in parcel `#TH-204192`, labeled *Baked Goods & Ready-to-Eat Treats*.
+
+Inside were **Four Large Packs of Golden Butter Crackers**, and right beneath them rested **Four Shrink-Wrapped Packs of Natural Mineral Water (Twenty-Four 1.5-Liter Bottles in Total)**!
 
 Thame pressed his palms together in tearful apology to the recipient's name on the shipping label before tearing open a foil pack and wolfing down the crispy butter crackers.
 
@@ -152,7 +162,7 @@ Slitting open the heavy shrink-wrap of a water pack, he yanked out a bottle, twi
 
 Tears of relief streamed down his cheeks as miraculous energy surged back into his exhausted body.
 
-The final parcel he opened was `#TH-773019`: a rugged **20,000 mAh Solar Power Bank**, fully charged at 100%.
+Lastly, to restore communication, he searched through gadget parcels until uncovering `#TH-773019`: a rugged **20,000 mAh Solar Power Bank**, fully charged at 100%.
 
 Thame plugged his dead smartphone into the power bank via the braided nylon cable.
 
