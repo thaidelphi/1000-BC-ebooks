@@ -88,17 +88,17 @@ Using his phone camera, Thame snapped wide panoramic shots of the towering, need
 
 The post was shared hundreds of times across northern travel and rescue groups within minutes. Then, the comments exploded!
 
-`@ChiangMai_Rescue_Vol:` *"Wait... where on earth are you?! We pulled high-res satellite maps from the Forestry Department along the entire pass corridor. There is NOT A SINGLE karst valley with this topography anywhere in the region!"*
+`@ChiangMai_Rescue_Vol:` *"Wait... where on earth are you?! We checked the Forestry Department's high-res satellite maps along the entire pass corridor. There isn't a single valley or limestone ridge matching this topography anywhere! And at the skid marks on the asphalt, your tracks simply vanish into thin air!"*
 
-`@Paleo_Geology:` *"Where was this taken?! Look at those limestone spires—they are razor-sharp, completely un-weathered by tens of thousands of years of rain and wind erosion! Spires like that do not exist in the modern world. And that pine forest... it's textbook terminal Pleistocene flora!"*
+`@Mechanic_Pro:` *"Look at those gouges on the door—truck cab steel is over a millimeter thick! No Asiatic black bear or tiger in Thailand could ever do that; their claws would shatter. Three clean, deep tears like that look like excavator bucket teeth. Did heavy machinery hit you?!"*
 
-`@VikingBushcraft:` *"And look at those claw marks on the steel door! Gouges deep enough to slice through sheet steel, with that paw spread—that belongs to an ice age apex predator weighing well over a ton. Are you even in the modern era?!"*
+`@WildVet_TH:` *"I'm a wildlife veterinarian. No living land predator on Earth possesses claws and musculature capable of shearing structural steel—not even an Alaskan grizzly. If that's genuinely an animal rake, the only creatures with fossil skeletal paw dimensions and crushing force like that are extinct Pleistocene megafauna, like cave bears!"*
 
-`@TrollMaster_99:` *"LMAO! 10/10 CGI editing! Claiming you dropped into the Stone Age? Who's gonna believe that!"*
+`@TrollMaster_99:` *"LMAO! Pure fantasy! You clearly scraped the cab with an excavator and made up some ice-age monster story to promote an indie movie. Nobody's buying this!"*
 
 As netizens shared and argued fiercely across the thread, the fragile 2G bar on the screen suddenly flickered out, returning to "No Service", while the battery warning flashed below 20%.
 
-Thame stood petrified on the roof, his breath seizing at the words... *"Not in the modern era?!"*
+Thame stood petrified on the roof, shivering in confusion as the horrifying reality sank in... nobody believed him, search and rescue couldn't find him, and no one had any idea where this valley existed on the face of the earth!
 
 Yet... that was merely the beginning of the true nightmare.
 
