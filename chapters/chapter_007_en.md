@@ -145,7 +145,7 @@ El-ya took the capsule into her mouth and swallowed the water obediently, devoid
 
 Her hunting fingers reached out, lightly brushing the cuff of Thame’s down parka, her cracked lips curving into a faint, poignant smile of complete trust.
 
-Hours slipped past until the cold night enveloped the valley, the temperature dropping sharply to around seven or eight degrees Celsius. Although it was not yet the punishing sub-zero freeze of the Great Winter due to strike in four to five months, for Paleolithic villagers clad only in thin scraps of cured deer hide, the biting nocturnal chill was more than enough to set their teeth chattering uncontrollably.
+Hours slipped past until the cold night enveloped the valley, the temperature dropping sharply to around seven or eight degrees Celsius. Thame had no way of knowing what month or season this prehistoric world was currently in, or when the true deep winter would strike, but for Paleolithic villagers clad only in thin scraps of cured deer hide, the biting nocturnal chill was more than enough to set their teeth chattering uncontrollably.
 
 Muffled shuffling footsteps and ragged breathing drifted up from the dark basin below.
 
