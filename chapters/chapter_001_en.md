@@ -114,14 +114,15 @@ A thunderous, guttural roar detonated against the night, shaking the pines and e
 
 Thame's heart slammed against his ribs like a sledgehammer. Sub-zero cold bit through his jacket, shaking his limbs. He gripped the crowbar with slick, frozen palms. He knew with dreadful clarity: if this behemoth smashed through the cracked windshield, a steel rod would not save his life.
 
-In that razor-edge between life and death, Thame did not succumb to panic. Having driven this rig in place of Uncle Det many times, he knew the sleeper cab and its contents intimately. He already knew exactly where his uncle stashed his emergency survival gear and licensed protection for dangerous highway runs.
+In that razor-edge between life and death, Thame did not succumb to panic. Having driven this rig in place of Uncle Det many times, he knew the cab layout and the locations of every essential tool and emergency supply intimately.
 
-Moving with silent, practiced muscle memory in the dark, Thame reached beneath the worn velvet bunk. He released the concealed latch he knew so well, opening the recessed steel locker without a wasted motion. Inside lay the emergency lifelines he knew by heart:
+Reaching toward the front console, Thame snatched the **1.5-Liter Stainless Vacuum Flask** resting in the cup holder beside the dash. The tea Uncle Det had brewed that morning still retained half a flask of warmth—a vital comfort against the bitter chill penetrating his bones. He then slipped back into the sleeper cab space behind the seats.
+
+Moving with silent, practiced muscle memory in the dark, Thame reached beneath the worn velvet bunk. He released the concealed latch he knew so well, opening the recessed steel locker without a wasted motion. Inside lay the emergency survival gear and defense equipment he knew by heart:
 
 1. **Sub-Zero Arctic Sleeping Bag (-15°C):** Thick, lofty goose down—salvation from hypothermia on night one.
 2. **10-Inch High-Carbon Steel Bowie Knife:** Full-tang, razor-sharp, balanced perfectly in hand.
-3. **1.5-Liter Stainless Vacuum Flask:** Still holding warm water from earlier that morning.
-4. **Heavy Black Steel Lockbox:** Prying the latch open made his breath catch... resting inside was a **Smith & Wesson .38 Special 3-Inch Revolver**, blued steel gleaming in the dark, accompanied by a green cardboard ammunition box containing semi-wadcutter lead rounds. Exactly **43 cartridges** in total (5 loaded in the cylinder, 38 in the paper tray).
+3. **Heavy Black Steel Lockbox:** Prying the latch open made his breath catch... resting inside was a **Smith & Wesson .38 Special 3-Inch Revolver**, blued steel gleaming in the dark, accompanied by a green cardboard ammunition box containing semi-wadcutter lead rounds. Exactly **43 cartridges** in total (5 loaded in the cylinder, 38 in the paper tray).
 
 Thame checked the cylinder by touch with practiced familiarity. Slipping into the arctic sleeping bag, he braced his back against the steel bulkhead, leveled the .38 revolver through the dark directly at the door, and staged his finger against the trigger. If that beast breached the steel, he would fire point-blank.
 
