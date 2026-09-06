@@ -76,7 +76,7 @@ Worse, along the heavy rear underrun bumper and the right chassis rail, the thic
 
 Stranded at the bottom of such a brutal, roadless gorge, even if the suspension had survived, a twenty-five-ton highway rig could never climb back out. There were no access roads. No cart paths. Only rugged tundra, glacial boulders, and sucking mud. This truck was anchored as an **"Iron Bastion"** by harsh geographic reality.
 
-Yet by some grace, the heavy corrugated walls of the cargo box remained intact. The 250-liter aluminum diesel tank under the frame was undamaged—no leaks, holding 199.5 liters of fuel.
+Yet by some grace, the heavy corrugated walls of the cargo box remained intact. The heavy aluminum diesel tank mounted to the chassis was undamaged—no punctures, cracks, or leaks. The fuel topped off before leaving the depot was still virtually full.
 
 As the last daylight snuffed out and pitch-black night swallowed the tundra, Thame climbed onto the rear underrun bar, hauled on the locking rods, and swung open the dual steel container doors.
 
