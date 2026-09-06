@@ -2,7 +2,9 @@
 
 > 📖 **คำชี้แจง:** เอกสารฉบับนี้เป็น **Single Source of Truth สำหรับโครงเรื่องรายบท (Chapter-by-Chapter Master Outline)** ของมหากาพย์นวนิยายความยาว 150 – 200 ตอน ครอบคลุมทั้ง **6 มหากาพย์ (6 Sagas)** โดยจัดทำรายละเอียดระดับฉาก ยุทธวิธี พัสดุที่แกะ (Unboxing Beats) ปฏิสัมพันธ์กับชาวเน็ต (Forum Beats) การบริหารทรัพยากร (Cargo & Consumables Log) และระบบตัดจบ (Cliffhangers) สอดคล้องกับ [outline.md](file:///d:/myproject1/EBOOKs/10000-BC/outline.md), [character.md](file:///d:/myproject1/EBOOKs/10000-BC/character.md), [items.md](file:///d:/myproject1/EBOOKs/10000-BC/items.md), และ [prompt.md](file:///d:/myproject1/EBOOKs/10000-BC/prompt.md) อย่างเคร่งครัด 100%
 > 
-> 📌 **กฎเหล็กแม่บทก่อนเริ่มเขียนทุกบท (Mandatory All-.md Pre-Reading Rule — กฎข้อที่ 46):** ก่อนเริ่มร่างหรือเขียนบทใดๆ ผู้เขียนและ AI **ต้องเปิดอ่านไฟล์ Markdown (.md) ทั้งหมดในโครงการก่อนเสมอเป็นกฎเหล็ก** (ได้แก่ `chapters_summary.md`, `chapters_outline.md`, `items.md`, `character.md`, `inventory.md`, `outline.md`, `story_outline.md`, `prompt.md` และบทก่อนหน้าใน `chapters/`) เพื่อเชื่อมต่อบริบท ไทม์ไลน์ และสถานะไอเทมอย่างสมบูรณ์แบบ 100% ป้องกันการหลุดลืมหรือเกิดช่องโหว่ความต่อเนื่องเด็ดขาด
+> 📌 **กฎเหล็กแม่บทก่อนเริ่มเขียนทุกบท (Mandatory All-.md Pre-Reading Rule — กฎข้อที่ 46 & 48):**
+> 1. ก่อนเริ่มร่างหรือเขียนบทใดๆ ผู้เขียนและ AI **ต้องเปิดอ่านไฟล์ Markdown (.md) ทั้งหมดในโครงการก่อนเสมอเป็นกฎเหล็ก** (ได้แก่ `chapters_summary.md`, `chapters_outline.md`, `items.md`, `character.md`, `inventory.md`, `outline.md`, `story_outline.md`, `prompt.md` และบทก่อนหน้าใน `chapters/`) เพื่อเชื่อมต่อบริบท ไทม์ไลน์ และสถานะไอเทมอย่างสมบูรณ์แบบ 100% ป้องกันการหลุดลืมหรือเกิดช่องโหว่ความต่อเนื่องเด็ดขาด
+> 2. **มาตรฐานความยาวต่อบท (กฎข้อที่ 48):** แต่ละตอนต้องมีความยาวเนื้อหาจริง **80 – 120 บรรทัด (ไม่นับบรรทัดว่าง)** หรือเทียบเท่า **2,200 – 3,200 คำ (~8,500 – 12,000 ตัวอักษร)** ห้ามตัดจบห้วนเด็ดขาด
 
 ---
 
