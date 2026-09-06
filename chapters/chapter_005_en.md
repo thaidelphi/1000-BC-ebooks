@@ -1,147 +1,179 @@
-# Chapter 5: The Trauma Medic of Two Worlds
+# Chapter 5: The Instant Flame and the White Gold
 
-The fragile warmth around the spruce campfire shattered in an instant as El-ya collapsed unconscious into the snow.
+A bone-chilling silence descended upon the moraine clearing before the ten-wheeled steel bastion on the dawn of the fourth day.
 
-"El-ya! Open your eyes, El-ya!" Kuran gathered his daughter’s limp frame into his arms, the weathered chieftain’s rough voice cracking with raw despair.
+The northern wind dragged across the frozen scree, whistling between two eras of mankind standing barely forty yards apart. The mournful howl of the gale striking the jagged limestone battlements was the only sound echoing through the vast, primeval valley.
 
-Moga rushed forward, his gnarled hands scooping up freezing, stagnant muck and rotted peat from the edge of the glacial pool, preparing to smear the foul mud directly into the gaping wound.
+El-ya’s flint arrowhead remained leveled dead at Thame’s down-clad chest. The draw fingers hooking the sinew cord trembled ever so slightly—strained not by doubt, but by accumulated muscular exhaustion and bitter sub-zero cold.
 
-"Stop! Don't touch that!" Thame lunged forward, his gloved hand clamping down hard on the old shaman’s wrist.
+Thame drew a long, deliberate breath. White plumes of vapor billowed from his dry, cracked lips.
 
-In the Upper Paleolithic, poultices of river silt and dried dung were ancient rituals of hope. In clinical reality, it was a death sentence—a direct inoculation of lethal tetanus spores and necrotic anaerobic bacteria straight into an open bloodstream.
+He knew with raw survival instinct that if he showed aggression, flinched back in terror, or made any sudden, jerky movement, that black flint blade—honed sharper than a surgical scalpel—would punch through his sternum before his synapses could register the strike.
 
-Thame pivoted toward Kuran, barking short, sharp gestures: "Pick her up! Bring her inside the truck! Move!"
+Slowly, deliberately, Thame lowered his right boot from the cab’s chrome running board onto the packed frozen dirt, open, calm, and completely unshielded.
 
-Kuran hesitated for a fraction of a heartbeat. But looking into Thame’s calm, steel-eyed resolve, the chieftain gritted his teeth, scooped his daughter into his arms, and followed the young courier up the steel ladder into the rear of the cargo container.
+He spread both hands wide at chest height. Open palms. Fingers splayed. No weapon drawn. No predatory intent. No terror.
 
-Inside the enclosed box, the biting sub-arctic wind vanished into dead stillness.
+"Easy... I’m not here to hurt you," Thame murmured in a low, resonant, steady baritone.
 
-Thame cleared a stack of cardboard boxes and laid out Uncle Det’s down sleeping bag across the dry floorboards. Kuran laid El-ya down with trembling gentleness.
+Words carried no semantic weight across ten millennia, yet human biology remained unchanged: instinct alone deciphered the posture of peace from the tension of an ambush.
 
-The young huntress was burning like green wood in a furnace. Her lips were parched, cracked, and flecked with dried blood; her respirations were rapid, shallow, and ragged.
+Kuran, the elder chieftain who had knelt in awe before the truck's halogen high-beams, pushed himself upright against the jagged limestone boulder with deliberate slowness.
 
-Her right upper thigh was swollen taut as an overinflated tire. The four deep puncture wounds oozed a putrid slurry of foul yellow pus and coagulated, dark venous blood. The stench of necrotic rot hung heavy in the air.
+He stared at the smooth, seamless weave of Thame’s charcoal down parka. He looked at the towering orange steel flank of the 25-ton truck, then into the calm, unblinking eyes of the young man standing before him.
 
-Thame recognized the clinical signs immediately: acute cellulitis and an extensive deep-tissue abscess spiraling into septic shock.
+Kuran raised his scarred right hand, pressing his open palm against his left collarbone. A guttural rumble echoed from his throat:
 
-Without immediate surgical intervention and broad-spectrum antibiotics, systemic organ failure would claim her life within twenty-four hours.
+"Kuu... rraan..."
 
-"Medical supplies... think, where are the medical supplies?" Thame swept the beam of his tactical LED flashlight across the front wall of cargo crates.
+The leader was offering his name across the void. A measured overture to bridge ten thousand years.
 
-His eyes snagged on a sturdy cardboard parcel bearing tracking barcode `#TH-339102`.
+El-ya glanced sideways at her father. Seeing that the orange iron behemoth and its strange passenger showed no signs of unleashing thunder or searing daylight again, she slowly eased her bowstring back half an inch. Yet her hawk-like gaze never left Thame’s throat.
 
-The thermal printed waybill read: *Tactical Emergency Trauma & Combat First Aid Kit.*
+Right then, frantic scuffling rustled the spruce thicket behind the glacial moraine.
 
-With shaking fingers, Thame flicked open his utility blade and sliced through the reinforced fiber tape.
+Three more figures broke through the brambles, gasping for breath as they stumbled onto the gravel bench, panicked by the horn that had shaken the valley moments before.
 
-Inside lay professional-grade clinical equipment:
-- **Amoxicillin 500mg** capsules (1 blister strip of 10)
-- **Paracetamol 500mg** tablets (1 blister strip of 10)
-- **Povidone-Iodine 10% solution (Betadine)**, 100ml bottle
-- **Sterile Disposable Scalpels No. 11**, 3 individually foil-wrapped units
-- **Sterile Gauze Pads (4x4 inches)**, 10 sterile envelopes
-- Surgical paper tape and elastic conforming compression bandages
+Among them was an old man with wild, snow-white hair, draped in necklaces of eagle talons, wolf vertebrae, and carved cave-bear teeth. His weathered face was smeared with red ochre and soot for ritual warding.
 
-"Everything I need... except I've never operated on a human being in my life," Thame cursed under his breath, his pulse hammering against his temples.
+This was Moga—the shaman and spiritual elder of the Cliff Deer Tribe.
 
-Grabbing his smartphone, he vaulted out of the steel box and scrambled up the exterior ladder to the cab roof.
+The entire group was trembling uncontrollably. Their lips were a pale, bruised violet; their skin cracked and blistered from the frostbite of the perpetual sub-arctic winter. Sunken hollows beneath their cheekbones betrayed weeks of bitter, gnawing starvation.
 
-The freezing gale tore at his jacket. Miraculously, the single flickering bar of 2G signal hovered against the dark sky.
+Thame observed their physical condition up close. Their musculature was dense and wiry, entirely devoid of modern body fat, forged by walking dozens of kilometers daily through punishing alpine terrain.
 
-Thame snapped three high-resolution macro photos of the necrotic wound and the pharmaceutical blister packs, punching out a frantic bulletin onto the survivalist forum thread:
+Yet prolonged starvation and relentless sub-zero chill were slowly draining the life from their marrow.
 
-*[URGENT!] Paleolithic native female with severe predator bite abscess. Thigh taut, purple, foul pus drainage, septic fever, comatose. I have Amoxicillin 500mg, Betadine, No. 11 scalpels, sterile gauze. Any medics online, give me surgical instructions NOW or she dies tonight!*
+In Moga’s trembling, frostbitten hands, he cradled a hollow leg bone against his chest like a newborn child.
 
-He hit submit. The seconds dragged like centuries against the howling wind.
+From the marrow hole, a frail wisp of grey smoke drifted upward. Inside was the tribe's most sacred possession: the solitary dying ember of charcoal, coddled with dry moss and dried herbivore dung.
 
-Less than forty seconds later, an amber alert notification flashed across the screen.
+Moga bent low, cupping his palms to blow a gentle, desperate stream of breath into the cavity to keep it alive.
 
-`@CombatMedic_US:`
-`"Listen to me carefully, kid! Former US Army flight medic here. That is a massive deep-space abscess with advancing necrotizing cellulitis from predatory oral fauna!"`
+In 10,000 BC, fire was not merely a source of cooking heat.
 
-`"Golden Rule #1: DO NOT SUTURE OR CLOSE THAT WOUND! Those are anaerobic flesh-eating bacteria. If you seal the incision, gas gangrene will devour her leg within twelve hours!"`
+Fire was their sole protective barrier against the monstrous apex predators of the Pleistocene—cave bears, scimitar cats, and dire wolf packs.
 
-`"Emergency Procedure:"`
-`"1. Disinfect the entire circumference with iodine. Wash your hands in pure alcohol."`
-`"2. Take the No. 11 scalpel. Locate the point of maximum fluctuation—where the skin is softest and thinnest. Make a vertical 1cm stab incision (Incision & Drainage). Push deep enough to penetrate the fascia. Express EVERY DROP of foul pus and necrotic hematoma until only fresh red blood flows."`
-`"3. Dilute Betadine with boiled warm water until it looks like weak black tea. Irrigate the entire cavity aggressively."`
-`"4. Pack the wound cavity loosely with Betadine-soaked sterile gauze wick to maintain continuous drainage."`
-`"5. Administer a Loading Dose of 1,000mg Amoxicillin (2x 500mg capsules) orally IMMEDIATELY with 500mg Paracetamol. Then 500mg Amoxicillin every 8 hours for 7 consecutive days!"`
-`"Move now, son, before that infection seeds her heart valves!"`
+Coaxing a new ember with a hardwood bow-drill in damp sub-arctic tundra took hours of grueling friction. If sleet struck, the loss of fire was an unconditional death sentence for the entire clan.
 
-"Thank you, doc!" Thame whispered against the wind. He scrambled back down the ladder and threw himself back into the dry container.
+Fire was life. Fire was the soul. Fire was their only living god.
 
-He set the phone upright on a cardboard crate, angling the tactical LED work-light directly onto El-ya’s wounded thigh.
+As Moga puffed his cheeks, a vicious gust of wind ripped down the river canyon with sudden ferocity.
 
-Thame poured rubbing alcohol over his bare hands, scrubbing vigorously, before tearing open the foil seal of the No. 11 surgical blade. The precision carbon steel gleamed sterile under the white beam.
+*Fsshh...*
 
-He locked eyes with Kuran. "Hold her shoulders. Pin her leg. No matter what she does, do not let her thrash."
+A spray of cold grey ash scattered across the snow. The solitary orange spark inside the bone cylinder winked out instantly before their eyes.
 
-Kuran understood without words. The chieftain threw his full weight across his daughter’s chest and uninjured knee, his massive calloused hands locking like iron vices.
+Darkness seized their spirits. Moga’s eyes dilated in horror. His knees buckled, crashing into the frozen ground. A broken, despairing wail tore from his chest. Kuran and the younger hunters went ash-pale, as though death itself had just touched their shoulders.
 
-Thame took a slow, deep breath to steady his fingers. He positioned the pointed tip of the blade over the dark, purple-domed apex of the abscess.
+The fire was gone. With nightfall approaching and temperatures plummeting far below freezing, they would freeze into stiff corpses before sunrise.
 
-Then, with clean, decisive pressure, he drove the blade in.
+Watching the despair unfold, Thame realized this was the pivotal juncture to turn raw fear into an unbreakable alliance.
 
-*Spuuurt!*
+He turned back toward the open cab door, retrieving the food parcel from the seat along with a vital tool resting on the dashboard.
 
-A foul, pressurized fountain of grey-yellow pus, necrotic slough, and curdled dark blood erupted from the muscle pocket.
+It was the pair of **Matte-Black Windproof Jet Torch Lighters** from the ranger's field survival kit `#TH-401923`—the very same outdoor kit unpacked that morning, which held a full array of wilderness gear: the titanium whistle around his neck, a ferrocerium striker rod with scraper, an emergency Mylar space blanket, 550 paracord, and these two jet torch lighters he had kept within arm's reach on the cab console.
 
-El-ya’s entire body arched in a violent, agonizing spasm. Her teeth ground together so fiercely that blood trickled from her lower lip. Her fingernails tore deep into the ripstop nylon of the sleeping bag, but through sheer primeval will, she refused to scream aloud.
+The matte-black metal chassis felt cold, rugged, and dense in his grip, filled to capacity with pressurized butane and engineered with a high-temperature ceramic nozzle.
 
-Her staggering endurance tore at Thame’s conscience, but he did not hesitate.
+Designed to withstand howling gale-force mountain squalls, the arctic gusts that had snuffed out the tribal ember posed zero threat to modern ignition technology.
 
-With sterile gauze pads, he massaged and milked the tissue toward the puncture until the foul discharge gave way to bright arterial red. He poured warm water from Uncle Det’s vacuum thermos into a clean steel cup, diluted it with Betadine, and flushed the cavernous tract clean.
+Thame stepped forward three yards, halting at a non-threatening distance, and signaled with a calm nod for Moga to look up.
 
-He packed a ribbon of iodized gauze deep into the wound pocket, leaving a wick extending outward, and bound the limb firmly with sterile cotton rolls.
+"Keep your eyes open, grandfather... Making fire takes hours in your era, but back where I come from, it's just one click," Thame murmured with dry, deadpan humor.
 
-Finally, Thame popped two red-and-yellow **Amoxicillin 500mg** capsules and a white **Paracetamol** tablet from their foil blisters.
+He raised the lighter to eye level, thumbing down the spring-loaded ignition lever.
 
-Supporting the back of El-ya’s neck, he slipped the three pills past her dry lips, trickling warm water from the thermos cap into her mouth.
+*Click.*
 
-El-ya swallowed the modern medicine with labored gulps. Her fever-glazed eyes fluttered open, locking onto Thame’s face from inches away.
+*WHOOOSSHHH—!!*
 
-Thame pulled the lofted goose-down sleeping bag up to her chin, gently dabbing the cold sweat from her brow with a clean gauze pad.
+A rigid, incandescent needle of cobalt-blue fire roared from the brass nozzle with a sharp hiss.
 
-"You're going to make it," Thame whispered softly. "Rest now."
+A pressurized jet cone reaching over 1,300 degrees Celsius snarled against the freezing air. The howling alpine wind battered against it, but failed to make the blue flame flicker by even a millimeter.
 
-Two hours passed in quiet vigilance.
+"Aaarghhh!"
 
-The miracles of twentieth-century pharmacology took root inside a body completely unmarred by prior antibiotic exposure.
+Moga recoiled in terror, tumbling backward onto his buttocks and throwing his arms over his skull in sheer, reverent dread.
 
-Her scorching skin cooled as the antipyretic took effect. The shallow panting slowed into deep, rhythmic chest rises. A faint flush of healthy rose returned to her pale cheeks. The huntress slipped into the first restorative, healing sleep she had known in days.
+Kuran and the hunters scrambled backward, their eyes practically bulging from their sockets.
 
-Kuran, who had not looked away for a single second, dropped heavily to both knees before Thame.
+Conjuring a roaring jet of blue flame in a split-second out of a smooth black metal bar the size of a man’s thumb—without friction drills, without flint, without tinder—defied every law of their universe.
 
-Tears streamed unchecked down the chieftain's battle-scarred cheeks. He clasped Thame’s right hand between his rough, leathery palms, lowering his forehead until it rested against the young man’s knuckles in profound, wordless devotion.
+This was not craftsmanship. This was the raw, terrifying power of the heavens.
 
-Thame breathed a silent sigh of relief. He patted Kuran’s broad shoulder, stepped out into the crisp night air, and climbed to the roof of the cab once more to update the forum.
+Thame did not let their panic take root. He crouched, swept a handful of dry spruce needles and twigs into a small pyre atop a flat slab of limestone, and held the torch lighter to the base for exactly three seconds.
 
-The thread had exploded into hundreds of replies.
+Golden flame surged through the resin-rich wood. Fragrant white smoke rose, billowing the rich scent of pine sap as radiant warmth spilled outwards across the clearing.
 
-Yet the newest message, pinned directly to the banner by a verified user, froze the breath in Thame’s lungs:
+Thame backed away two steps and extended his open palms toward the fire, gesturing for them to approach.
 
-`@BioArch_Oxford:`
-`"Everyone stop joking immediately! I enhanced the 4K raw metadata from the photo he just uploaded during that surgical incision..."`
+Moga crawled forward on all fours like a man possessed. He held his withered, trembling hands over the licking flames. As genuine, life-saving heat soaked into his frozen knuckles, tears carved clean channels through the soot on his cheeks.
 
-`"Look at the necklace around the girl's throat. Those two curved canine teeth are not modern wolves. The curvature, root morphology, and serration density are a 100% anatomical match for Aenocyon dirus—the prehistoric Dire Wolf, extinct for over ten thousand years!"`
+The old shaman dropped his forehead onto the frozen stone, prostrating himself before Thame in absolute, unconditional reverence.
 
-`"And the ochre tattoo on her left forearm... the geometric chevron-antler motif matches the cave paintings at Lascaux and Chauvet down to the pigment grain!"`
+While the circle gathered closely around the crackling flames, Thame reached for Uncle Det’s heavy stainless vacuum thermos.
 
-`"You are not filming an indie movie. You are not on a soundstage in Burbank. Where on earth are you?!"`
+The flask was already filled with 1.5 liters of pristine water scooped from the white-stone stream that morning. Uncapping the stainless vessel, he set it beside the glowing coals and heated stones to bring it to a rolling boil—sterilizing the mountain water for safe drinking and medical prep without wasting a single bottle from his sealed emergency cache.
 
-The archaeologist’s chilling question hung unresolved on the glowing OLED screen.
+Next, Thame drew his 1095 carbon blade to open the food carton he had brought down from the front seat: parcel `#TH-881205`.
 
-Before Thame’s frozen fingers could type a syllable, Moga’s shrill, panicked shriek ripped through the darkness below.
+Within lay one kilogram of refined, vacuum-sealed white sea salt, alongside three thick foil packs of hardwood-smoked beef jerky.
 
-The old shaman was standing atop the limestone boulders, pointing frantically toward the southern horizon across the valley.
+In the Upper Paleolithic, sodium and iodine deficiencies were silent killers. Tribes endured arduous seasonal treks to lick bitter mineral crusts or drank warm animal blood to stave off lethal electrolyte crashes.
 
-Thame snapped his head up.
+Without sodium, muscle cramps crippled hunters, cognitive functions decayed, and the nervous system deteriorated into lethargy.
 
-Far across the southern ridges and grasslands, beneath the bruised violet gloom of twilight, a monstrous pillar of oily black smoke was rising into the freezing sky.
+Thame tore open the first pouch of jerky. The rich, savory aroma of cured beef, black pepper, garlic, and smoked hickory wood drifted into the sub-zero air.
 
-On the shifting wind rode the sickening stench of charred raw hide, scorched fat, and burning bone.
+He pinched a small mound of pure, gleaming white salt crystals, sprinkled it liberally over a strip of cured beef, and tore off a corner with his teeth, chewing deliberately so they could see it was untainted food.
 
-Kuran scrambled up the iron ladder behind Thame, his knuckles whitening as he gripped the roof rail. A guttural snarl of pure hatred and dread broke from the chieftain’s throat:
+Stepping toward Kuran, Thame extended the seasoned strip of meat.
 
-*"Grak... the Ironfang Clan!"*
+Kuran stared at the shimmering "white snow powder that refused to melt" clinging to the dark meat. He looked Thame in the eye, swallowed hard, and placed the offering onto his tongue.
+
+The moment the sodium crystals dissolved against the moisture of his tongue...
+
+An explosion of rich, savory umami and profound, pure saltiness roared across his long-starved palate.
+
+The chieftain’s nervous system screamed with visceral ecstasy. Pure sodium ions flooded his mucous membranes, electrifying synapses that had been starved of electrolytes for months.
+
+Kuran’s eyes went wide. His entire sinewy frame shuddered as though struck by an electric surge.
+
+"Oo... Oomah!" Kuran gasped, an involuntary moan escaping his lips.
+
+Tears welled in the hardened eyes of the seasoned chieftain. He chewed the morsel with trembling reverence, treating it like the flesh of a sacred celestial beast.
+
+Turning, Kuran divided the remaining strips between El-ya and Moga.
+
+As the salt touched El-ya’s tongue, the fierce scowl that had set into her face melted away. Her fierce hunter’s eyes softened, replaced by a momentary, childlike wonder.
+
+This was not the bitter, mud-tainted grit scraped from riverbeds. This was the "Taste of the Gods"—pure, unblemished life.
+
+The first genuine smiles bloomed across the faces of the tribe. Suspicion dissolved into shared warmth around the crackling fire.
+
+Then, tragedy struck without warning.
+
+*Thud.*
+
+El-ya’s slender, athletic frame suddenly crumpled onto the hard-frozen ground.
+
+Her curved hunting bow clattered across the stones; her flint-tipped arrows spilled into the snow.
+
+"El-ya!!" Kuran roared in panic, dropping to his knees to gather his daughter into his arms.
+
+El-ya lay writhing, clutching her upper right thigh. Her jaw was clamped so tight that crimson blood oozed from her gums, while cold, oily beads of sweat drenched her paper-pale face.
+
+Thame dropped beside her instantly. His gloved hand swept aside the stiff rawhide leggings binding her right leg.
+
+What met his eyes made his stomach plummet into an icy abyss.
+
+The huntress’s upper thigh was swollen taut as a drumhead, the skin discolored into mottled shades of bruised purple and necrotic black.
+
+Four deep, jagged puncture wounds torn by the fangs of an apex predator had bored deep into the muscle tissue.
+
+Thick, yellow-grey pus streaked with putrid dark venous blood seeped from the lacerations, radiating a foul, gangrenous stench that hit Thame’s nostrils like rotting roadkill. Heat was rolling off the swollen flesh like an open furnace.
+
+It was an infected prehistoric predator bite that had spiraled into severe sepsis and rapidly advancing gas gangrene.
+
+In an era ten thousand years before penicillin, an infection of this magnitude had only one outcome: a swift, agonizing death sentence.

@@ -144,13 +144,13 @@ He slipped it on immediately. The thick down trapped his body heat instantly, cu
 
 With his core temperature stabilizing, he realized he desperately needed a sturdier, sharper tool than Uncle Det's dulling bowie knife to open boxes and defend himself.
 
-Rummaging through the hardware stacks, he spotted a slim rectangular box from an outdoor outfitter `#TH-118492`: a **1095 High-Carbon Steel Bushcraft Knife**.
+Rummaging through the cargo stacks, he noted vendor names and box dimensions until spotting a slim rectangular carton from an outdoor outfitter `#TH-118492`: a **1095 High-Carbon Steel Bushcraft Knife**.
 
 With a four-millimeter spine, a razor-sharp Scandinavian grind, and olive-drab micarta scales, it included a molded Kydex sheath and an integrated ferrocerium rod.
 
-Yet his hollow stomach twisted with agonizing cramps; using the razor-sharp new blade, Thame frantically hunted through parcels marked as food supplies.
+Yet his hollow stomach twisted with agonizing cramps; Thame swept his flashlight across waybills, frantically hunting for packages sent from bakeries or snack shops.
 
-Bypassing boxes of uncooked instant noodles and spoiled perishables, he finally struck salvation in parcel `#TH-204192`, labeled *Baked Goods & Ready-to-Eat Treats*.
+Passing by boxes of dry instant noodles that required boiling water, he finally struck salvation in parcel `#TH-204192`, shipped from a well-known northern souvenir shop.
 
 Inside were **Four Large Packs of Golden Butter Crackers**, and right beneath them rested **Four Shrink-Wrapped Packs of Natural Mineral Water (Twenty-Four 1.5-Liter Bottles in Total)**!
 
@@ -162,24 +162,24 @@ Slitting open the heavy shrink-wrap of a water pack, he yanked out a bottle, twi
 
 Tears of relief streamed down his cheeks as miraculous energy surged back into his exhausted body.
 
-Lastly, to restore communication, he searched through gadget parcels until uncovering `#TH-773019`: a rugged **20,000 mAh Solar Power Bank**, fully charged at 100%.
+Although an old USB car charger was plugged into the 24V cigarette lighter socket on the cab dashboard, relying on it was both impractical and perilous—turning the ignition drained the truck's irreplaceable starter batteries, and its short cable could never reach the high container roof where the faint signal lingered. To secure truly portable power, Thame searched through gadget parcels until uncovering `#TH-773019`: a rugged **20,000 mAh Solar Power Bank**, fully charged at 100%.
 
-Thame plugged his dead smartphone into the power bank via the braided nylon cable.
+Equipped with built-in solar panels, this rugged power bank completely freed him from the truck's battery; Thame immediately plugged his dead smartphone into it via the braided nylon cable.
 
 With the 1095 knife at his hip and the down parka hood drawn over his head, he climbed the container ladder back to the roof to catch the sunlight and survey the valley.
 
 The smartphone screen flared to life, and atop the roof, the single bar of 2G flickered back into existence.
 
-Before he could touch the screen, Thame's gaze swept across the drifting sea of mist toward the limestone ridge two hundred meters away—and froze.
+Before he could touch the screen, Thame's gaze swept across the drifting sea of morning mist toward the valley basin below—and froze in absolute wonder.
 
-Perched upon the jagged rocky outcrop, three human figures stood tall against the biting wind.
+Unfolding before him was a primeval wilderness of staggering scale: ancient taiga spruce forests and frost-rimed tundra rolling toward the jagged horizon, devoid of power lines, roads, or any whisper of modern civilization.
 
-They were clad in coarse, charcoal-gray animal hides. In their hands, they gripped long thrusting spears tipped with glistening black flint, and tall recurve bows fashioned from seasoned wood.
+Through a parting in the dense mist near the tree line hundreds of meters away, he glimpsed the colossal silhouettes of prehistoric megafauna—a herd of giant Irish elk with sweeping, palmate antlers spanning over ten feet across, grazing calmly upon the morning grasses.
 
-The figures crouched slightly, assessing the "giant steel beast" below.
+The presence of creatures extinct for ten millennia confirmed the chilling deductions of the forum members days before beyond any shadow of doubt.
 
-Three pairs of predatory eyes beneath tangled, braided hair were locked unblinkingly onto the solitary young man standing atop the roof!
+The brutal reality crashed into Thame's chest with devastating force: he hadn't merely slid off a provincial mountain road... he was truly stranded in 10,000 BC, marooned alone at the twilight of the Ice Age!
 
-The sight of living Stone Age hunters, coupled with the forum's warnings about a late Pleistocene ecosystem days before, crashed into Thame's mind with devastating force...
+Yet in this lethal, ancient realm, he knew the mineral water and rations in his cargo hold were finite, and hiding indefinitely inside the steel cab meant certain slow starvation.
 
-He hadn't merely crashed off a mountain road... He was truly stranded in the Stone Age, ten thousand years in the past!
+To survive, he would have to summon every ounce of courage, step down from the iron bastion, and scout the surrounding wilderness for fresh water and animal tracks at first light tomorrow!

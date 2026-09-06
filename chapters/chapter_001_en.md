@@ -66,7 +66,7 @@ He was still strapped to the driver's seat, but the cab was pitched forward at a
 
 He tested his fingers, ankles, and neck. Nothing felt broken—just deep contusions on his shoulder and a split skin at his brow.
 
-He reached for his ruggedized smartphone to check the display.
+He reached for his smartphone to check the display.
 
 Battery: 85%. Network status: *'No Service'*. GPS: spinning indefinitely without a coordinate fix.
 
