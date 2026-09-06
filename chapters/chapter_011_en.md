@@ -45,10 +45,11 @@ She looked at the laser pointer and the metal pen in Thame's hands with cautious
 "If it breathes warm air, it belongs to no evil spirit. It is our fortress against the coming freeze," Thame replied firmly.
 He clipped the tactical pen and waterproof notebook into his heavy parka, looping the laser pointer's lanyard around his wrist.
 
-Together, they began scaling the limestone face along a series of natural ledges carved out by ancient glacial scouring.
-Thame's steel-toed boots found solid bite on the dry rock shelves, ascending methodically.
-El-ya climbed ahead with agile, practiced grace, her calloused bare feet gripping every hairline contour like an alpine chamois.
-As they climbed past marine fossils and calcified crinoid stems embedded in the stone, the temperature gradient began to shift noticeably.
+Thame knew that scaling a sheer cliff was dangerous for her newly healed quadriceps, but El-ya stubbornly insisted on guiding him to the sacred heights.
+Taking the lead, Thame dug his steel-toed boots into the natural steps, turning to brace and hoist her up shelf by shelf.
+The huntress gritted her teeth against the dull ache, driving her weight onto her uninjured left leg and relying on her powerful arms to pull herself upward.
+Whenever a loose scree tested her balance, Thame’s firm, gloved grip steadied her, keeping her from reopening the delicate pink incision.
+A quiet bond of absolute trust formed between them, forged on the wind-whipped rock face with every strained breath and offered hand.
 Reaching the fifteen-meter shelf above the truck, Thame drew his fixed blade and parted the dense curtain of ancient creepers.
 A waft of humid, twenty-four-degree air enveloped their faces, bringing immediate relief from the autumn chill.
 Behind the greenery lay an oval cavern portal two meters wide, its limestone threshold dry and devoid of stale rot.
