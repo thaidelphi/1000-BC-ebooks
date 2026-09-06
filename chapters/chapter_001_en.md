@@ -72,7 +72,7 @@ The sheer kinetic force of twenty-five tons tumbling down the steep mountain slo
 
 The truck was completely, irreversibly immobilized.
 
-Worse, along the heavy rear underrun bumper and the right chassis rail, steel had been crushed inward in a deep groove. Scraped along the gash were flakes of foreign dark-blue and grey paint. Something heavy had undeniably rammed him before the plunge... yet looking up at the towering, sheer rock walls above and across the dark valley, there was no trace of whatever hit him. Only silence.
+Worse, along the heavy rear underrun bumper and the right chassis rail, the thick steel had been violently crushed and torn inward in a deep groove, proving that something massive had slammed into the rig before the plunge... yet looking up at the towering, sheer cliffs above and scanning the dark valley, there was no trace of whatever had struck him. He had no idea what it could even be—a rockslide, a falling boulder, or something else entirely. Only eerie silence hung in the freezing dark.
 
 Stranded at the bottom of such a brutal, roadless gorge, even if the suspension had survived, a twenty-five-ton highway rig could never climb back out. There were no access roads. No cart paths. Only rugged tundra, glacial boulders, and sucking mud. This truck was anchored as an **"Iron Bastion"** by harsh geographic reality.
 
