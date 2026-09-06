@@ -36,7 +36,7 @@ Water dripped incessantly into the embers, sending up plumes of acrid ash, and t
 
 "Cooking like that will burn through our firewood, waste fresh water, and nobody eats before noon," Thame muttered, shaking his head.
 
-He retreated into the dark cavern of the cargo container, beam sweeping across the camping and outdoor survival section.
+He retreated into the cargo container, sweeping his LED beam across the stacked cartons to scan their shipping waybills.
 
 His light snagged on a compact cardboard carton marked with barcode `#TH-710492`.
 
