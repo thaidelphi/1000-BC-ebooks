@@ -152,7 +152,7 @@
         5. [inventory.md](file:///d:/myproject1/EBOOKs/10000-BC/inventory.md) — บัญชีรายการสินค้าและพัสดุในตู้คอนเทนเนอร์ 10 ล้อ
         6. [outline.md](file:///d:/myproject1/EBOOKs/10000-BC/outline.md) & [story_outline.md](file:///d:/myproject1/EBOOKs/10000-BC/story_outline.md) — โครงสร้างมหากาพย์ กฎเกณฑ์ยุคหิน และพล็อตเรื่องหลัก
         7. [prompt.md](file:///d:/myproject1/EBOOKs/10000-BC/prompt.md) — กฎเหล็กแม่บท 48 ประการและเทมเพลตคำสั่งหลัก
-        8. ไฟล์บทก่อนหน้าที่เขียนเสร็จสิ้นในโฟลเดอร์ `chapters/` (เช่น [chapter_001.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_001.md)) เพื่อต่อติดสำนวน วรรณศิลป์ และอารมณ์ของตัวละคร
+        8. ไฟล์บทก่อนหน้าที่เขียนเสร็จสิ้นในโฟลเดอร์ `chapters/` (เช่น [chapter_001_th.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_001_th.md) และ [chapter_001_en.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_001_en.md)) เพื่อต่อติดสำนวน วรรณศิลป์ และอารมณ์ของตัวละครทั้งสองภาษา
 47. **กฎการบันทึกสรุปเนื้อหารายตอนลงใน chapters_summary.md หลังเขียนจบทุกครั้ง (Mandatory Post-Writing Summary Rule):**
     - **การบันทึกสรุปหลังเขียนจบทุกครั้ง (Mandatory Post-Writing Summary):** ทันทีที่เขียนบทนิยายเสร็จสิ้นหนึ่งตอน ผู้เขียนและ AI **ต้องเขียนสรุปเนื้อหาสำคัญลงใน [chapters_summary.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters_summary.md) ทุกครั้งเป็นกฎเหล็ก** โดยต้องระบุ:
         1. เลขบทและชื่อตอน
@@ -175,6 +175,15 @@
     - **จังหวะวรรณศิลป์ (Dramatic Pacing):**
         - ในฉากตึงเครียดหรือแอ็กชันเอาชีวิตรอด ให้ตัดย่อหน้าสั้นกระชับ (1 – 2 ประโยคต่อ 1 บรรทัด) เพื่อเร่งจังหวะหัวใจผู้อ่าน
         - ในฉากอธิบายวิทยาศาสตร์ วางแผน หรือสำรวจสิ่งของ ให้ใช้ย่อหน้าขนาดกลาง (3 – 4 ประโยคต่อ 1 บรรทัด)
+### หมวดที่ 14: กฎการแยกไฟล์สองภาษา ไทยและอังกฤษ (Bilingual Narrative File Separation)
+49. **กฎการแยกไฟล์ภาษาไทยและภาษาอังกฤษคู่ขนานทุกตอน (Mandatory Bilingual File Separation Rule):**
+    - **โครงสร้างการตั้งชื่อไฟล์คู่ขนาน (Bilingual Naming Standard):** ทุกบทนิยายที่ประพันธ์ขึ้นมา ต้องสร้างไฟล์แยกเป็น 2 ภาษาในโฟลเดอร์ `chapters/` เสมอเป็นกฎเหล็ก:
+        1. **ฉบับภาษาไทย:** `chapters/chapter_XXX_th.md` (เช่น `chapter_001_th.md`)
+        2. **ฉบับภาษาอังกฤษ:** `chapters/chapter_XXX_en.md` (เช่น `chapter_001_en.md`)
+    - **มาตรฐานวรรณศิลป์สองภาษา (Dual-Language Quality Standards):**
+        - *ฉบับภาษาไทย (TH):* เน้นสำนวนวรรณกรรมแปลไซไฟเอาชีวิตรอดระดับสากล บรรยายกระชับ ดุดัน สัมผัสครบทั้งห้า และร้อยเรียงคำสละสลวย
+        - *ฉบับภาษาอังกฤษ (EN):* ใช้สำนวนนวนิยายสากลแนว Gritty Hard Sci-Fi / Prehistoric Survival Thriller (สไตล์ Andy Weir, Cormac McCarthy, Michael Crichton) ห้ามใช้การแปลตรงตัวแบบทื่อๆ แต่ต้องเป็นการถ่ายทอดวรรณศิลป์ (Literary Adaptation) ที่ลื่นไหล ตึงเครียด มีจังหวะวรรณยุกต์และศัพท์เทคนิคทางวิศวกรรม/ชีววิทยาที่แม่นยำ
+    - **ความสอดคล้องของเนื้อหาและข้อมูล (Bilingual Continuity Sync):** ทั้งสองฉบับต้องมีพล็อต ลำดับเหตุการณ์ รหัสพัสดุ Waybill ยอดทรัพยากรคงเหลือ และจุดทิ้งท้าย (Cliffhanger) ตรงกัน 100%
 
 ---
 
