@@ -2,9 +2,9 @@
 
 The pale golden glimmer of first dawn bled through the suffocating mist, slowly unveiling a wilderness that had been shrouded in black terror throughout the night.
 
-Inside the cramped cab, Thame’s stiffened right hand eased its white-knuckled grip on the checkered walnut handle of the .38 Special revolver beneath the goose-down sleeping bag.
+Thame stirred from a fitful, restless sleep spent straining his ears against every shadow. Driven by raw survival instinct, his right hand reached out from the goose-down sleeping bag to touch the checkered walnut grip of the .38 Special revolver resting right beside him on the bunk.
 
-His fingers were numb, stiffened by the biting sub-zero frost that had seeped past the rubber door gaskets during the long vigil.
+His fingers were stiff and numb from the biting sub-zero frost that had seeped past the cab's rubber gaskets during the long vigil. He flexed his joints to drive the chill away, scanning the cramped cabin with sharp wariness.
 
 He pushed the driver's door open.
 

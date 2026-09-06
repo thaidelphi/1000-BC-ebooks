@@ -130,10 +130,10 @@ Crawling deep into the arctic sleeping bag, he huddled with his back pressed aga
 
 For thirty agonizing minutes, the titan circled and tested the iron walls before the heavy thuds finally faded into the vast tundra night. Silence reclaimed the wilderness.
 
-Thame slowly exhaled, willing his racing pulse back to steady calm. His gaze stayed fixed on the deep claw marks pressed into the door steel, his right hand firmly wrapped around the grip of the .38 beneath the down bag.
+Thame slowly exhaled, willing his racing pulse back to steady calm. His gaze stayed fixed on the deep claw marks pressed into the door steel. Once certain the predator had departed, he lowered the .38 revolver, placing it on the bunk right beside him within instant reach before burrowing deep into the sleeping bag for warmth.
 
 He believed he had merely suffered a disastrous highway accident—struck from behind in the blinding squall and pitched over the embankment into the bottom of a remote mountain gorge. Yet the biting sub-zero gale, the vast expanse of wild tundra unmarred by civil infrastructure, and the monstrous roar of the predator outside whispered a terrifying omen:
 
 Whatever had happened out on that mountain pass was infinitely darker and more impossible than a standard road accident.
 
-In this freezing, pitch-black wilderness, this crippled ten-wheeled iron fortress and the loaded revolver in his hand were the solitary anchors that would decide whether he lived to see the morning light.
+In this freezing, pitch-black wilderness, this crippled ten-wheeled iron fortress and the loaded revolver beside him were the solitary anchors that would decide whether he lived to see the morning light.
