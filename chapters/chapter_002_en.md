@@ -44,19 +44,19 @@ The right steer tire and both rear duals on the drive axle were lacerated down t
 
 Though he had driven this ten-wheeler in place of Uncle Det countless times and knew every bolt and hydraulic line of its chassis, damage of this magnitude—sheared leaf springs and a twisted driveshaft stranded in a primeval wilderness without a garage—was beyond the salvaging power of any engineer.
 
-He had simply agreed to take the wheel for his uncle to cover rent while waiting out engineering job callbacks. And now, the twenty-five-ton rig he was piloting had tumbled across ten thousand years of spacetime.
+He had simply agreed to take the wheel for his uncle to cover rent while waiting out engineering job callbacks. And now, the twenty-five-ton rig he was piloting had careened off the road, hopelessly stranded at the bottom of an uncharted, overgrown valley.
 
-"If a delivery is ten thousand years overdue... how many millions in penalty fees does the courier app charge?"
+"If a delivery is days overdue... how much in late penalty fees is the courier app going to deduct?"
 
-"My driver rating is probably negative ten million by now."
+"My driver rating is probably getting shredded into negative stars right now."
 
 The unforgiving geology around him delivered a cold slap of reality:
 
-In a primeval world ten thousand years before Christ, with no roads or cart tracks, a twenty-five-ton highway truck couldn't travel a single kilometer even if magically repaired.
+Deep within an inaccessible karst limestone gorge completely severed from civilization, with no trails or access roads, a twenty-five-ton highway truck couldn't scale the sheer rock walls back to the highway even if magically repaired.
 
 The jagged limestone karst, rocky outcrops, and sucking mud bogs were death traps for heavy wheeled vehicles.
 
-This corrugated steel cargo box was his sole permanent stronghold—an immovable fortress.
+This corrugated steel cargo box was his sole permanent stronghold—an immovable survival fortress.
 
 Thame stood and rounded the rig. His gaze caught the deep, violent gouges carved into the steel side of the cargo box.
 
@@ -136,7 +136,7 @@ The grey icon turned solid white... **One bar! (2G / E)**
 
 Thame's eyes dilated in sheer shock. His heart thumped against his ribs like a war drum.
 
-"Cell service?! How the hell is there a roaming signal on top of a truck in 10,000 BC?!"
+"Cell service?! How the hell is there a signal way out here in this valley?!"
 
 With trembling thumbs, he unlocked the display.
 
@@ -146,10 +146,10 @@ However, a global plain-text community forum application (Global Community Forum
 
 Thame didn't hesitate. He tapped into the Emergency & Wilderness Survival sub-forum and hit *New Thread*.
 
-Title: **[EMERGENCY] 10-wheel parcel truck crashed through a dimensional rift into the middle of nowhere. Heavy fog, suspension destroyed, wheels shattered, stranded in primeval valley. A beast the size of a sedan just clawed the rig. Someone please help!**
+Title: **[EMERGENCY] 10-wheel parcel truck careened off the pass into an uncharted gorge. Heavy fog, suspension destroyed, wheels shattered, completely stranded. A monstrous beast the size of a sedan just clawed the rig. Someone please help!**
 
 Body:
-*"I was driving an afternoon logistics haul over the northern mountain pass when an unnatural black fog swallowed the road. Woke up in an ancient limestone karst gorge with primeval forests. No roads, no power lines, completely off-grid. Rig is completely immobilized in deep mud. Just survived an attack by an enormous beast that clawed the steel doors. I only have one flickering bar of 2G on top of the truck roof. Anyone with coordinate knowledge or wilderness survival expertise, please advise!"*
+*"I was driving an afternoon logistics haul over the northern mountain pass when an unnatural black fog rolled in and my truck was rammed down the slope. Woke up in an ancient limestone karst gorge with wild forests. No roads, no power lines, completely off-grid. Rig is completely immobilized in deep mud. Just survived an attack by an enormous beast that clawed the steel doors. I only have one flickering bar of 2G on top of the truck roof. Anyone with coordinate knowledge or wilderness survival expertise, please advise!"*
 
 With shaking fingers, he pressed *Post*.
 
@@ -160,10 +160,10 @@ Thame stood shivering in the biting wind, his chest tight with unbearable suspen
 Thirty seconds later, the first notification pinged onto the screen.
 
 `@TrollMaster_99:`
-`"LMAOOOO! What survival game is this promoting, bro? Or is this an ARG marketing campaign for an indie horror flick? 10/10 creative writing! Transported to the stone age but you’ve still got bandwidth to post on Reddit? Drop the server IP, I’m logging in right now!"`
+`"LMAOOOO! What survival game is this promoting, bro? Or is this an ARG marketing campaign for an indie horror flick? 10/10 creative writing! An uncharted gorge with car-sized monsters? What, did you crash into the Stone Age? Drop the server IP, I’m logging in right now!"`
 
 `@VikingBushcraft:`
-`"If this isn't a sick joke... in that kind of mountainous terrain, a predator of that mass sounds like a prehistoric giant Asiatic bear or a Pleistocene saber-toothed apex predator. DO NOT leave that vehicle. The scent of modern humans is an irresistible marker for prehistoric apex predators!"`
+`"If this isn't a sick joke... in that kind of mountainous terrain, a predator of that mass sounds like a prehistoric giant bear or a Pleistocene apex carnivore. DO NOT leave that vehicle. The scent of modern humans is an irresistible marker for prehistoric apex predators!"`
 
 Thame exhaled a ragged breath, half-exasperated, half-terrified. "Idiots... I’m not playing an online game! I’m actually trapped here!"
 
@@ -181,4 +181,6 @@ Three pairs of predatory eyes, staring beneath tangled, braided hair, were locke
 
 Thame's breath caught in his throat. His right hand instinctively dropped to the hilt of the 1095 bushcraft knife at his hip.
 
-The first contact between two civilizations separated by ten thousand years had just begun.
+The sight of primitive hunters cloaked in hides, coupled with the troll's mocking quip about crashing into the Stone Age, struck him with chilling clarity...
+
+He hadn't merely skidded down a remote mountain slope... He was standing face-to-face with prehistoric humans from ten thousand years in the past!
