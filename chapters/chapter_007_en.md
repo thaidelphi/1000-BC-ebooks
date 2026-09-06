@@ -181,7 +181,7 @@ Thame accepted the polished stone, feeling the pure, radiant warmth of the child
 
 He ruffled Tara’s dark hair gently, then carefully slid the lucky talisman into the left chest pocket of his parka... directly over his heart.
 
-Around the ten-wheeled fortress, the clan began arranging dry pine branches into small, sheltered campfires along the massive wheels and under the container overhang.
+Villagers gathered bundles of dry pine and bark beneath the container overhang and beside the massive wheels, while Khuran and Shaman Moka carried glowing firebrands from the camp's central hearth to kindle small, sheltered warming fires around the truck.
 
 The warmth of the fires and the impenetrable windbreak of the steel walls brought peaceful smiles and quiet solace to the tribe for the first time in months.
 
