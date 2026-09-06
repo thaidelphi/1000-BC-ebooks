@@ -30,11 +30,11 @@ Arcs of violet-blue static electricity skittered wildly across the windshield fr
 
 "What the hell... Lightning?!" Thame cursed, white-knuckling the wheel.
 
-Before his boot could depress the air brake pedal, the vista ahead twisted into a violent vortex. The asphalt beneath the tires ripped open into a bottomless dimensional tear.
+Before his boot could depress the air brake pedal, visibility collapsed entirely into swirling blinding white. Air pressure slammed against the windshield with disorienting violence.
 
 *KABOOOOM!*
 
-A catastrophic impact slammed into the rear quarter of the truck! An immense, violent force from something unseen in the pitch-black fog rammed the ten-wheeler, sending twenty-five tons of steel spinning in a violent three-hundred-and-sixty-degree pirouette. The steering wheel whipped out of his grip, and the front steer tires dropped into the vacuum.
+A catastrophic impact slammed into the rear quarter of the truck! An immense, violent force from something unseen in the pitch-black fog rammed the ten-wheeler, sending twenty-five tons of steel spinning in a violent three-hundred-and-sixty-degree pirouette. The steering wheel whipped out of his grip. The runaway rig tore through the gravel shoulder, pitching sideways over the embankment and plummeting into the black void below!
 
 Centrifugal force hurled his body violently against the cab pillar and the wheel.
 
@@ -68,13 +68,13 @@ Under the faint, dying twilight, endless rolling tundra stretched to the horizon
 
 Thame crouched down, sweeping the flashlight across the undercarriage. The damage was catastrophic.
 
-The sheer kinetic force of twenty-five tons slamming through the rift had sheared both front 5160 leaf springs clean off their hangers. The tandem rear springs were buckled, the primary driveshaft twisted into a ruined corkscrew. The left front steer and rear dual tires were blown to shreds on their rims. The wheels sat buried to their axles in frozen sludge.
+The sheer kinetic force of twenty-five tons tumbling down the steep mountain slope into the bottom of the ravine had sheared both front 5160 leaf springs clean off their hangers. The tandem rear springs were buckled, the primary driveshaft twisted into a ruined corkscrew. The left front steer and rear dual tires were blown to shreds on their rims. The wheels sat buried to their axles in frozen sludge.
 
 The truck was completely, irreversibly immobilized.
 
-Worse, along the heavy rear underrun bumper and the right chassis rail, steel had been crushed inward in a deep groove. Scraped along the gash were flakes of foreign dark-blue and grey paint. Something heavy had undeniably rammed him before the spin... yet across the vast, bleak twilight, there was no trace of whatever hit him. Only silence.
+Worse, along the heavy rear underrun bumper and the right chassis rail, steel had been crushed inward in a deep groove. Scraped along the gash were flakes of foreign dark-blue and grey paint. Something heavy had undeniably rammed him before the plunge... yet looking up at the towering, sheer rock walls above and across the dark valley, there was no trace of whatever hit him. Only silence.
 
-In a prehistoric world ten thousand years before Christ, even if the suspension had survived, a twenty-five-ton highway rig could never drive here. There were no roads. No cart paths. Only glacial moraine, frozen bogs, and jagged rock. This truck was anchored as an **"Iron Bastion"** from the very first breath.
+Stranded at the bottom of such a brutal, roadless gorge, even if the suspension had survived, a twenty-five-ton highway rig could never climb back out. There were no access roads. No cart paths. Only rugged tundra, glacial boulders, and sucking mud. This truck was anchored as an **"Iron Bastion"** by harsh geographic reality.
 
 Yet by some grace, the heavy corrugated walls of the cargo box remained intact. The 250-liter aluminum diesel tank under the frame was undamaged—no leaks, holding 199.5 liters of fuel.
 
@@ -108,7 +108,7 @@ Colossal claws raked across the outer door skin and A-pillar! The agonizing shri
 
 *ROOOOOOOOAAAAAAARRRRRR!*
 
-A thunderous, guttural roar detonated against the night, shaking the pines and echoing off the mountain wall. It was too deep, too primeval, too monstrous for any modern predator. It was the battle cry of an **Ice Age Cave Bear**—a prehistoric apex titan that had ruled this frozen earth ten millennia ago.
+A thunderous, guttural roar detonated against the night, shaking the pines and echoing off the mountain wall. It was too deep, too primeval, too monstrous for any modern beast he had ever heard of. Thame had never known any predator of such staggering mass to inhabit these northern mountains, but its weight and tearing strength made one thing terrifyingly clear: this was an apex titan of pure carnage.
 
 Thame's heart slammed against his ribs like a sledgehammer. Sub-zero cold bit through his jacket, shaking his limbs. He gripped the crowbar with slick, frozen palms. He knew with dreadful clarity: if this behemoth smashed through the cracked windshield, a steel rod would not save his life.
 
@@ -127,6 +127,8 @@ For thirty agonizing minutes, the titan circled and tested the iron walls before
 
 Thame slowly exhaled, willing his racing pulse back to steady calm. His gaze stayed fixed on the deep claw marks pressed into the door steel, his right hand firmly wrapped around the grip of the .38 beneath the down bag.
 
-The reality was absolute.
-This was no missing territory on a modern map.
-This was the **Late Glacial Maximum of 10,000 BC**—a brutal stone-age world where mankind survived beneath the shadows of prehistoric monsters. And this crippled ten-wheel fortress, packed with thousands of blind parcels, was the solitary anchor that would decide whether he would live or perish in the wild dawn of antiquity.
+He believed he had merely suffered a disastrous highway accident—struck from behind in the blinding squall and pitched over the embankment into the bottom of a remote mountain gorge. Yet the biting sub-zero gale, the vast expanse of wild tundra unmarred by civil infrastructure, and the monstrous roar of the predator outside whispered a terrifying omen:
+
+Whatever had happened out on that mountain pass was infinitely darker and more impossible than a standard road accident.
+
+In this freezing, pitch-black wilderness, the crippled steel fortress and the thousands of mysterious parcels inside were the solitary anchors that would decide whether he lived to see the morning light.
