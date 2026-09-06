@@ -90,7 +90,7 @@ And above all... he needed allies in this brutal world, not sworn enemies.
 
 Thame scrambled down the container's side ladder like greased lightning, threw open the cab door, and vaulted behind the steering wheel.
 
-He glanced at Uncle Det's empty vacuum flask and the foil wrapper of the compressed ration bar on the console that had kept him alive.
+He glanced at Uncle Det's empty vacuum flask and the foil wrapper of the butter crackers on the console that had kept him alive.
 
 He slammed the key into the ignition switch, turning it to ON; the 24-volt electrical system lit the instrument clusters with an amber glow.
 

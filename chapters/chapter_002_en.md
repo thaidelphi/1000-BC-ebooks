@@ -142,13 +142,13 @@ With a four-millimeter spine, a razor-sharp Scandinavian grind, and olive-drab m
 
 Thame used the new blade to slice open the third parcel:
 
-At last, he struck salvation against starvation: `#TH-204192`, an emergency survival ration pack containing **Four 500g High-Energy Compressed Ration Bars** and **Two 1-Liter Bottles of Natural Mineral Water**!
+At last, he struck salvation against starvation: parcel `#TH-204192`, a care package of baked snacks sent to relatives in the countryside, packed with **Four Large Packs of Golden Butter Crackers** and **Two 1-Liter Bottles of Clean Drinking Water**!
 
-Thame ripped open the vacuum foil, ravenously biting into the dense biscuit.
+Thame pressed his palms together in tearful apology to the recipient's name on the shipping label before tearing open a foil pack and wolfing down the crispy butter crackers.
 
-Rich, sweet nutty malt flavors and concentrated calories surged into his bloodstream, reviving his failing strength.
+The crispy, rich sweetness of butter and carbohydrates surged into his bloodstream, instantly reviving his failing strength and warming his chilled body.
 
-He uncapped a water bottle, gulping down the crisp, ice-cold mineral water until half the bottle was drained, banishing the torturous thirst that had haunted him for days.
+He uncapped a water bottle, gulping down the crisp water frantically until nearly the entire liter was drained, quenching the torturous drought that had haunted him for days.
 
 Tears of relief streamed down his cheeks as miraculous energy surged back into his exhausted body.
 
