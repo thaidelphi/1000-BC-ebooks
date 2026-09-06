@@ -142,13 +142,13 @@ With a four-millimeter spine, a razor-sharp Scandinavian grind, and olive-drab m
 
 Thame used the new blade to slice open the third parcel:
 
-At last, he struck salvation against starvation: parcel `#TH-204192`, a care package of baked snacks sent to relatives in the countryside, packed with **Four Large Packs of Golden Butter Crackers** and **Two 1-Liter Bottles of Clean Drinking Water**!
+At last, he struck salvation against starvation: parcel `#TH-204192`, a care package of baked snacks sent to relatives in the countryside, packed with **Four Large Packs of Golden Butter Crackers**, and right beside it were shipments of **Four Shrink-Wrapped Packs of Natural Mineral Water (Twenty-Four 1.5-Liter Bottles in Total)**!
 
 Thame pressed his palms together in tearful apology to the recipient's name on the shipping label before tearing open a foil pack and wolfing down the crispy butter crackers.
 
 The crispy, rich sweetness of butter and carbohydrates surged into his bloodstream, instantly reviving his failing strength and warming his chilled body.
 
-He uncapped a water bottle, gulping down the crisp water frantically until nearly the entire liter was drained, quenching the torturous drought that had haunted him for days.
+Slitting open the heavy shrink-wrap of a water pack, he yanked out a bottle, twisted the cap, and gulped down the ice-cold mineral water frantically until the entire bottle was drained, quenching the torturous drought that had haunted him for days.
 
 Tears of relief streamed down his cheeks as miraculous energy surged back into his exhausted body.
 
