@@ -36,61 +36,58 @@ Kuran nodded eagerly, his chest swelling with pride: "Vah! Sua! (Quick, friend!)
 When a heavy log slipped on the gravel, threatening to crush a worker's foot, El-ya shouted sharply: "Tah! Tah! (Stop!)" The entire squad froze instantly in place.
 The linguistic bridge turned chaotic tribal labor into a disciplined, synchronized construction brigade.
 
-The hunters of the Cliff Deer Clan, accustomed to battering timber with brittle stone hand-axes until their palms bled, were electrified by modern steel.
-The SK5 pull-saws severed thick branches in effortless strokes; the forged axe shaped tapered spear points on the logs with terrifying speed.
-Within three hours, thirty three-meter-long sharpened timber poles were dragged to the canyon bottleneck.
-The sharpened timber palisade was driven deep into the gravel trench, sealing the four-meter chokepoint into an unbroken wooden wall.
-Wearing the thick cowhide gloves, Thame strung the double-strand galvanized barbed wire along the spiked crest of the timber wall.
-He then stretched two low strands across the scree slope at shin height to serve as a lethal tripwire barrier.
-The razor-sharp zinc-coated barbs gleamed menacingly in the afternoon sun—an "iron thorn-vine" that would never rot.
+The hunters of the Cliff Deer Clan, accustomed to battering timber with brittle stone hand-axes until their palms bled, threw themselves into work alongside modern steel.
+Throughout the afternoon of **Day Six**, the mechanical whine of the 21V mini chainsaw and the bite of SK5 saws echoed endlessly across the canyon.
+Thirty three-meter-long sharpened timber poles were cut, hauled, and driven nearly a meter deep into the trench sealing the four-meter chokepoint.
+Thame taught El-ya how to use the steel measuring tape to keep the timber alignment perfectly true.
+"Pillar... straight," Thame pointed at the upright logs. El-ya nodded solemnly, repeating with precision: "Pil-lar... straight!"
+Wearing heavy cowhide gloves, Thame strung the double-strand galvanized barbed wire along the spiked crest of the timber wall.
+He stretched two low strands across the scree slope at shin height as a lethal tripwire entanglement.
+The zinc-coated barbs gleamed menacingly—an "iron thorn-vine" that ancient warriors revered with awe.
 
-While the warriors secured the defensive perimeter, Thame erected the structural frames for two timber longhouses flanking the truck.
-Using the 20V cordless impact drill, he drove three-inch self-tapping screws into lap joints, binding the pine timbers in seconds without vines.
-The roofs were sheathed with waterproof tarpaulins beneath thick layers of spruce bark, while wattle-and-daub walls were sealed with river clay and dry chaff.
-Inside the central longhouse, Thame and Kuran constructed an L-shaped Rocket Stove using heat-resistant limestone and river clay.
-An exhaust flue was routed through the rock face, venting smoke cleanly up the cliff via natural convective draft.
-The stove burned seasoned firewood with near-total combustion, radiating immense heat while keeping the sleeping quarters completely smoke-free.
+Across **Day Seven and Day Eight**, the enterprise expanded into permanent shelter construction and renewable solar electrification.
+Thame erected structural frames for two timber longhouses flanking the truck, driving self-tapping screws with the 20V cordless impact drill.
+The mechanical ratcheting sound of screws sinking effortlessly into dense pine bewildered the hunters, who had only ever known brittle vine lashings.
+Roofs were sheeted with waterproof tarpaulins beneath spruce bark; wattle-and-daub walls were insulated with river clay and dry chaff against arctic gusts.
+Inside the living quarters, Thame and Kuran constructed an L-shaped Rocket Stove using heat-resistant stone and river clay, venting exhaust through a rock fissure.
+The dual-chamber draft produced total combustion, radiating immense warmth while remaining completely smoke-free.
+While the clay dried, Thame mounted the 100W foldable solar panel atop the container, tilted fifty degrees south toward the autumn sun.
+Shaman Moka reverently stroked the tempered glass, awed by the dark stone that drank sunlight without burning.
+Thame routed DC cables into the warm geothermal cave to charge lithium packs safely above freezing temperatures.
+He positioned two 200W PIR solar floodlights atop the truck and the timber gate, suspending four solar lanterns within the longhouses.
 
-The next crucial milestone was the solar electrification of Fortress Alpha, severing their reliance on the truck's dwindling diesel reserves.
-Thame climbed atop the cargo container and anchored the 100W foldable solar array, tilting it fifty degrees south to catch the low autumn sun.
-Shaman Moka reverently touched the smooth tempered glass of the dark panel, unable to fathom how a black stone could drink sunlight without burning.
-Thame ran the DC charge cables down into the warm cliff sanctuary, plugging the lithium battery packs into the smart charger as sub-zero charging protocol dictated.
-The first 200W solar floodlight was mounted on the container roof, commanding the central camp and the cliff ascent.
-The second floodlight was anchored atop the three-meter timber palisade at the bottleneck, aiming fifty meters into the open grasslands below.
-Inside the two longhouses, four solar camping lanterns were suspended from the ridge beams, bathing the interior in warm, soot-free amber light.
+Across **Day Nine and Day Ten**, the clan embarked on prehistoric humanity's first systematic irrigation and agriculture project.
+"No one will ever risk their life walking through blizzard winds to the white stream again," Thame announced.
+He led a squad to fell a dozen mature giant bamboo culms, fifteen centimeters in diameter, from the lower canyon.
+Thame split the giant canes lengthwise into U-shaped flumes, boring out the nodal septa with the 32mm spade bit on the cordless drill.
+Young Tara steadied the culms with shining eyes, giggling as circular wooden disks flew through the air.
+Warriors raised A-frame timber trestles at a steady three percent downward slope across eighty meters.
+The bamboo aqueduct bridged the high alpine spring down to camp, passing through a four-tier bio-sand, gravel, and charcoal filter.
+Pure, crystalline spring water flowed continuously into a clean storage cistern beside the truck.
+Gravity-fed drip trenches diverted overflow into terraced cliffside plots enriched with ancient bat guano and cold-weather seeds beneath transparent poly-wrap.
 
-"The final piece is the river of life... no one will ever risk their life at the distant stream again," Thame announced to the assembled clan.
-He led a crew of hunters to harvest a dozen mature giant bamboo culms, fifteen centimeters in diameter, from the lower canyon.
-Thame split the giant canes lengthwise into U-shaped flumes, using the cordless drill with the 32mm spade bit to bore out the nodal partitions.
-Young Tara eagerly steadied the bamboo poles, laughing with delight as smooth wooden disks flew from the whirling bit.
-The flumes were overlapped like fish scales atop A-frame timber trestles at a continuous three percent gradient, spanning eighty meters.
-The aqueduct tapped the pristine alpine spring on the high cliff shelf, channeling water through a four-stage bio-sand and charcoal filtration cistern.
-Crystal-clear mountain water poured continuously into the fifty-gallon main holding tank beside the truck.
-A wooden sluice gate diverted the overflow into gravity-fed drip lines along the terraced garden beds, enriched with ancient bat guano and cold-climate seeds beneath clear poly-wrap.
+When clean running water poured effortlessly into the camp's central cistern, liberating the clan from perilous journeys across the frozen scree, the people wept tears of joy.
+Shaman Moka knelt on the damp earth, splashing cold water over his wrinkled brow while chanting praises to the "Green Dragon Stream."
+Tara cupped the icy water in her tiny hands and drank thirstily, her bright laughter echoing against the limestone walls.
+Over five days of shared toil and shared meals, the walls of language and time dissolved completely.
+The Stone Age hunter-gatherers and the twenty-first-century engineer had forged a single, unbreakable family.
 
-As the clear water splashed into the camp's holding tank, ending their perilous treks through predator-infested snow, the clan broke into weeping cheers.
-Shaman Moka fell to his knees, scooping the pure water over his face while chanting praises to the "Green Dragon Stream" Thame had summoned from the rock.
-Little Tara cupped the ice-cold water in her hands and drank greedily, her bright laughter reflecting in the rippling pool.
-It was the true liberation of their people from the predatory terrors of the prehistoric wilderness.
+As darkness fell on the evening of **Day Ten**, biting winter winds whipped through the pass, plunging temperatures down to five degrees Celsius.
+Yet inside Fortress Alpha, clean white curls of steam rose from the Rocket Stove chimneys over bone-dry cured clay.
+Golden warmth from the solar lamps bathed the longhouses in soothing comfort, untainted by choking soot.
+The mouthwatering scent of roasted venison and clean herbal broth filled the fortified haven.
+Thame established a rigorous twenty-four-hour guard rotation of three four-man shifts across three bastions: truck roof, Two-Bar Ridge, and the palisade gate.
 
-As the sun sank behind the obsidian peaks, the late-autumn wind began to howl, dropping the temperature sharply to five degrees Celsius.
-Yet inside Fortress Alpha, the camp was alive with warmth, security, and the dawn of human civilization.
-Whisps of pale, soot-free smoke rose from the Rocket Stove flues into the freezing night sky.
-The gentle glow of solar lanterns illuminated the children resting safely without stinging smoke in their eyes.
-The rich aroma of roasted venison and clean boiled broth drifted through the secure stockade.
-Thame established a strict twenty-four-hour guard rotation of three four-man shifts across three tactical bastions: the truck roof, Two-Bar Ridge, and the palisade gate.
-
-Hours passed until the valley settled into the dead of night, around 23:30.
-An ominous silence blanketed the frosty canyon, broken only by the dry rattle of brittle pine needles in the sub-zero breeze.
-Thame stood watch atop the cargo container alongside El-ya, who held her recurve bow nocked with a razor-sharp flint arrow.
-Their eyes strained against the pitch-black darkness that swallowed the earth beyond the camp perimeter.
+Hours drifted deep into the dead of night, around 23:30.
+An eerie silence settled over the frosted valley, broken only by the shivering pine boughs against the rock face.
+Thame stood watch atop the container roof beside El-ya, whose flint-tipped arrow rested steadily upon her recurve bow, her thigh wound fully healed.
+Their eyes scanned the pitch-black void beyond the perimeter.
 Suddenly!
-**The 200W solar floodlight atop the timber palisade detonated into brilliant life!**
-A 6,500K daylight beam ripped through the ink-black night, flooding the scrub grass in an eight-meter radius with blinding white glare.
-The infrared PIR motion sensor had detected its target with lethal precision!
-And frozen in that blazing artificial sun, Thame and El-ya beheld three crouched silhouettes in beast-skin cloaks, creeping toward the timber wall!
-"Orok! (Demon Fang!)" El-ya hissed through clenched teeth, her predatory gaze ablaze.
-They were not wolves... but advance scouts of the cannibal Demon Fang Clan!
-Adorned with human teeth necklaces and brandishing blood-stained stone war clubs, the savages shrieked in terror, clawing at their flashblinded eyes!
-Beside Thame, El-ya drew the bowstring to her cheek, the flint arrow trembling with deadly intent.
-The war for Fortress Alpha had begun.
+**The 200W solar floodlight mounted atop the timber palisade exploded into brilliant daylight!**
+A 6,500K daylight beam ripped through the night, flooding the chokepoint grasslands in an eight-meter radius with blinding brilliance.
+The infrared PIR motion sensor had tripped with flawless precision!
+Caught frozen in that blazing artificial sun, Thame and El-ya beheld three crouched silhouettes in beast-skin cloaks, creeping toward the timber wall!
+"Orok! (Demon Fang!)" El-ya hissed through clenched teeth, her eyes blazing as she drew the bowstring taut.
+They were not beasts... but advance scout warriors of the cannibal Demon Fang Clan!
+Wearing human teeth necklaces and gripping blood-crusted stone axes, the savages shrieked in horror, clawing at their flashblinded eyes!
+The war to defend Fortress Alpha had begun.
