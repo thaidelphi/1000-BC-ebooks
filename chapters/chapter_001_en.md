@@ -124,7 +124,9 @@ Moving with silent, practiced muscle memory in the dark, Thame reached beneath t
 2. **10-Inch High-Carbon Steel Bowie Knife:** Full-tang, razor-sharp, balanced perfectly in hand.
 3. **Heavy Black Steel Lockbox:** Prying the latch open made his breath catch... resting inside was a **Smith & Wesson .38 Special 3-Inch Revolver**, blued steel gleaming in the dark, accompanied by a green cardboard ammunition box containing semi-wadcutter lead rounds. Exactly **43 cartridges** in total (5 loaded in the cylinder, 38 in the paper tray).
 
-Thame checked the cylinder by touch with practiced familiarity. Slipping into the arctic sleeping bag, he braced his back against the steel bulkhead, leveled the .38 revolver through the dark directly at the door, and staged his finger against the trigger. If that beast breached the steel, he would fire point-blank.
+Thame was no seasoned marksman or weapons expert—he was just a young engineering graduate who remembered Uncle Det showing him how to release the cylinder and operate this revolver in case of a highway emergency. With hands shaking uncontrollably from the freezing cold and raw terror, he gingerly lifted the heavy steel revolver from the box. His numbed fingers fumbled in the dark for the thumb latch, swinging the cylinder out so his thumb could feel the brass rims of all five loaded cartridges. Satisfied it was primed and ready, he snapped the cylinder back into the frame with a crisp *click*.
+
+Crawling deep into the arctic sleeping bag, he huddled with his back pressed against the sleeper cab's steel frame. Clinging to the .38 with both trembling hands, he aimed through the pitch darkness straight at the driver's door, his heart hammering against his ribs, terrified yet determined to fire in desperate self-defense the moment that beast breached the iron.
 
 For thirty agonizing minutes, the titan circled and tested the iron walls before the heavy thuds finally faded into the vast tundra night. Silence reclaimed the wilderness.
 
