@@ -62,25 +62,31 @@ With trembling thumbs, he frantically dialed emergency 191 and local rescue serv
 
 Yet the device chimed with a blunt error tone, severing the call with the prompt: *'Call Failed'*. The single flickering 2G bar was far too unstable to sustain a voice channel.
 
-He attempted opening messaging apps and satellite maps, but the loading spinners circled endlessly; the bandwidth was far too sluggish for modern data streams.
+Thame immediately opened the LINE messaging app, firing rapid text messages into his logistics company group chat and Uncle Det's private thread:
 
-However, a global plain-text community forum application (Global Community Forum) began caching text strings line by agonizing line!
+*"Boss, Uncle Det! My truck was rammed off the mountain pass! Chassis wrecked, wheels sunk in deep mud, only one bar of signal. Please alert rescue teams immediately!"*
 
-Thame wasted no time. He tapped into the Emergency & Search-and-Rescue board and created an urgent thread.
+Tiny packets of plain text squeezed through the sluggish 2G network successfully. Yet when he attempted to tap 'Share Location', the map wheel spun indefinitely; GPS satellites failed to resolve any coordinates.
 
-Title: **[EMERGENCY] 10-wheel logistics truck rammed off northern mountain pass yesterday afternoon. Stranded in uncharted karst gorge, cannot make calls, 1 bar of internet. Please alert rescue teams!**
+Frantic replies from dispatch and Uncle Det popped up instantly: *"Where are you?! What kilometer marker on the highway?! Send your location pin now!"*
 
-He rapidly typed out his truck model, license plate, and the mountain highway corridor, explaining that his rig was wrecked in a deep karst gorge and threatened by an enormous beast.
+Yet Thame had no way of knowing where this roadless limestone valley was located. A private chat with a handful of people could do nothing to find him.
 
-Less than two minutes later, the first response flashed onto the screen from `@ChiangMai_Rescue_Vol`:
+Without hesitation, he opened the Facebook app, drafting a public distress post and sharing it into the 'Chiang Mai-Mae Hong Son Highway Rescue' and 'Thai Truckers Association' community groups.
+
+Post Title: **[URGENT EMERGENCY] Logistics 10-wheeler rammed off northern mountain pass yesterday afternoon. Stranded in uncharted gorge, truck wrecked, giant predatory beast prowling outside. Calls fail, only 1 bar of 2G. Please coordinate a search helicopter!**
+
+He typed out his truck model, license plate, and planned haul route from Chiang Mai, begging rescue volunteers to conduct aerial sweeps.
+
+Less than two minutes later, the first comment popped up from local volunteer page `@ChiangMai_Rescue_Vol`:
 
 *"A logistics truck was indeed reported missing on the pass! Last night our search teams swept on foot and deployed thermal drones along the ravine at the skid marks. But down below there's only dense brush and a sheer blind cliff. There is NO sign of your truck or wreckage anywhere! The tire tracks vanished into thin air! Where are you? Send GPS coordinates immediately!"*
 
-Thame typed back frantically: GPS was spinning indefinitely, unable to lock onto any satellites. Forum members urgently advised him to take panoramic photos of his surroundings to cross-reference with topographic maps.
+Thame typed back frantically in the comments: GPS was spinning indefinitely, unable to lock onto any satellites. Group members urgently advised him to post panoramic photos of his surroundings in the comments so people could help match topography and satellite imagery.
 
-Using his phone camera, Thame snapped wide panoramic shots of the towering, needle-sharp limestone spires, the ancient pine canopy, and the three deep claw gouges on the container door. He compressed the images into small files of dozens of kilobytes and uploaded them through the sluggish 2G connection.
+Using his phone camera, Thame snapped wide panoramic shots of the towering, needle-sharp limestone spires, the ancient pine canopy, and the three deep claw gouges on the container door. He compressed the images into tiny files of dozens of kilobytes and uploaded them into the comment thread.
 
-When the photos loaded, the thread exploded!
+The post was shared hundreds of times across northern travel and rescue groups within minutes. Then, the comments exploded!
 
 `@ChiangMai_Rescue_Vol:` *"Wait... where on earth are you?! We pulled high-res satellite maps from the Forestry Department along the entire pass corridor. There is NOT A SINGLE karst valley with this topography anywhere in the region!"*
 
@@ -90,7 +96,7 @@ When the photos loaded, the thread exploded!
 
 `@TrollMaster_99:` *"LMAO! 10/10 CGI editing! Claiming you dropped into the Stone Age? Who's gonna believe that!"*
 
-While users argued intensely, the fragile 2G bar on the screen suddenly flickered out, returning to "No Service", while the battery warning flashed below 20%.
+As netizens shared and argued fiercely across the thread, the fragile 2G bar on the screen suddenly flickered out, returning to "No Service", while the battery warning flashed below 20%.
 
 Thame stood petrified on the roof, his breath seizing at the words... *"Not in the modern era?!"*
 
