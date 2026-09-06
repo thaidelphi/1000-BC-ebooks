@@ -69,20 +69,20 @@ The headstamp stamped into the brass rim was unmistakable: *WIN 9mm LUGER*—an 
 Even worse, the short thrusting spear sheathed at his hip was not tipped with chipped stone,
 It bore a **crudely hammered copper blade lashed to the wooden shaft with a bright yellow industrial nylon zip-tie**!
 An icy chill surged up Thame's spine, far colder than the glacial breeze of the Younger Dryas.
-"Victor..." Thame whispered the name under his breath.
-The evidence upon the captive confirmed what the online war room had feared: Victor, the escaped mercenary, was not merely alive...
-He was actively weaponizing modern knowledge and firearms, subjugating the cannibalistic Demon Fang clan,
-And sending advance scouts to scout Thame's ten-wheeled fortress for an imminent assault!
-Thame turned toward Elya and Kuran, pointing at the brass casing and uttering the primitive words he had newly learned: "Orok... Victor... Iron Man..."
-The bound captive, hearing the name of his warlord, suddenly flared with rabid, fanatical arrogance.
-He spat bloody phlegm onto the frost-rimed rock,
-And let out a raspy, guttural laugh in an archaic tongue mixed with mangled modern curses:
-"Fire... die... Iron Demon... smash! Master... Thunder God... Kraak... One hundred spears... coming to butcher you all!"
-Thame climbed atop the truck's sleeper roof, waking his smartphone to catch the flickering one-bar 2G signal.
-He snapped a photo of the 9mm brass casing and yellow nylon zip-tie, uploading it immediately to the emergency forum thread.
-Urgent replies from `@CombatMedic_US` and `@VikingBushcraft` pinged back within seconds:
-*`[CODE RED ALERT] That brass is authentic Winchester 9mm! Three scouts in the perimeter means the main warband is 24 to 48 hours out at most!`*
-*`[TACTICAL WARNING] Cliff Deer only has ten warriors. If one hundred cannibals charge the gate, you'll be buried under a human wave! You need asymmetric crowd control and impenetrable body armor immediately!`*
+This was not merely a primitive skirmish—another human from the twenty-first century was actively weaponizing and arming this cannibal horde!
+Thame shoved the brass casing directly before the captive's face, demanding with sharp, fierce gestures: "Who gave you this?! Who sent you?!"
+The trussed scout stared at the brass glinting in Thame's hand, his eyes instantly igniting with fanatical, cultish fervor.
+He spat bloody phlegm onto the frost-rimed rock, his chest heaving with manic laughter.
+Then, in a terrifying collision of guttural clicks and clumsy English consonants, the savage shrieked into the night:
+"Vic... tor! Thunder God Victor! Kraak... Victor... Marn! Coming to butcher and devour you all!"
+"Victor...?" Thame repeated the name, frozen in sheer disbelief.
+A modern Western name, enunciated from the jagged teeth of an Ice Age cannibal ten thousand years in the past!
+The scout raved that Warlord Kraak and the Thunder God Victor were marching with a hundred spears to wipe Fortress Alpha off the earth.
+Thame scrambled atop the truck's cab, raising his smartphone to catch the flickering one-bar 2G signal.
+He snapped a photo of the 9mm brass casing and the yellow nylon zip-tie, posting the image alongside the name "Victor" to the emergency forum thread.
+Responses from `@CombatMedic_US` and `@AstroNerd_Munich` pinged back within seconds:
+*`[CODE RED ALERT] Authentic 9mm brass! And breaking news from the storm reports: an 'Armored Special Prison Transport' carrying an ex-mercenary convict named Victor vanished on the exact same mountain highway!`*
+*`[TACTICAL WARNING] Cliff Deer only has ten warriors. If a hundred cannibals charge the gate, you'll be buried under a human wave! You need asymmetric crowd control and impenetrable body armor immediately!`*
 Thame lowered the phone, gazing out past the illumination into the pitch-black southern ridges.
 The preparation clock had run out; one hundred enemy spears were marching through the gorge,
 And tomorrow's dawn would mark the beginning of an existential war for human survival!
