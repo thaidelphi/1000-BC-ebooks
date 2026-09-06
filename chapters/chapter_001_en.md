@@ -2,7 +2,7 @@
 
 The steel wipers dragged rhythmically across the windshield, emitting a steady, wet *screeech... screeech...* against the downpour. It contended with the deep, resonant drone of the 7.7-liter turbocharged inline-six diesel engine as it hauled twenty-five tons of gross weight up the winding asphalt of the Northern Mountain Pass.
 
-Behind the wheel, Thame tightened his grip on the rim. At twenty-four, with an engineering degree fresh in hand, he was no stranger to heavy transport; throughout his university years and during seasonal breaks, he had substituted for Uncle Det—his mother's elder brother and a seasoned highway trucker—countless times. He knew every quirk of the drivetrain, the pressure curves of the air brakes, and every hidden nook of the sleeper cab by heart. When Uncle Det was rushed into an emergency appendectomy earlier that morning, Thame was the only driver trusted to take over this demanding afternoon run across the ridge.
+Behind the wheel, Thame tightened his grip on the rim. At twenty-four, with an engineering degree fresh in hand, he was no stranger to heavy transport; throughout his university years and during seasonal breaks, he had substituted for Uncle Det, a seasoned highway trucker, countless times. He knew every quirk of the drivetrain, the pressure curves of the air brakes, and every hidden nook of the sleeper cab by heart. When Uncle Det was rushed into an emergency appendectomy earlier that morning, Thame was the only driver trusted to take over this demanding afternoon run across the ridge.
 
 The assignment was straightforward: transport over 3,500 priority parcels across the crest to clear the regional logistics hub before nightfall.
 
