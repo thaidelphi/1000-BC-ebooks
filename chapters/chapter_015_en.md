@@ -136,7 +136,7 @@ Little Tara helped carry the rolls of gauze while comforting the wounded, her ey
 
 Old Moka brought warm water laced with pinches of sea salt, offering restorative sips to replenish the survivors' strength.
 
-The elders of the White Deer Clan bowed low toward the silver foils and soothing ointments, their hearts overwhelmed with profound gratitude.
+The elders of the White Deer Clan dropped to their knees with foreheads pressed to the earth, reverently caressing the silver foil in profound awe.
 
 They experienced a warmth and benevolence they had never known before in this brutal primeval world.
 
