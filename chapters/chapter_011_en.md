@@ -40,6 +40,17 @@ The final item was a **High-Power 532nm Green Tactical Laser Pointer** equipped 
 Its concentrated emerald beam could pierce atmospheric dust for several kilometers in a razor-sharp vector.
 Thame tested the beam against the truck's steel wheel hub; the green focal point shone with blinding coherence.
 
+Before taking a single step toward the ascent, Thame flipped open the virgin first page of the tactical notebook, pressing the pressurized ballpoint firmly to the synthetic sheet to draft his very first survival log—an indispensable psychological anchor to preserve his sanity and chronological footing in a world ten thousand years removed from home:
+
+*[Thame's Survival Journal — Day 6 Post-Rift]*
+*- Environment: Late Autumn, Younger Dryas Boundary, circa 10,000 BC. Morning temperature 8°C–12°C, polar drafts intensifying from the northern ridges.*
+*- Bastion & Supplies: Hino 500 Victor ten-wheeler acting as permanent steel fortress. Cargo hold remains packed with unboxed parcels. Fuel and ammunition carefully preserved intact.*
+*- Accomplishments to Date: Successfully cured El-ya's life-threatening septic wound using antibiotics, forged a bloodbound alliance with Clan Cliff Deer (Kuran, Moka, El-ya, and Tara) totaling thirty souls now encamped around the truck, established strict sanitary perimeter eliminating blood scent trails via black contractor bags, and decisively repelled eleven dire wolves using halogen high beams and air horn harmonics while neutralizing their alpha.*
+*- Current Threats: Enemy scouts from the cannibalistic Beast Fang Clan sighted along ridges; copper-wire and bone war whistle recovered from wolf carcass.*
+*- Today's Objective: Conduct vertical reconnaissance of thermal air fissure fifteen meters up the cliffside to secure a winter refuge for the entire settlement.*
+
+Thame stared at the crisp black ink embedded in the green waterproof page with an immense sense of grounding relief. Seeing cold, calculated dates and tangible milestones written in his own hand proved that he was not merely surviving by chance—he was actively engineering civilization from the void.
+
 "I have watched the rock breathe since I was a child... but our elders warned it is the nest of the sleeping cave spirits," El-ya murmured softly.
 She looked at the laser pointer and the metal pen in Thame's hands with cautious awe, pointing up toward the suspended ivy curtain.
 "If it breathes warm air, it belongs to no evil spirit. It is our fortress against the coming freeze," Thame replied firmly.
@@ -110,8 +121,8 @@ A single bar of 2G signal flickered steadily on the cliff crest; the battery res
 He snapped high-resolution photographs of the hand stencils, the eclipse petroglyph, and his hand-drawn survey map, uploading them to the forum thread.
 
 The sleeping cyber war room erupted into a digital tempest, with thread view counters surging past fifty thousand within minutes.
-`@BioArch_Oxford`: *"Good god! Those blown ochre hand stencils match the Chauvet Cave tradition, but the megafaunal styling is distinctly Younger Dryas! That cavern is a ten-thousand-year archaeological time capsule!"*
-`@AstroNerd_Munich`: *"The blackened circle with radiating corona represents an ancient total solar eclipse! Orbital simulations show a total solar eclipse is due over that regional coordinate in the coming months!"*
+`@PaleoArt_Sorbonne`: *"Good god! Those blown ochre hand stencils match the Chauvet Cave tradition, but the hematite pigmentation and megafaunal styling are distinctly Younger Dryas! That cavern is a ten-thousand-year archaeological time capsule!"*
+`@EclipseHunter_NASA`: *"The blackened circle with radiating corona represents an ancient total solar eclipse! Orbital simulations show a total solar eclipse is due over that regional coordinate in the coming months!"*
 Then, a crimson-highlighted urgent priority alert from tactical specialists `@CombatMedic_US` and `@Tactical_Recon` shattered the scientific revelry:
 `"Thame! Zoom in on the wide-angle ridge photo you just uploaded! Look at the southern horizon twelve kilometers out!"`
 
