@@ -20,9 +20,9 @@ In Kuran's grip was the giant neon-orange pump-action water cannon, brim-filled 
 
 Elya held her ground on the five-meter lookout crag, her recurve bow notched with three flint-tipped arrows in reserve.
 
-The distance closed at breakneck speed: one kilometer... five hundred meters... two hundred meters!
+The distance of the charging horde closed at breakneck speed: one kilometer... five hundred meters... two hundred meters!
 
-The roar of the Beast-Fangs reverberated like beasts; seeing only low stone barricades and a narrow passage, they surged forward in a dense pack to trample the camp.
+The roar of the Beast-Fangs reverberated like ravenous beasts; seeing only low stone barricades and a narrow defile, they surged forward in a dense pack to trample the camp.
 
 "Kuran... steady! Hold your ground! Wait for my hand signal!" Thame ordered in a low, measured voice.
 
@@ -84,7 +84,7 @@ Yet celebration proved agonizingly brief as Kuran suddenly collapsed, clutching 
 
 "Kuran!" Thame leaped over the low wall to catch him.
 
-Though the tire cuirass had protected his torso, a jagged fragment of the shattered flint spear had slashed deep into Kuran's upper arm—a gaping ten-centimeter laceration gushing dark blood.
+Though the tire cuirass had protected his torso, a jagged fragment of the shattered flint spear had slashed deep into Kuran's upper armเนโฌโ€a gaping ten-centimeter laceration gushing dark blood.
 
 Simultaneously, another young warrior took flying stone shrapnel to the forehead, blood blinding his vision.
 
@@ -110,49 +110,49 @@ The beast coughed violently, thrashing in blinded agony before wheeling around a
 
 The Cliff Deer warriors rushed forward, ushering all thirty refugees safely behind the palisade, barring the heavy gates of Fortress Alpha shut.
 
-With everyone secure inside and the immediate combat threat fully subsided, the encampment faced a brand-new crisis.
+With everyone secure inside and the immediate combat threat fully subsided, the encampment faced a brand-new crisis of sudden, biting cold.
 
-Sixty souls were now packed tightly within the perimeter, burned refugees moaning in pain as the outside temperature plunged to minus four degrees Celsius (-4°C).
+Sixty souls were now packed tightly within the perimeter, burned refugees moaning in pain as the outside temperature plunged to minus four degrees Celsius (-4เธขเธC).
 
 The bamboo aqueduct began freezing; Thame had trenches dug beneath the trestles to burn slow embers, using thermal convection to thaw the flow and safeguard the water.
 
-Yet the most alarming vulnerability remained the freight container, where over three thousand five hundred packages lay in an unindexed, shadowy heap.
+In this immediate emergency, Thame wasted no precious time attempting to overhaul the entire freight container.
 
-Earlier, while searching for extra gauze and medicine, Thame had wasted precious minutes digging through boxes of shoes and apparel in a cold sweat.
+Instead, his eyes caught the prominent parcel `#TH-310492` situated directly at the tailgate threshold, stamped with clear red-cross symbols.
 
-"A hundred spears are coming tomorrow. If we don't organize this freight so any item can be retrieved in three seconds, we will all perish!" Thame declared grimly.
+Slashing the carton open with his utility knife, Thame uncovered twenty silver space blankets, Mebo burn ointment, paracetamol tablets, and rolls of sterile gauze.
 
-Now that the battle had ceased and safety was secured, Thame mobilized all sixty people to execute the historic **4-Zone Matrix** warehouse overhaul:
+Thame immediately unfurled the radiant foil blankets, wrapping the shivering children, elderly folk, and wounded who were trembling in acute hypothermia.
 
-"Wa! Wa! Help me lift... Clear an eighty-centimeter central aisle!" Thame instructed, chalking the zone boundaries across the steel floor.
+The reflective sheets mirrored ninety percent of radiant body heat back to their cores, halting the deadly chill and rapidly saving the refugees' lives.
 
-Zone Red at the tailgate: Exclusively reserved for trauma kits, antibiotics, gauze, and emergency space blankets—retrievable within five seconds.
+Thame gently smoothed Mebo burn ointment over the blistered burns, dressing them securely with sterile gauze to protect delicate tissues.
 
-Zone Blue along the right wall: Heavy hardware, screws, barbed wire, hand saws, batteries, and expedition field gear.
+The oral paracetamol soon dulled the searing pain, allowing the injured refugees to breathe steadily as their torment subsided.
 
-Zone Green along the left wall: Food rations, sea salt, bouillon cubes, and heirloom seeds—elevated above the floor against dampness.
+Little Tara helped carry the rolls of gauze while comforting the wounded, her eyes shining with tender empathy and care.
 
-Zone Yellow in the deepest recess: Thermal clothing, winter coats, down sleeping bags, canvas tarps, and general sundries.
+Old Moka brought warm water laced with pinches of sea salt, offering restorative sips to replenish the survivors' strength.
 
-From Zone Red, Thame opened package `#TH-310492`, immediately distributing twenty **Space Blankets** to wrap shivering elders and children.
+The elders of the White Deer Clan bowed low toward the silver foils and soothing ointments, their hearts overwhelmed with profound gratitude.
 
-The radiant foil mirrored back ninety percent of body heat, miraculously rescuing thirty souls from fatal hypothermia.
+They experienced a warmth and benevolence they had never known before in this brutal primeval world.
 
-Thame then systematically treated the burned refugees in the clean field clinic using Mebo burn ointment, sterile gauze, and oral paracetamol.
+With his arm wound throbbing less painfully, Kuran patrolled the stone revetments and timber stockade alongside his fellow warriors.
 
-Little Tara eagerly handed Thame cartons marked with fragile-glass and red-cross symbols, her bright eyes fascinated by the markings.
+He whittled giant bamboo shafts and pine trunks into sharp pikes, tirelessly reinforcing defensive stakes along the camp perimeter.
 
-"Sacred wards protecting the magic chests?" Kuran asked reverently, gently touching the cardboard.
+The surviving young warriors from the White Deer Clan eagerly volunteered for watch duty, assisting whole-heartedly with the fortification tasks.
 
-"Not wards... this means Medicine and Glass. Do not drop them, understood?" Thame smiled gently, teaching the words.
+Thame gazed at the container crammed with over three thousand five hundred boxes, resolving to sort and index them systematically once this war had ended.
 
-Tara placed her palm on the red carton, gazing up into Thame's eyes and trying to enunciate: "Ya... Ya... Loom!"
+For now, the absolute priority was defense, preserving lives, and keeping weapons ready for the colossal siege looming on the morrow.
 
-Elya translated softly: "Loom means warm and safe... while Mor means wound and agony."
+Gleaming flint spearheads and steel-reinforced radial tire plates shimmered faintly beneath the pale crescent moon.
 
-"Medicine... heals Mor... into Loom," Tara nodded with conviction, repeating the phrase with pride.
+High above on the rocky crag, Elya remained steadfast at her watch, scanning the pitch-black wilderness in silent vigilance.
 
-Using screws and barbed wire retrieved from Zone Blue, Kuran forged barbed-wire bamboo pikes and reinforced spiked war clubs for the frontline defense.
+The subzero gale howled across the gorge, yet within the palisade, the camp stood as unyielding and warm as solid granite.
 
 Apost the elevated timber watchtower above the gateway, the first sentry watch took post under the warm glow of solar camping lanterns.
 
@@ -161,4 +161,3 @@ Warm fires crackled as sixty survivors shared smoked meat together in safety, cr
 Every eye shone with newfound hope, watching light pierce the primeval gloom of the valley ten thousand years in the past.
 
 Fortress Alpha had weathered the ferocious onslaught, transformed into a sixty-person stronghold armed with an indexed armory and peak combat readiness!
-
