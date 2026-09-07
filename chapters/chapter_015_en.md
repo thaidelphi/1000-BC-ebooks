@@ -84,7 +84,7 @@ Yet celebration proved agonizingly brief as Kuran suddenly collapsed, clutching 
 
 "Kuran!" Thame leaped over the low wall to catch him.
 
-Though the tire cuirass had protected his torso, a jagged fragment of the shattered flint spear had slashed deep into Kuran's upper armเน€เธยเนยเธเนโฌยa gaping ten-centimeter laceration gushing dark blood.
+Though the tire cuirass had protected his torso, a jagged fragment of the shattered flint spear had slashed deep into Kuran's upper arm—a gaping ten-centimeter laceration gushing dark blood.
 
 Simultaneously, another young warrior took flying stone shrapnel to the forehead, blood blinding his vision.
 
@@ -112,22 +112,19 @@ The Cliff Deer warriors rushed forward, ushering all thirty refugees safely behi
 
 With everyone secure inside and the immediate combat threat fully subsided, the encampment faced a brand-new crisis of sudden, biting cold.
 
-Sixty souls were now packed tightly within the perimeter, burned refugees moaning in pain as the outside temperature plunged to minus four degrees Celsius (-4เน€เธเธเน€เธยC).
+Sixty souls were now packed tightly within the perimeter, burned refugees moaning in pain as the outside temperature plunged to minus four degrees Celsius (-4°C).
 
-The bamboo aqueduct began freezing; Thame had trenches dug beneath the trestles to burn slow embers, using thermal convection to thaw the flow and safeguard the water.
+The subzero gales howled into the valley; if left unprotected in the freezing plunge, the severely burned refugees and shivering infants would rapidly succumb to fatal hypothermic shock.
 
 In this pressing emergency, attempting to sort through the entire freight container was completely out of the question.
 
-Thame swiftly checked the cab's delivery manifest (Waybill Manifest), searching for emergency disaster-relief medical parcels.
+He swiftly checked the cab's delivery manifest (Waybill Manifest), searching for emergency disaster-relief medical parcels until he located tracking ID `#TH-310492`, logged as first-aid relief supplies and emergency space blankets.
 
-He located tracking ID `#TH-310492`, logged as first-aid kits and emergency rescue space blankets, stowed within the front-right tiers.
+Headlamp strapped on, Thame scaled into the container, parting aside boxes in the front-right stack to haul out the corrugated carton weighing nearly five kilograms.
 
-Flashlight strapped to his forehead, Thame squeezed into the crammed container, clambering over cartons and wrestling other freight aside.
-
-At last, he hauled out the corrugated box weighing nearly five kilograms, slicing the packing tape to reveal twenty silver space blankets, Mebo burn ointment, paracetamol, and gauze.
+Thame sliced the packing tape with a utility blade, uncovering twenty silver space blankets, Mebo burn ointment, paracetamol, and sterile gauze rolls.
 
 Thame immediately unfurled the radiant foil blankets, wrapping the shivering children, elderly folk, and wounded who were trembling in acute hypothermia.
-
 
 The reflective sheets mirrored ninety percent of radiant body heat back to their cores, halting the deadly chill and rapidly saving the refugees' lives.
 
