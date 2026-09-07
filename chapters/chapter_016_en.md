@@ -82,13 +82,13 @@ The distinctive high-pitched whine of the internal rotor cutting through magneti
 
 Probing the alternator's output terminals with his digital multimeter, Thame watched the LCD screen jump instantaneously.
 
-"28.4 volts... 42 amps! Current is flooding the lines!"
+"28.2 volts... 10 amps! Current is flooding the lines!"
 
 Thame clamped heavy gauge copper leads onto the truck battery bank, bridging the circuit to the camp's main distribution wiring.
 
 Click!
 
-Instantly, the two-hundred-watt LED floodlights perched on the palisade and camping lanterns inside both longhouses blazed with brilliant white luminescence!
+Instantly, the LED floodlights perched on the palisade and camping lanterns inside both longhouses blazed with brilliant white luminescence!
 
 Pure smokeless radiance shattered the freezing fog, turning gloom into daylight while the ceaseless rush of the Pelton wheel echoed like thunder.
 
