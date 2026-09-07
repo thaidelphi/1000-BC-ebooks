@@ -130,9 +130,9 @@ Forum members searched disaster news archives and confirmed: a dark-blue 4WD eme
 
 The fate of the camp's wounded and the fortress's survival hinged on this sortie; without local anesthesia for surgery and advanced antibiotics, the injured would not survive the festering wounds.
 
-Thame resolved to lead a high-speed, forty-eight-hour recon and recovery trek with Elya, leveraging the blizzard ceasefire before Grak could strike.
+With polar blizzards completely sealing the southern passes and freezing Grak's main host in place for two days, this offered the sole tactical window for Thame and Elya to intercept enemy flankers in the western pass and retrieve the anesthesia.
 
-Fortress Alpha was now secured under Kuran's command, fortified with ceaseless hydro floodlights, barbed-wire entanglements, and radial armor plates.
+Meanwhile, the four-meter chokepoint at Fortress Alpha stood virtually impregnable under Kuran's command, fully fortified by hydro-floodlights, barbed wire, and radial-armored spearmen.
 
 Stepping into the container, Thame swept his beam across the stacks for the heavy crate branded with alpine outdoor logos he had spotted earlier.
 
@@ -160,11 +160,11 @@ Elya traced her fingers down the arrow-straight, ultralight carbon shafts, her e
 
 Thame raised the lensatic compass to sight his bearing toward the northwest, where frozen jagged peaks soared defiantly into the subzero wind.
 
-Thame formally vested command over the fortress to Kuran, urging him to use the forty-eight-hour blizzard pause to dig trenches and sharpen pikes.
+Thame coordinated tactics with Kuran: "The southern pass is blocked by snowdrifts; their main army cannot advance yet, but they are seeking a bypass through the western pass. Elya and I must cut them off and retrieve the anesthesia."
 
-"Kuran... hold the fortress tight. Keep the hydro floodlights burning all night. Elya and I will scout the flank and return with anesthesia and surgical supplies."
+"This narrow chokepoint is secure with hydro-lights and barbed wire; hold the line tight and let no enemy straggler breach the gates," Thame urged firmly.
 
-Kuran slammed his clenched right fist against his chest: "While breath stirs in my lungs, the lights and this stronghold shall hold fast until your return!"
+Kuran hammered his chest with a ferocious roar: "Rest easy! No enemy can breach this narrow gorge past my spear; go intercept them in the western pass and bring back the medicine!"
 
 Hoisting the sixty-five-liter pack, Thame checked his loaded .38 revolver holstered at his hip and the 1095 carbon blade strapped to his thigh.
 
