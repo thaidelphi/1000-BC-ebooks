@@ -1,4 +1,4 @@
-# Chapter 15: The Chokepoint Battle and The Venom Fire
+# Chapter 15: The Chokepoint Defense and The Battle Refugees
 
 The guttural blare of prehistoric war horns echoed across the limestone valley, churning clouds of gray dust behind the southern ridge three kilometers away.
 
@@ -10,7 +10,7 @@ They were the shock vanguard of the Beast-Fang cannibal tribe, wielding flint-ti
 
 Their bloodthirsty, hyena-like shrieks shook the frigid air, reverberating off the sheer karst cliffs toward the encampment.
 
-"They're coming! Battle stations!" Thame roared through his damp cotton mask, his tone cutting like hardened steel.
+"They're coming! Everyone to their battle stations as planned!" Thame roared through his damp cotton mask, his tone cutting like hardened steel.
 
 Kuran and the eight Cliff Deer warriors, clad in thick radial tire cuirasses, crouched motionless behind the zigzagging stone revetments flanking the four-meter-wide bottleneck.
 
@@ -22,9 +22,9 @@ Elya held her ground on the five-meter lookout crag, her recurve bow notched wit
 
 The distance closed at breakneck speed: one kilometer... five hundred meters... two hundred meters!
 
-The roar of the vanguard reverberated like beasts from the abyss; seeing only low stone barricades and a narrow passage, they surged forward in a dense pack to trample the camp.
+The roar of the Beast-Fangs reverberated like beasts; seeing only low stone barricades and a narrow passage, they surged forward in a dense pack to trample the camp.
 
-"Kuran... steady! Wait for my signal!" Thame ordered in a low, measured voice.
+"Kuran... steady! Hold your ground! Wait for my hand signal!" Thame ordered in a low, measured voice.
 
 The horde funneled into the four-meter chokepoint, the leading ten skirmishers packed so tightly their arms could barely swing, flint spearheads clattering against one another.
 
@@ -36,7 +36,7 @@ Fifty meters... thirty meters... twenty meters!
 
 Elya's arrow plunged from above, piercing clean through the vanguard chieftain's knee, sending him crashing down and tripping the warriors behind him into chaotic disarray.
 
-"Kuran! Unleash the venom fire!" Thame commanded.
+"Kuran! Drench them with the venom fire!" Thame commanded with a thunderous roar.
 
 Kuran pumped the pressurizing cylinder twice and pulled the trigger on the super soaker!
 
@@ -50,7 +50,7 @@ The hyper-concentrated capsaicin solution from Sichuan peppercorns and habaneros
 
 Agonized, blood-curdling shrieks tore through the gorge as savages struck by the pressurized pepper jet dropped their weapons, clawing at eyes that felt branded by white-hot coals.
 
-Blinded by neurotoxic agony, they thrashed wildly, trampling their own comrades within the narrow defile.
+Blindness and neurotoxic agony threw the vanguard into wild convulsions, trampling their own comrades within the narrow defile.
 
 Crouched behind the opposite parapet, Thame raised the second water cannon, sweeping a broad spray across the second wave!
 
@@ -84,84 +84,81 @@ Yet celebration proved agonizingly brief as Kuran suddenly collapsed, clutching 
 
 "Kuran!" Thame leaped over the low wall to catch him.
 
-Though the tire cuirass had protected his torso, a jagged fragment of the shattered flint spear had slashed deep into Kuran's upper arm—a gaping ten-centimeter laceration gushing dark arterial blood.
+Though the tire cuirass had protected his torso, a jagged fragment of the shattered flint spear had slashed deep into Kuran's upper arm—a gaping ten-centimeter laceration gushing dark blood.
 
 Simultaneously, another young warrior took flying stone shrapnel to the forehead, blood blinding his vision.
 
-"We have to stop the bleeding immediately! If wounds remain exposed to this subzero air, clotting will fail and sepsis will kill him!" Thame's face hardened with grim urgency.
+"We have to stop the bleeding immediately!" Thame pressed a clean cloth firmly against the wound, ordering warriors to support Kuran into the stone shelter.
 
-Thame bolted back toward the cavernous container of the Hino 500 Victor.
+Thame scrambled up to the truck cab, retrieving sterile dressings and gauze from the emergency first-aid kit kept beside the driver's seat.
 
-Throwing the heavy steel doors wide, he vaulted inside... only to freeze in sheer horror and swear under his breath.
+He swiftly flushed the wound with saline, dusted it with antibiotic powder, and bound it under firm compression until hemostasis was achieved.
 
-Over three thousand five hundred corrugated cardboard boxes towered in chaotic, unindexed piles to the ceiling, shrouded in dark clutter!
+While the warriors guarded the perimeter with bated breath, stumbling footsteps and weeping echoed from the gorge entrance.
 
-"Sterile gauze... clotting powder... broad-spectrum antibiotics... where the hell are they?!"
+Thirty bedraggled refugees from the White Deer Clan, their village torched by the main host, arrived at the gate exhausted and freezing to death.
 
-Thame tore through the boxes in mounting panic, hands trembling as one package yielded running shoes and another fast-fashion apparel.
+Comprising women, children, and the elderly, many bore severe burns on their limbs, their bodies shivering violently in deep hypothermia.
 
-Every wasted second spent digging meant another precious deciliter of blood drained from Kuran's veins.
+Worse, four ravenous dire wolves were tailing the refugees' blood trail, poised to pounce upon a trailing toddler!
 
-"Without a logistics system... these parcels are nothing more than a garbage heap waiting to bury us!"
+"Elya! Cover from above!" Thame shouted, grabbing the pepper water cannon and sprinting out beyond the timber gates into the biting wind.
 
-Gritting his teeth, Thame swept his flashlight across the stacks until his beam caught a box bearing a bold red cross and pharmaceutical labels.
+*WHOOSH!* Thame squeezed the trigger, blasting a stream of searing capsaicin directly into the alpha wolf's snout from three meters away.
 
-Slashing the box open, he seized sterile gauze pads, hemostatic compression dressings, and antiseptic wash, racing back to Kuran just in time.
+The beast coughed violently, thrashing in blinded agony before wheeling around and fleeing into the pine forest.
 
-Thame flushed the wound with saline, applied topical antibiotics, and bound the laceration under firm compression until hemostasis was achieved, pulling Kuran back from hemorrhagic shock.
+The Cliff Deer warriors rushed forward, ushering all thirty refugees safely behind the palisade, barring the heavy gates of Fortress Alpha shut.
 
-Once the immediate crisis passed, Thame looked back at the freight container with entirely new eyes.
+With everyone secure inside and the immediate combat threat fully subsided, the encampment faced a brand-new crisis.
 
-The vanguard of thirty had been routed, but that was merely a skirmish... Warlord Grak's main host of a hundred spears would descend tomorrow.
+Sixty souls were now packed tightly within the perimeter, burned refugees moaning in pain as the outside temperature plunged to minus four degrees Celsius (-4°C).
 
-In a full-scale assault with dozens wounded, rummaging blindly through unmarked boxes would seal the fortress's doom!
+The bamboo aqueduct began freezing; Thame had trenches dug beneath the trestles to burn slow embers, using thermal convection to thaw the flow and safeguard the water.
 
-"We overhaul the warehouse right now!" Thame declared grimly.
+Yet the most alarming vulnerability remained the freight container, where over three thousand five hundred packages lay in an unindexed, shadowy heap.
 
-He rallied Elya, Tara, Moka, and every able-bodied person to the rear tailgate.
+Earlier, while searching for extra gauze and medicine, Thame had wasted precious minutes digging through boxes of shoes and apparel in a cold sweat.
 
-"Wa! Wa! Help me lift... Clear a central access aisle eighty centimeters wide!" Thame commanded with firm gestures.
+"A hundred spears are coming tomorrow. If we don't organize this freight so any item can be retrieved in three seconds, we will all perish!" Thame declared grimly.
 
-The young logistics engineer pulled masking tape and permanent markers from the cab, boldly designating the **4-Zone Color Matrix** system:
+Now that the battle had ceased and safety was secured, Thame mobilized all sixty people to execute the historic **4-Zone Matrix** warehouse overhaul:
 
-Zone Red, right at the tailgate threshold: Exclusively for emergency pharmaceuticals, trauma kits, and antibiotics—retrievable in under five seconds.
+"Wa! Wa! Help me lift... Clear an eighty-centimeter central aisle!" Thame instructed, chalking the zone boundaries across the steel floor.
 
-Zone Blue, spanning the right steel wall: Hardware tools, bushcraft gear, batteries, and solar panels.
+Zone Red at the tailgate: Exclusively reserved for trauma kits, antibiotics, gauze, and emergency space blankets—retrievable within five seconds.
 
-Zone Green, spanning the left steel wall: Dry provisions, sea salt, spices, bouillon, and heirloom seeds—elevated above the floor against moisture.
+Zone Blue along the right wall: Heavy hardware, screws, barbed wire, hand saws, batteries, and expedition field gear.
 
-Zone Yellow, in the deep container recess: Cold-weather apparel, down sleeping bags, heavy tarpaulins, and surplus sundries.
+Zone Green along the left wall: Food rations, sea salt, bouillon cubes, and heirloom seeds—elevated above the floor against dampness.
 
-Little Tara darted nimbly between stacks, passing small boxes bearing bright red stickers directly to Thame.
+Zone Yellow in the deepest recess: Thermal clothing, winter coats, down sleeping bags, canvas tarps, and general sundries.
 
-She gazed at the fragile glass and umbrella symbols with wide, luminous eyes.
+From Zone Red, Thame opened package `#TH-310492`, immediately distributing twenty **Space Blankets** to wrap shivering elders and children.
 
-"Sacred wards... protecting the magic chests?" Kuran asked through signs, stroking the cardboard reverently.
+The radiant foil mirrored back ninety percent of body heat, miraculously rescuing thirty souls from fatal hypothermia.
 
-Thame smiled faintly, seizing the teaching moment: "Not wards... this means Medicine and Glass. Do not drop them. Understood?"
+Thame then systematically treated the burned refugees in the clean field clinic using Mebo burn ointment, sterile gauze, and oral paracetamol.
 
-Tara placed her small hand on the red carton, gazing into Thame's eyes and trying to enunciate: "Ya... Ya... Loom!"
+Little Tara eagerly handed Thame cartons marked with fragile-glass and red-cross symbols, her bright eyes fascinated by the markings.
 
-Elya clarified gently: "Loom means warm... safe... and Mor means wound and agony."
+"Sacred wards protecting the magic chests?" Kuran asked reverently, gently touching the cardboard.
 
-"Medicine... heals Mor... into Loom," Tara nodded eagerly, repeating her words with pride.
+"Not wards... this means Medicine and Glass. Do not drop them, understood?" Thame smiled gently, teaching the words.
 
-Beyond warehouse sorting, Thame took coiled barbed wire from Zone Blue, lashing it around giant bamboo shafts to forge four **Barbed-Wire Bamboo Pikes**.
+Tara placed her palm on the red carton, gazing up into Thame's eyes and trying to enunciate: "Ya... Ya... Loom!"
 
-He also drove heavy-duty wood screws around dense pine clubs, crafting **Reinforced Spiked Clubs** for Kuran's frontline arsenal.
+Elya translated softly: "Loom means warm and safe... while Mor means wound and agony."
 
-Before twilight faded, the Younger Dryas polar front struck abruptly, plunging the temperature to minus four degrees Celsius (-4°C).
+"Medicine... heals Mor... into Loom," Tara nodded with conviction, repeating the phrase with pride.
 
-The bamboo aqueduct began seizing with ice; Thame had trenches dug beneath the trestles to burn slow embers, using thermal convection to thaw the flow and safeguard the water supply.
+Using screws and barbed wire retrieved from Zone Blue, Kuran forged barbed-wire bamboo pikes and reinforced spiked war clubs for the frontline defense.
 
-Suddenly, thirty ragged refugees from the White Deer Clan—their village torched by the Beast-Fangs—stumbled toward the gates bearing severe burns and hypothermia.
+Apost the elevated timber watchtower above the gateway, the first sentry watch took post under the warm glow of solar camping lanterns.
 
-Pursued by four ravenous dire wolves, Thame surged out, blasting the alpha wolf with pepper spray and scattering the pack.
+Warm fires crackled as sixty survivors shared smoked meat together in safety, cradled within the embrace of the iron bastion.
 
-With the new Zone Red matrix, Thame retrieved twenty **Space Blankets** in under a minute.
+Every eye shone with newfound hope, watching light pierce the primeval gloom of the valley ten thousand years in the past.
 
-The silver foil mirrored back ninety percent of radiant body heat, rescuing all thirty souls from freezing to death in an apparent modern miracle.
+Fortress Alpha had weathered the ferocious onslaught, transformed into a sixty-person stronghold armed with an indexed armory and peak combat readiness!
 
-And within the sterile field clinic, Thame combined boiled willow bark infusion with Mebo burn ointment and sterile gauze, debriding second-degree burns until the injured were stabilized.
-
-Fortress Alpha had expanded to sixty resilient souls, fortified and fully prepared to face the impending hundred-spear siege tomorrow!
