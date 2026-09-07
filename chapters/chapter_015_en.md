@@ -34,7 +34,9 @@ Fifty meters... thirty meters... twenty meters!
 
 *TWANG! THWACK!*
 
-Elya's arrow plunged from above, piercing clean through the vanguard chieftain's knee, sending him crashing down and tripping the warriors behind him into chaotic disarray.
+Elya's arrow plunged from above, piercing clean through the vanguard chieftain's knee; as he collapsed, the charging warriors behind plunged headlong into the concealed low barbed wire tripwire trap Thame had camouflaged beneath dried leaves!
+
+Razor-sharp galvanized steel barbs sliced deep into bare soles and shins, spilling blood as savages tripped violently over the coiled wire, howling in agony and piling up in the bottleneck.
 
 "Kuran! Drench them with the venom fire!" Thame commanded with a thunderous roar.
 
