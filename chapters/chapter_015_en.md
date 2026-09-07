@@ -118,11 +118,11 @@ The subzero gales howled into the valley; if the burned refugees and shivering t
 
 In this pressing emergency, attempting to sort through the entire freight container was completely out of the question.
 
-He swiftly checked the cab's delivery manifest (Waybill Manifest), searching for emergency disaster-relief medical parcels until he located tracking ID `#TH-310492`, logged as first-aid relief supplies and emergency space blankets.
+Headlamp strapped on, he climbed onto the truck bed, scanning the front row of boxes for any pharmacy or medical sender labels.
 
-Headlamp strapped on, Thame scaled into the container, parting aside boxes in the front-right stack to haul out the corrugated carton weighing nearly five kilograms.
+His eyes caught a medium-sized carton bearing an online pharmacy sender label and a red fragile sticker, and he pulled it out at once.
 
-Thame sliced the packing tape with a utility blade, uncovering twenty silver space blankets, Mebo burn ointment, paracetamol, and sterile gauze rolls.
+Thame sliced the packing tape with a utility blade; by sheer luck, inside lay twenty silver rescue space blankets, burn ointment, paracetamol, and sterile gauze.
 
 Thame immediately unfurled the radiant foil blankets, wrapping the shivering children, elderly folk, and wounded who were trembling uncontrollably in the cold.
 
