@@ -106,11 +106,11 @@ Thame grinned warmly and patted the little girl's head; Fortress Alpha now posse
 
 Freezing nights would no longer bring terror, as tireless floodlights secured the defensive perimeter around the clock.
 
-Yet relief was short-lived, as Moka approached with an ashen face to report that the antibiotics and burn salves unboxed last night were completely exhausted.
+Yet relief proved fleeting when Moka approached with a grim face to consult over the worsening condition of the two bedridden patients.
 
-The two critically burned White Deer patients remaining in the camp had developed severe wound infections and high fevers; without medication and sterile dressings, they would perish in forty-eight hours.
+Although the camp possessed paracetamol and saline wash, the patient with flint spear fragments buried deep inside swollen muscle urgently required surgical incision and extraction before necrosis set in.
 
-One victim drifted into delirious fever while the other had flint fragments embedded deep in his flesh, causing dangerous, inflamed swelling.
+"We have no local anesthesia and no surgical tools..." Thame admitted grimly; cutting into raw muscle without anesthetic would trigger fatal neurogenic shock from sheer agony.
 
 Right then, the one-eyed elder tending his wounded kin limped forward, pointing toward the northwest glacier pass.
 
@@ -120,15 +120,15 @@ The elder recounted in a trembling voice that about a day and a half of rapid ma
 
 Thame's pulse pounded violently; a dark-blue four-wheel-drive vehicle had crashed right inside the flanking corridor of Warlord Grak's advancing horde!
 
-If that vehicle belonged to rangers or scientists, it would carry comprehensive trauma kits, antibiotics, supplies, and potentially surviving modern comrades!
+If that vehicle belonged to rangers or rescue teams, it would carry advanced trauma kits, local anesthetics, injectable antibiotics, and potentially surviving modern comrades!
 
 Scrambling back up to the 2G crag, Thame consulted the forum regarding the spatial coordinates of the western pass.
 
 `@AstroNerd_Munich` instantly confirmed that the western rift aligned with anomalous magnetic distortions that sucked modern vehicles through the temporal fold.
 
-`@TacticalBuilder`: *That pass is the enemy's flanking bottleneck! Intercept their scouts, recon their vanguard, and recover trauma supplies before your people die!*
+`@TacticalBuilder`: *That pass is the enemy's flanking bottleneck! Intercept their scouts, recon their vanguard, and recover local anesthetics and emergency trauma supplies before your people die!*
 
-The lives of the dying refugees and the fortress's survival hinged on this sortie; waiting passively without medicine would destroy the camp from within.
+The fate of the camp's wounded and the fortress's survival hinged on this sortie; without local anesthesia for surgery and advanced antibiotics, the injured would not survive the festering wounds.
 
 Thame resolved to lead a high-speed, forty-eight-hour recon and recovery trek with Elya, leveraging the blizzard ceasefire before Grak could strike.
 
@@ -162,7 +162,7 @@ Thame raised the lensatic compass to sight his bearing toward the northwest, whe
 
 Thame formally vested command over the fortress to Kuran, urging him to use the forty-eight-hour blizzard pause to dig trenches and sharpen pikes.
 
-"Kuran... hold the fortress tight. Keep the hydro floodlights burning all night. Elya and I will scout the flank and return with trauma medicine."
+"Kuran... hold the fortress tight. Keep the hydro floodlights burning all night. Elya and I will scout the flank and return with anesthesia and surgical supplies."
 
 Kuran slammed his clenched right fist against his chest: "While breath stirs in my lungs, the lights and this stronghold shall hold fast until your return!"
 
