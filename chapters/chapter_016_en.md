@@ -122,11 +122,11 @@ Thame's pulse pounded violently; a dark-blue four-wheel-drive vehicle had crashe
 
 If that vehicle belonged to rangers or rescue teams, it would carry advanced trauma kits, local anesthetics, injectable antibiotics, and potentially surviving modern comrades!
 
-Scrambling back up to the 2G crag, Thame consulted the forum regarding the spatial coordinates of the western pass.
+Scrambling back up to the 2G crag, Thame posted on the forum asking about other vehicles reported missing during the storm that day.
 
-`@AstroNerd_Munich` instantly confirmed that the western rift aligned with anomalous magnetic distortions that sucked modern vehicles through the temporal fold.
+Forum members searched disaster news archives and confirmed: a dark-blue 4WD emergency medical response vehicle had indeed vanished in the exact same area!
 
-`@TacticalBuilder`: *That pass is the enemy's flanking bottleneck! Intercept their scouts, recon their vanguard, and recover local anesthetics and emergency trauma supplies before your people die!*
+`@TacticalBuilder`: *There it is! An emergency response vehicle definitely carries local anesthetics and trauma kits! Intercept the enemy scouts and retrieve those supplies fast!*
 
 The fate of the camp's wounded and the fortress's survival hinged on this sortie; without local anesthesia for surgery and advanced antibiotics, the injured would not survive the festering wounds.
 
