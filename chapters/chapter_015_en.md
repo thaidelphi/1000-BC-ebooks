@@ -114,7 +114,7 @@ With everyone secure inside and the immediate combat threat fully subsided, the 
 
 Sixty souls were now packed tightly within the perimeter, burned refugees moaning in pain as the outside temperature plunged to minus four degrees Celsius (-4°C).
 
-The subzero gales howled into the valley; if left unprotected in the freezing plunge, the severely burned refugees and shivering infants would rapidly succumb to fatal hypothermic shock.
+The subzero gales howled into the valley; if the burned refugees and shivering toddlers were left in this bitter freeze, they would surely freeze to death.
 
 In this pressing emergency, attempting to sort through the entire freight container was completely out of the question.
 
@@ -124,7 +124,7 @@ Headlamp strapped on, Thame scaled into the container, parting aside boxes in th
 
 Thame sliced the packing tape with a utility blade, uncovering twenty silver space blankets, Mebo burn ointment, paracetamol, and sterile gauze rolls.
 
-Thame immediately unfurled the radiant foil blankets, wrapping the shivering children, elderly folk, and wounded who were trembling in acute hypothermia.
+Thame immediately unfurled the radiant foil blankets, wrapping the shivering children, elderly folk, and wounded who were trembling uncontrollably in the cold.
 
 The reflective sheets mirrored ninety percent of radiant body heat back to their cores, halting the deadly chill and rapidly saving the refugees' lives.
 
