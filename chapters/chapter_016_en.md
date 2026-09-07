@@ -14,7 +14,7 @@ Over the past night, maintaining the floodlights to guard against enemy surprise
 
 "If the sun stays hidden for two more days... the watchlights will die, leaving our camp blind and defenseless against night ambushes."
 
-Bundled in his thick goose-down parka, Thame chipped frost off the glass, staring grimly at the digital console warning of a depleted 22.4 volts with intermittent warning beeps.
+Bundled in his thick goose-down parka, Thame chipped frost off the glass, peering inside at the digital console flashing an amber warning of a critical 22.4 volts.
 
 At first light, the mobile refugees expressed deep gratitude and departed south to reunite with kin as planned, leaving only two critically burned patients and the Cliff Deer clan—barely a dozen souls in total—so camp safety could not rely on fickle sunlight.
 
