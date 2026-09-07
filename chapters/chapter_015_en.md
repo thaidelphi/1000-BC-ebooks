@@ -148,13 +148,17 @@ He whittled giant bamboo shafts and pine trunks into sharp pikes, tirelessly rei
 
 The surviving young warriors from the White Deer Clan eagerly volunteered for watch duty, assisting whole-heartedly with the fortification tasks.
 
-Thame gazed at the container crammed with over three thousand five hundred boxes, resolving to sort and index them systematically once this war had ended.
+Elya climbed down from the lookout crag, delivering fresh frontline reconnaissance to Thame and Kuran.
 
-For now, the absolute priority was defense, preserving lives, and keeping weapons ready for the colossal siege looming on the morrow.
+The scouts reported that Warlord Grak's colossal hundred-spear host had been pinned down by a violent polar blizzard in the southern passes; having learned that their thirty shock skirmishers were decimated and blinded by venom fire, Grak had halted their advance to regroup, buying Fortress Alpha a critical window of two to three days to fortify and prepare.
+
+Thame gazed at the container packed with over three thousand five hundred boxes, realizing that during this precious ceasefire, he had to urgently construct a sustainable power grid and assemble decisive weapons.
+
+For now, the absolute priority was upgrading defensive fortifications, preserving lives, and preparing weapons for the colossal clash looming ahead.
 
 Gleaming flint spearheads and steel-reinforced radial tire plates shimmered faintly beneath the pale crescent moon.
 
-High above on the rocky crag, Elya remained steadfast at her watch, scanning the pitch-black wilderness in silent vigilance.
+High above on the rocky crag, Elya returned to her watch, scanning the pitch-black wilderness in silent vigilance.
 
 The subzero gale howled across the gorge, yet within the palisade, the camp stood as unyielding and warm as solid granite.
 

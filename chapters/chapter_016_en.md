@@ -134,9 +134,9 @@ He could not let this discovery slip away. If modern survivors were trapped in t
 
 Yet before attempting a perilous expedition across crevasse-riddled glaciers, he needed dependable backcountry mountaineering equipment.
 
-Thame stepped into the truck cargo container, making a beeline for Zone Blue and locating the crate he had cataloged the previous day.
+Thame stepped into the freight container, sweeping his flashlight across the middle rows for the heavy carton stamped with professional outdoor brand packing tape he had spotted earlier.
 
-Tracking code `#TH-882194` — a reinforced cardboard carton branded with the emblem of an elite mountaineering outfitter.
+His eyes locked onto the reinforced corrugated crate `#TH-882194` nestled among the center stack.
 
 His utility blade sliced through the tape, revealing its top-tier contents:
 
@@ -158,11 +158,11 @@ Elya traced her fingers over the sleek, arrow-straight carbon shafts with wide, 
 
 "These are arrows crafted by sky spirits... they will pierce the skull of any predator stalking the high crags," Elya declared with fierce conviction.
 
-Thame organized the garrison with strict military clarity, formally vesting Kuran with complete command over Fortress Alpha.
+Taking advantage of the two-to-three-day ceasefire while the polar blizzard stalled Grak's host, Thame organized the garrison with strict military clarity, formally vesting Kuran with complete command over Fortress Alpha.
 
 With its zigzag stone bulwarks, three-meter timber palisades, concertina wire coils, dual Mala-pepper high-pressure water guns, radial tire armor, and uninterrupted hydroelectric lighting, the fortress was virtually impregnable.
 
-"Kuran... hold the fortress. Guard the people. Await our return with intelligence and supplies," Thame said, clapping the chieftain on the shoulder.
+"Kuran... use this blizzard window to reinforce the timber pikes and drill with the weapons. Guard the people. Await our return with intelligence and supplies," Thame said, clapping the chieftain on the shoulder.
 
 Kuran struck his chest with a clenched fist, his voice resounding: "While breath remains in my chest, your light and this home shall stand unbowed. I pledge my life upon it!"
 
