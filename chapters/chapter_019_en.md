@@ -150,7 +150,7 @@ And most critically... a monstrous warlord clad in beast hides was barking order
 
 They were preparing to march their hundred-spear host to obliterate Fortress Alpha within forty-eight hours!
 
-Two devastating truths stood laid bare: the gateway home was about to open... but Fortress Alpha and the sixty souls who trusted Thame were about to be massacred!
+Two devastating truths stood laid bare: the gateway home was about to open... but Fortress Alpha and the people who trusted Thame were about to be massacred!
 
 "If we just run home... Kuran, Tara, Moka... everyone in the camp will be slaughtered," Thame rasped, his knuckles whitening as his nails bit into his palms.
 

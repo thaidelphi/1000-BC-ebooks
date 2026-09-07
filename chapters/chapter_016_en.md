@@ -10,13 +10,13 @@ The external temperature plummeted to minus five degrees Celsius (-5°C), causin
 
 The two-hundred-watt solar panel atop the cargo container was coated in clear glaze ice, under a Younger Dryas winter sky that had been sunless for nearly twenty-four hours.
 
-Over the past night, maintaining the floodlights to guard against enemy surprise raids and warming sixty shivering souls had drained the auxiliary power to a critical threshold.
+Over the past night, maintaining the floodlights to guard against enemy surprise raids and warming the wounded refugees had drained the auxiliary power to a critical threshold.
 
 "If the sun stays hidden for two more days... the watchlights will die, leaving our camp blind and defenseless against night ambushes."
 
 Bundled in his thick goose-down parka, Thame chipped frost off the glass, staring grimly at the digital console warning of a depleted 22.4 volts with intermittent warning beeps.
 
-With Fortress Alpha's population doubling overnight to sixty lives, the camp's survival could no longer depend on the fickle mercy of an obscured sun.
+At first light, the mobile refugees expressed deep gratitude and departed south to reunite with kin as planned, leaving only two critically burned patients and the Cliff Deer clan—barely a dozen souls in total—so camp safety could not rely on fickle sunlight.
 
 Thame urgently required a continuous, twenty-four-hour renewable power source to illuminate the chokepoint without burning up his strategic reserve of diesel.
 
@@ -92,7 +92,7 @@ Instantly, the two-hundred-watt LED floodlights perched on the palisade and camp
 
 Pure smokeless radiance shattered the freezing fog, turning gloom into daylight while the ceaseless rush of the Pelton wheel echoed like thunder.
 
-Sixty souls from both the Cliff Deer clan and the rescued White Deer refugees froze in place, their eyes widening in awe and disbelief.
+Barely a dozen souls—both Cliff Deer clan members and the recovering patients—froze in place, their eyes widening in awe and disbelief.
 
 Never in their lives had they witnessed flowing water transformed into radiant, smokeless fire perched high upon timber posts without ash or ember.
 
@@ -108,11 +108,11 @@ Freezing nights would no longer bring terror, as tireless floodlights secured th
 
 Yet relief was short-lived, as Moka approached with an ashen face to report that the antibiotics and burn salves unboxed last night were completely exhausted.
 
-Two burned refugees were developing virulent infections, while a wounded hunter ran a soaring fever; without sterile antibiotics, they would perish within forty-eight hours.
+The two critically burned White Deer patients remaining in the camp had developed severe wound infections and high fevers; without medication and sterile dressings, they would perish in forty-eight hours.
 
-An elder from the White Deer clan had lapsed into feverish delirium from infected burns, while a young spearman suffered from flint splinters buried deep within inflamed tissue.
+One victim drifted into delirious fever while the other had flint fragments embedded deep in his flesh, causing dangerous, inflamed swelling.
 
-At that moment, a one-eyed elder among the White Deer refugees limped forward, gesturing urgently toward the northwest glacier canyon.
+Right then, the one-eyed elder tending his wounded kin limped forward, pointing toward the northwest glacier pass.
 
 "Iron Chieftain... inside the glacier cleft where the enemy scouts prowl to flank our gorge... lies a wounded brother of this very beast."
 
@@ -172,6 +172,6 @@ Strung recurve in hand and quiver slung over her shoulder, Elya matched his stri
 
 Side by side, they stepped past the timber palisade, vaulting out from Fortress Alpha into the jagged ascent of the western ice corridor on a race against time.
 
-Behind them, the hydro-powered floodlights burned steadfast and bright, watching over sixty lives in the gathering subzero gloom.
+Behind them, the hydro-powered floodlights burned steadfast and bright, watching over a dozen souls in the gathering subzero gloom.
 
 And ahead lay a crucial reconnaissance mission, and the enigmatic wreck of the second vehicle awaiting salvage amidst the merciless frozen wastes!

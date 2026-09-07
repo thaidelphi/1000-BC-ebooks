@@ -98,7 +98,7 @@ He swiftly flushed the wound with saline, dusted it with antibiotic powder, and 
 
 While the warriors guarded the perimeter with bated breath, stumbling footsteps and weeping echoed from the gorge entrance.
 
-Thirty bedraggled refugees from the White Deer Clan, their village torched by the main host, arrived at the gate exhausted and freezing to death.
+A small group of eight refugees from the White Deer Clan, their village torched by the main host, arrived at the gate exhausted and freezing to death.
 
 Comprising women, children, and the elderly, many bore severe burns on their limbs, their bodies shivering violently in deep hypothermia.
 
@@ -110,11 +110,11 @@ Worse, four ravenous dire wolves were tailing the refugees' blood trail, poised 
 
 The beast coughed violently, thrashing in blinded agony before wheeling around and fleeing into the pine forest.
 
-The Cliff Deer warriors rushed forward, ushering all thirty refugees safely behind the palisade, barring the heavy gates of Fortress Alpha shut.
+The Cliff Deer warriors rushed forward, ushering all eight refugees safely behind the palisade, barring the heavy gates of Fortress Alpha shut.
 
 With everyone secure inside and the immediate combat threat fully subsided, the encampment faced a brand-new crisis of sudden, biting cold.
 
-Sixty souls were now packed tightly within the perimeter, burned refugees moaning in pain as the outside temperature plunged to minus four degrees Celsius (-4°C).
+Over a dozen souls in the camp were joined by the injured seeking emergency shelter, the burned refugees moaning in pain as the outside temperature plunged to minus four degrees Celsius (-4°C).
 
 The subzero gales howled into the valley; if the burned refugees and shivering toddlers were left in this bitter freeze, they would surely freeze to death.
 
@@ -146,7 +146,7 @@ With his arm wound throbbing less painfully, Kuran patrolled the stone revetment
 
 He whittled giant bamboo shafts and pine trunks into sharp pikes, tirelessly reinforcing defensive stakes along the camp perimeter.
 
-The surviving young warriors from the White Deer Clan eagerly volunteered for watch duty, assisting whole-heartedly with the fortification tasks.
+The treated refugees were profoundly grateful; they intended to rest overnight and depart south at dawn to find kin who fled earlier, leaving only two whose burns were too severe to travel.
 
 Elya climbed down from the lookout crag, delivering fresh frontline reconnaissance to Thame and Kuran.
 
@@ -164,8 +164,8 @@ The subzero gale howled across the gorge, yet within the palisade, the camp stoo
 
 Apost the elevated timber watchtower above the gateway, the first sentry watch took post under the warm glow of solar camping lanterns.
 
-Warm fires crackled as sixty survivors shared smoked meat together in safety, cradled within the embrace of the iron bastion.
+Warm fires crackled as the camp and sheltering refugees shared smoked meat together in safety, cradled within the embrace of the iron bastion.
 
 Every eye shone with newfound hope, watching light pierce the primeval gloom of the valley ten thousand years in the past.
 
-Fortress Alpha had weathered the ferocious onslaught, transformed into a sixty-person stronghold armed with an indexed armory and peak combat readiness!
+Fortress Alpha had weathered the ferocious onslaught, transformed into an emergency sanctuary and fortified outpost armed with an indexed armory and peak combat readiness!
