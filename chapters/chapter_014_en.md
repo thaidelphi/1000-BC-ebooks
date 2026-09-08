@@ -2,9 +2,9 @@
 
 "Eight men... We have barely eight spearmen fit to bear weapons!"
 
-Kuran's hoarse, strained whisper cracked like dry timber against the tense silence surrounding the clay Rocket Stove hearth inside the winter longhouse.
+Kuran's hoarse, strained whisper cracked like dry timber against the tense silence of the eleventh day's dawn surrounding the clay Rocket Stove hearth inside the winter longhouse.
 
-The terrifying threats of War Chief Kraak's hundred spears and the modern "Thunder God Victor"—bellowed by the bound scouts confined in the rock alcove—echoed in the back of everyone's mind like an approaching death sentence.
+The terrifying threats of War Chief Kraak's twenty-five spears and the modern "Thunder God Victor"—bellowed by the bound scouts confined in the rock alcove—echoed in the back of everyone's mind like an approaching death sentence.
 
 The pale morning light filtering across the ten-wheeler's steel cab and the pure water trickling through the "Green Dragon Bamboo Aqueduct" did nothing to dispel the suffocating dread choking the settlement.
 
@@ -16,7 +16,7 @@ Kuran sketched an attack diagram into the hard-packed dirt floor with a twig, ge
 
 "Clan Cliff Deer has only eight spearmen fit to bear weapons... Count me, Elya, and you, we stand barely eleven defenders in all."
 
-"If one hundred cannibals charge the gorge... No matter how sturdy the palisade, their human wave will climb over their own dead and butcher us all."
+"If twenty-five cannibals charge the gorge... With barely eight defenders, they could still overwhelm our line through sheer weight of numbers."
 
 Shaman Moka added with trembling dread, pointing a withered finger toward the towering cliffs: "The women, children, and elders must retreat into the Secret Cliff Sanctuary."
 
@@ -50,7 +50,7 @@ Under ordinary conditions, prehistoric hunters received scant sodium from raw an
 
 Fragrant smoke from dried pine twigs and oak bark cured the meat to dry perfection, filling the crisp morning air with a savory aroma—an enduring war vault had been secured.
 
-Next, Thame confronted their deadliest tactical dilemma: stopping a hundred-man human wave at the four-meter chokepoint.
+Next, Thame confronted their deadliest tactical dilemma: stopping a charge of twenty to twenty-five warriors at the four-meter chokepoint.
 
 He knew all too well that his precious Smith & Wesson .38 revolver ammunition, conserved strictly at 43 rounds, could not be squandered recklessly.
 
@@ -120,7 +120,7 @@ The tire tread bore scarcely a scratch; Kuran felt no shock transmitted through 
 
 "Miraculous... Its hide is tougher and more impenetrable than the armor of a giant woolly rhino!" Kuran gasped in awe, his gaze filled with profound reverence.
 
-The Cliff Deer hunters erupted into thunderous cheers, hailing the tire armor as an impenetrable blessing that banished their fear of the hundred spears.
+The Cliff Deer hunters erupted into thunderous cheers, hailing the tire armor as an impenetrable blessing that banished their fear of the enemy spears.
 
 Thame handed the second Super Soaker blaster to Kuran, drilling him on pumping the pressure handle and sighting along the barrel, while placing two buckets of fresh water behind the stone wall for refilling and emergency eye-washing.
 

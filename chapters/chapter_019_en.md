@@ -142,13 +142,13 @@ The scene magnified twelve times through the emerald lens crushed their burgeoni
 
 Sprawled across the vast valley bowl below lay the sprawling war camp of the **Beast-Fang Cannibal Clan**!
 
-Over a hundred hulking barbarian warriors were daubing their faces in fresh blood, hoisting copper-tipped spears bound with bright yellow nylon cable ties.
+Over twenty hulking barbarian warriors were daubing their faces in fresh blood, hoisting copper-tipped spears bound with bright yellow nylon cable ties.
 
 At the ceremonial clearing, massive timber totems stood ringed with animal skulls, while roaring sacrificial bonfires billowed black smoke into the sky.
 
 And most critically... a monstrous warlord clad in beast hides was barking orders, directing battle lines to assemble battering logs and tar torches.
 
-They were preparing to march their hundred-spear host to obliterate Fortress Alpha within forty-eight hours!
+They were preparing to march their warband of twenty to twenty-five spears to obliterate Fortress Alpha within forty-eight hours!
 
 Two devastating truths stood laid bare: the gateway home was about to open... but Fortress Alpha and the people who trusted Thame were about to be massacred!
 

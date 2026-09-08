@@ -1,6 +1,6 @@
 # Chapter 15: The Chokepoint Defense and The Battle Refugees
 
-The guttural blare of prehistoric war horns echoed across the limestone valley, churning clouds of gray dust behind the southern ridge three kilometers away.
+The guttural blare of prehistoric war horns echoed across the limestone valley on the afternoon of the eleventh day, churning clouds of gray dust behind the southern ridge three kilometers away.
 
 Thame stood resolute atop the cab of the Hino 500 Victor ten-wheeler, right hand clutching the titanium whistle, his gaze steady through the monocular lens.
 
@@ -150,11 +150,11 @@ The treated refugees were profoundly grateful; they intended to rest overnight a
 
 Elya climbed down from the lookout crag, delivering fresh frontline reconnaissance to Thame and Kuran.
 
-The scouts reported that Warlord Grak's colossal hundred-spear host had been pinned down by a violent polar blizzard in the southern passes; having learned that their thirty shock skirmishers were decimated and blinded by venom fire, Grak had halted their advance to regroup, buying Fortress Alpha a critical window of two to three days to fortify and prepare.
+The scouts reported that Warlord Grak's warband of twenty to twenty-five spears had been pinned down by a violent polar blizzard in the southern passes; having learned that their vanguard of eight to ten skirmishers was decimated and blinded by venom fire, Grak had halted their advance to regroup, buying Fortress Alpha a critical window of two to three days to fortify and prepare.
 
-Thame gazed at the container packed with over three thousand five hundred boxes, realizing that during this precious ceasefire, he had to urgently construct a sustainable power grid and assemble decisive weapons.
+Thame gazed at the container, his thoughts drifting to the two badly injured who could not travel. Their wounds needed far more than saline wash and gauze strips.
 
-For now, the absolute priority was upgrading defensive fortifications, preserving lives, and preparing weapons for the colossal clash looming ahead.
+For now, the absolute priority was caring for the wounded, keeping everyone alive, and bracing against the Younger Dryas storm growing more violent with every passing hour.
 
 Gleaming flint spearheads and steel-reinforced radial tire plates shimmered faintly beneath the pale crescent moon.
 
@@ -168,4 +168,4 @@ Warm fires crackled as the camp and sheltering refugees shared smoked meat toget
 
 Every eye shone with newfound hope, watching light pierce the primeval gloom of the valley ten thousand years in the past.
 
-Fortress Alpha had weathered the ferocious onslaught, transformed into an emergency sanctuary and fortified outpost armed with an indexed armory and peak combat readiness!
+Fortress Alpha had survived its first battle. But the Younger Dryas storm was intensifying, and faint howls drifting from the dark pine line made clear that the night still held something more to face.

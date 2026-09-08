@@ -1,6 +1,6 @@
 # Chapter 13: The Chokepoint Ambush and the Barbed Wire Trap
 
-The midnight silence of the horseshoe limestone amphitheater was wrapped in a biting 5°C wind.
+The midnight silence of the tenth day in the horseshoe limestone amphitheater was wrapped in a biting 5°C wind.
 
 A fragile glaze of hoarfrost began to crystalize over the ten-wheeler's windshield and dry grass around the camp.
 
@@ -154,7 +154,7 @@ Then, in a terrifying collision of guttural clicks and clumsy English consonants
 
 A modern Western name, enunciated from the jagged teeth of an Ice Age cannibal ten thousand years in the past!
 
-The scout raved that Warlord Kraak and the Thunder God Victor were marching with a hundred spears to wipe Fortress Alpha off the earth.
+The scout raved that Warlord Kraak was marching with twenty-five spears to wipe Fortress Alpha off the earth.
 
 Thame scrambled atop the truck's cab, raising his smartphone to catch the flickering one-bar 2G signal.
 
@@ -164,10 +164,10 @@ Responses from `@OSINT_Watchdog` and `@Tactical_Recon` pinged back within second
 
 `@OSINT_Watchdog`: *`[CODE RED ALERT] Authentic 9mm brass! And cross-referencing news reports: an 'Armored Special Prison Transport' carrying an ex-mercenary convict named Victor vanished on that exact mountain highway!`*
 
-`@Tactical_Recon`: *`[TACTICAL WARNING] Cliff Deer only has ten warriors. If a hundred cannibals charge the gate, you'll be buried under a human wave! You need asymmetric crowd control and impenetrable body armor immediately!`*
+`@Tactical_Recon`: *`[TACTICAL WARNING] Cliff Deer only has ten warriors. If twenty to twenty-five cannibals charge the gorge without defenses, you'll be hard-pressed to hold! You need asymmetric crowd control and impenetrable body armor immediately!`*
 
 Thame lowered the phone, gazing out past the illumination into the pitch-black southern ridges.
 
-The preparation clock had run out; one hundred enemy spears were marching through the gorge,
+There was no telling when the Demon Fang advance guard would reach the gorge; the twenty-five-spear warband was still massing to the south.
 
-And tomorrow's dawn would mark the beginning of an existential war for human survival!
+Thame had to build his defenses and have them ready before that first wave arrived.
