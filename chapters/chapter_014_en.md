@@ -22,37 +22,17 @@ Shaman Moka added with trembling dread, pointing a withered finger toward the to
 
 Elya sat silently honing the edges of her flint arrowheads with the diamond sharpening stone, the obsidian tips flashing in the firelight as her dark eyes burned with deadly resolve.
 
-Thame nodded with steady, calculated composure. In the annals of military history, a ten-to-one numerical disadvantage was sheer suicide in any direct frontal clash.
+Thame nodded with steady, calculated composure. Even a two-to-one numerical disadvantage against frenzied cannibal raiders was sheer suicide in a direct, open clash.
 
-"If we match brute force with brute force, we are completely doomed," Thame reasoned methodically to himself.
+"If we match brute force with brute force, we won't survive," Thame thought calmly.
 
-"We must fight an asymmetric war, wielding twenty-first-century equipment that these stone-age warriors cannot even comprehend."
+"Outnumbered like this, an open clash is pure madness... We have to bottleneck them so they can only come one by one, and turn our modern gear into an overwhelming unfair advantage."
 
-Thame stood up and signaled Kuran to follow him directly to the rear of the cargo container.
+Thame stood up immediately, signaling Kuran to follow him to the rear of the cargo container with an urgent, resolute look.
 
-The first critical priority was absolute food security; once under siege, hunting parties would be unable to leave the sanctuary of the perimeter.
+"Forget everything else for now!" Thame gestured sharply. "Our first and most urgent life-or-death priority is crafting weapons and armor to halt twenty-some warriors at the four-meter chokepoint. If the gate falls, nothing else matters!"
 
-Thame retrieved a heavy corrugated carton marked with tracking code `#TH-631029`, weighing 11.5 kilograms, and placed it upon the workbench.
-
-The shipping waybill indicated a bulk order from a renowned wholesale meat-curing and food preservation depot in northern Thailand.
-
-Slicing through the reinforced packing tape with his pocket knife, the contents were revealed in pristine condition:
-
-**A 10-kilogram sack of coarse pure sea salt, 50 vacuum-seal food preservation pouches, and 500 grams of coarse cracked black pepper.**
-
-Thame handed the salt and black pepper to Kuran, instructing the clan's women to construct a specialized "limestone smokehouse" behind the longhouses.
-
-Over sixty kilograms of dire wolf and Irish elk venison were sliced into thin, uniform strips and thoroughly coated with pure sea salt and black pepper.
-
-The white salt crystals rapidly extracted intracellular moisture, inhibiting bacterial spoilage while replenishing vital sodium chloride to ward off muscle cramps among the warriors.
-
-Under ordinary conditions, prehistoric hunters received scant sodium from raw animal blood; pure marine salt provided a massive restorative surge to their physical endurance.
-
-Fragrant smoke from dried pine twigs and oak bark cured the meat to dry perfection, filling the crisp morning air with a savory aroma—an enduring war vault had been secured.
-
-Next, Thame confronted their deadliest tactical dilemma: stopping a charge of twenty-some warriors at the four-meter chokepoint.
-
-He knew all too well that his precious Smith & Wesson .38 revolver ammunition, conserved strictly at 43 rounds, could not be squandered recklessly.
+He knew all too well that his precious Smith & Wesson .38 revolver ammunition, conserved strictly at 43 rounds, could not be squandered recklessly. That was his ultimate, irrevocable trump card.
 
 Thame scanned deep into the dim cargo container, where thousands of assorted parcels were stacked haphazardly from floor to ceiling. Clambering inside, he spent several minutes playing his headlamp over scuffed shipping labels.
 
@@ -127,6 +107,28 @@ Thame handed the second Super Soaker blaster to Kuran, drilling him on pumping t
 For maximum safety against secondary splashback, Thame distributed dampened cotton cloth strips for the frontline hunters to wear as particulate masks and donned clear impact goggles from the toolbox.
 
 Most importantly, to protect the gunners from returning javelins that primitive hunters could cast across ten meters, Thame ordered everyone to stay crouched low behind the heavy limestone barricade, protruding only the plastic muzzle tips through narrow vertical firing loopholes. He assigned rubber-armored warriors to hold timber shields overhead as top cover, instructing Kuran to unleash the scalding red jet stream precisely when the invaders bottlenecked inside the four-meter canyon throat—where the press of bodies would prevent them from cocking their throwing arms—blinding their vanguard before a single spear could take flight!
+
+With their frontline armaments and chokepoint defenses firmly established, Thame turned to address the next critical necessity: food security and emergency rations for those retreating to the sanctuary.
+
+"The Secret Cliff Sanctuary is high and steep," Thame explained to Moka and Kuran. "If we are pinned down in a protracted siege or you must remain hidden for days, no one will be able to forage down below. Furthermore, lighting smoky cookfires in a cave would choke everyone and give away your location. We must prepare dry, long-lasting provisions that are ready to eat immediately."
+
+Thame returned to the trailer and retrieved a heavy corrugated carton marked with tracking code `#TH-631029`, weighing 11.5 kilograms, placing it upon the workbench.
+
+The shipping waybill indicated a bulk order from a renowned wholesale meat-curing and food preservation depot in northern Thailand.
+
+Slicing through the reinforced packing tape with his pocket knife, the contents were revealed in pristine condition:
+
+**A 10-kilogram sack of coarse pure sea salt, 50 vacuum-seal food preservation pouches, and 500 grams of coarse cracked black pepper.**
+
+Thame handed the salt and black pepper to Moka and the clan's women, directing them to stoke the fires in the "limestone smokehouse" behind the longhouses with maximum urgency.
+
+Over sixty kilograms of dire wolf and Irish elk venison were sliced into thin, uniform strips and thoroughly coated with pure sea salt and black pepper.
+
+The white salt crystals rapidly extracted intracellular moisture, inhibiting bacterial spoilage while replenishing vital sodium chloride to ward off muscle cramps among both the warriors and evacuees.
+
+Under ordinary conditions, prehistoric humans received scant sodium from raw animal blood; pure marine salt provided a massive restorative surge to their physical endurance.
+
+Fragrant smoke from dried pine twigs and oak bark cured the meat to dry perfection, filling the crisp morning air with a savory aroma. Sealed into rawhide pouches and vacuum bags, the durable emergency rations were distributed to the evacuees to carry up the cliff trail.
 
 Moka began escorting little Tara, the women, and the elders up the cliff trail toward the Secret Cliff Sanctuary with water gourds and smoked meat.
 
