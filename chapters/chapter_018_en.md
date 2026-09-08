@@ -138,15 +138,15 @@ Thame clasped her hand, sharing steady warmth as they nestled side by side withi
 
 The subzero blizzard raged across the jagged peaks all night, yet within their insulated double-wall tent, both survived unharmed and completely insulated from peril.
 
-The distant, low snores of the hibernating cave bear behind the barrier of Sichuan spice faded into harmless background noise.
+Yet vigilance could never be abandoned; Thame laid his spanned crossbow and .38 revolver beside his sleeping bag, primed to draw within a fraction of a second.
 
-Thame pulled out his Rite in the Rain waterproof notebook to log coordinates and temperature readings under his headlamp beam.
+The deep, rhythmic snores of the cave bear echoing beyond the rock barrier served as a vital acoustic monitor that both listened for through the darkness.
 
-He noted the thermal conductivity coefficients of the bubble wrap, which had definitively proven itself a life-saving miracle under arctic stress.
+As long as the slow cadence persisted, the Sichuan chili wall and deep torpor held it at bay; if that breathing ever faltered or went silent, lethal danger was instant.
 
-Elya rested her head upon his shoulder, her even, warm breaths against his neck signaling her deepest, most restful slumber in weeks.
+Elya leaned against his shoulder, her eyes closed in light hunter's slumber while her ears remained keenly tuned to every micro-vibration in the rock.
 
-A profound bond solidified between them in this world stripped of electricity, skyscrapers, and modern human civilization.
+A profound bond formed between them amidst this knife-edge survival, bound together by mutual trust in a prehistoric wilderness where death was never more than a breath away.
 
 At last, golden morning light filtered through the rocky cleft at the entrance, signaling that the polar blizzard had broken.
 
