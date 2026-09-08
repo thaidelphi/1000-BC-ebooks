@@ -82,19 +82,19 @@ Beneath the overhang, the ground was bone-dry and carpeted with a thick bedding 
 
 As primordial night descended, an eerie, profound silence blanketed the wilderness, punctuated only by the distant, haunting howls of unseen carnivores drifting on the mountain breeze.
 
-Thame reached for his magnesium rod and ferro striker, but Elya offered a faint, knowing smile and knelt beside a mound of dry kindling.
+Thame drew out his magnesium firestarter rod and ferro striker from his pack, while Elya knelt beside a pile of dry pine boughs beneath the limestone overhang.
 
-Setting her thermal archery gloves aside so her bare fingertips could sense the heat, she took a small primitive wooden bow drill and a hardwood spindle, spinning the shaft against a dry hearth board with practiced, astonishing speed.
+The huntress knew all too well that in subzero weather plunging to minus eight degrees, coaxing friction fire from frozen wood was virtually impossible. Drawing her new 440C stainless bushcraft knife, she shaved the resin-saturated core of an ancient pine stump, piling paper-thin translucent fatwood curls onto a strip of dry bark to create prime combustible tinder.
 
-In less than two minutes, a wisp of fragrant white smoke curled upward; Elya blew gently into a nest of dry tinder until a bright orange flame blossomed into life.
+Thame knelt close, positioning the magnesium rod directly over the resin curls and striking the steel scraper down firmly; a brilliant shower of three-thousand-degree white sparks cascaded onto the fatwood, instantly igniting into bright orange flames as Elya gently coaxed the tender fire into the dry pine twigs.
 
-Thame watched in genuine admiration; prehistoric humans did not always require the modern magic of a jet lighter—theirs was the enduring art of true survival.
+Elya locked eyes with Thame, her gaze brimming with deep reverence for his miraculous spark, while Thame marveled at her primal forestry wisdom; the seamless union of prehistoric nature and modern survival science had conjured a roaring sanctuary in seconds.
 
-The campfire crackled robustly, casting radiant heat that banished the biting cold from the shelter of the overhang.
+The roaring blaze surged, casting radiant warmth that drove the bitter alpine chill from the limestone shelter.
 
-Thame unpacked the titanium mess kit, filled it with pristine creek water, and set it upon the flat stones flanking the hearth.
+Drawing out his titanium nesting pot, Thame scooped pristine mountain water and set it over smooth river stones flanking the campfire.
 
-He diced chunks of smoked jerky into the simmering pot, dropped in half a cube of concentrated beef bouillon, and sprinkled a pinch of sea salt, while Elya deftly used her new 440C stainless steel knife to feather dry pine kindling for the fire—its razor-sharp edge slicing through the dense wood like butter, drawing a nod of fierce appreciation from the huntress.
+He diced smoked venison jerky into the pot, dropping in half a condensed bouillon cube and a pinch of sea salt, while Elya used her 440C stainless knife to notch and slice dense fuel branches for the hearth, smiling as the razor-sharp steel severed stubborn pine knotwood like butter.
 
 The rich, savory aroma of hot meat stew filled the rock hollow, making their mouths water in the bitter cold.
 
