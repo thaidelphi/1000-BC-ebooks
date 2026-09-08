@@ -134,10 +134,6 @@ Thame broke a high-calorie chocolate bar in half and handed her a portion; quick
 
 Elya savored the rich chocolate, a radiant smile gracing her weary features.
 
-As the sweetness faded, Elya drew fresh pine chewing twigs from her pouch, their ends frayed into soft fibrous brushes. She handed one to Thame and began polishing her teeth, the aromatic conifer resin naturally cleansing away sugars and fighting bacteria with ice-age wisdom.
-
-Thame smiled, rinsing with a sip of warm salted water before using the natural twig brush to clean his teeth. In negative fifteen degrees, bathing with water was life-threatening; a quick wipe with a dry cloth was all they needed to stay clean before sliding back into their lofts.
-
 Thame clasped her hand, sharing steady warmth as they nestled side by side within the down cocoon, listening to the muffled roar of the blizzard beyond the stone walls.
 
 The subzero blizzard raged across the jagged peaks all night, yet within their insulated double-wall tent, both survived unharmed and completely insulated from peril.
@@ -154,7 +150,9 @@ A profound bond solidified between them in this world stripped of electricity, s
 
 At last, golden morning light filtered through the rocky cleft at the entrance, signaling that the polar blizzard had broken.
 
-They awoke to pack their down bags, roll up the dome tent and bubble wrap, and stow their gear neatly into their packs.
+They awoke to greet the morning. Thame rinsed his mouth with a sip of warm salted water, while Elya drew fresh pine twigs from her pouch to chew and brush her teeth, the fragrant resin reviving their senses and cleansing her mouth with ten-thousand-year-old wisdom.
+
+After refreshing their faces with a dry wipe, they worked together to pack their down bags, roll up the dome tent and bubble wrap, and stow their gear neatly into their packs.
 
 Thame and Elya crawled through the narrow fissure to inhale the crisp, crystalline morning air.
 
