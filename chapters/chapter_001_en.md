@@ -94,9 +94,11 @@ No asphalt highway. No utility poles. No debris of any other vehicle, nor any tr
 
 In the fading gloom of twilight, surrounding him was a vast open expanse of grassland punctuated by jagged limestone boulders at the floor of the valley.
 
+The tactical LED beam swept across a monolithic, pale gray limestone cliff rising sheer thirty to forty meters into the dusky sky directly behind the truck's rear container doors to the north—an imposing natural rampart blocking the biting sub-polar winds. To the east and west, towering limestone precipices curved outward like the wings of a colosseum, enclosing this sixty-by-eighty-meter karst sinkhole basin with only a single opening to the south: a narrow, shadowy chokepoint between vertical cliffs that led out into the darkening wilderness.
+
 Further out lay a towering forest of ancient two-needle pines (*Pinus kesiya*) and primeval deciduous hardwoods rising straight into the sky. Massive limestone peaks formed a natural fortress, encircling the valley on all sides.
 
-A dense sea of white mist was already flooding the ravines. The last amber glow on the horizon faded, and the first solitary star flickered above as the damp chill of the mountain forest rolled in.
+A dense sea of white mist was already flooding the ravines. The last amber glow on the horizon faded, and the temperature plunged rapidly toward 6°C to 8°C. The piercing mountain chill carried the raw scent of wild pine resin and damp prehistoric loam untouched by human hands. The first solitary star flickered above as total darkness settled over the wild basin.
 
 Thame crouched down, directing the beam beneath the chassis. The extent of mechanical destruction was staggering:
 
