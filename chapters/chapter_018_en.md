@@ -86,21 +86,21 @@ They operated with practiced, silent efficiency, never allowing stone to strike 
 
 With the apex predator contained, the next deadly threat closing in was the fifteen-below-zero chill (-15°C) within the stone vault.
 
-The air was so cold that moisture condensed into frost along their eyelashes, and the stone floor sapped body heat through conduction.
+The air inside was so frigid that their breath condensed into frost along their eyelashes, and every boulder was slick as ice. Crucially, **they could not light a campfire**—the trapped smoke would suffocate them and awaken the cave bear. Lingering on the frozen stone floor would drain their core body heat through conduction until death set in within an hour.
 
-Thame turned to the large survival parcel he had hauled from Fortress Alpha.
+On their first night under the open rock overhang, they had relied on a crackling campfire, keeping the tent packed to avoid drifting sparks melting the nylon fly. But inside this pitch-black, fireless cavern, the time had arrived to deploy their dedicated arctic survival gear.
 
-Label `#TH-492019`—a long, reinforced carton bearing logos of high-altitude mountaineering equipment.
+Unbuckling the heavy-duty compression straps of his sixty-five-liter pack, Thame swiftly drew out the expedition shelter and insulation gear he had inspected from parcel `#TH-492019` and packed before leaving Fortress Alpha.
 
-Using his 1095 carbon steel knife, Thame sliced open the reinforced tape in the dim glare.
+He had discarded the bulky cardboard carton back at base camp, compressing the contents tightly into waterproof stuff sacks so his pack remained streamlined against alpine gale-force winds.
 
-Revealed within was the ultimate arctic survival system:
+Unfurling from the waterproof compression bags came the ultimate arctic life-support system:
 
-Five industrial-grade rolls of heavy-duty bubble wrap, a 4-season geodesic expedition dome tent, two subzero goose-down sleeping bags rated for -20°C, and four emergency space blankets.
+A compact roll of heavy-duty thermal foil bubble wrap insulation, a 4-season geodesic expedition dome tent with aluminum poles and heat-reflective rainfly, two subzero goose-down sleeping bags rated for -20°C, and four emergency space blankets.
 
-"An absolute triumph of thermal insulation!" Thame's eyes shone with renewed hope.
+"The triumph of thermal insulation engineering—this will keep us alive without a single spark of fire!" Thame whispered with renewed hope.
 
-Unrolling the heavy bubble wrap, he laid down three overlapping layers across the icy, jagged rock floor.
+Wasting no time, he unrolled the thermal bubble insulation, spreading three overlapping layers across the icy, jagged rock floor.
 
 Millions of trapped air cells formed a continuous thermal barrier, completely halting conductive heat loss from the stone substrate.
 
