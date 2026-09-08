@@ -2,7 +2,7 @@
 
 The guttural blare of prehistoric war horns echoed across the limestone valley on the afternoon of the eleventh day, churning clouds of gray dust behind the southern ridge three kilometers away.
 
-Thame stood resolute atop the cab of the Hino 500 ten-wheeler, right hand clutching the titanium whistle, his gaze steady through the monocular lens.
+Thame stood resolute atop the cab of the Hino 500 ten-wheeler, both hands steadying the monocular to his eye as he scanned the ridge, the second pressurized water blaster primed and ready by his side.
 
 The silhouettes of eight to ten hulking savage skirmishers crested the dirt ridge, donning beasts' skulls, their faces and chests daubed crimson with fresh animal blood.
 
