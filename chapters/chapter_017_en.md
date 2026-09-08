@@ -68,11 +68,11 @@ Thame hauled the cord taut, anchoring the near end around an immovable granite b
 
 Stepping into the raging torrent, the excruciating chill pierced his trekking trousers, causing his calf muscles to violently spasm.
 
-Gritting his teeth, Thame locked both hands around the paracord line, using upper-body strength and his trekking pole to brace against the churning current until he hauled himself onto the opposite bank.
+Gritting his teeth, Thame locked both hands around the paracord line, using upper-body strength and his trekking pole to brace against the churning current until he hauled himself onto the opposite bank, where he quickly unwrapped the weighted stone and tied the cord firmly around the base of the giant pine.
 
-He signaled back to Elya; grasping the paracord, she waded through with resolute courage, even as her lips turned a pale, cyanotic blue from the icy shock.
+He signaled back to Elya; untying the near end of the paracord from the granite boulder, she looped the trailing end around her waist and grasped the tensioned guideline, wading through with resolute courage even as her lips turned a pale, cyanotic blue from the icy shock.
 
-Once both were safely ashore, Thame quickly pulled a clean, dry microfiber towel from his pack to dry her shivering legs, immediately helping her into spare merino wool socks to ward off frostbite. Unclipping the stainless vacuum flask from her sling bag, Elya took a deep sip of the steaming pine needle tea prepared that morning; waves of radiant heat surged through her chest, driving off the inner chill as a bright, resilient smile returned to her face.
+Once both were safely ashore, Thame swiftly untied the paracord from the pine, coiling all fifty meters neatly back into his 65-liter pack to leave zero trace for trackers to follow. He then pulled a clean, dry microfiber towel from his pack to dry her shivering legs, immediately helping her into spare merino wool socks to ward off frostbite. Unclipping the stainless vacuum flask from her sling bag, Elya took a deep sip of the steaming pine needle tea prepared that morning; waves of radiant heat surged through her chest, driving off the inner chill as a bright, resilient smile returned to her face.
 
 Their trek through the prehistoric taiga continued throughout the afternoon until the sun began sinking behind the western crags, turning the sky deep twilight purple as the mercury plunged to minus eight degrees Celsius (-8°C).
 
