@@ -94,19 +94,17 @@ Unbuckling the heavy-duty compression straps of his sixty-five-liter pack, Thame
 
 Unfurling from the waterproof compression bags came the ultimate arctic life-support system:
 
-A compact roll of heavy-duty thermal foil bubble wrap insulation, a 4-season geodesic expedition dome tent with aluminum poles and heat-reflective rainfly, two subzero goose-down sleeping bags rated for -20°C, and four emergency space blankets.
+A compact roll of heavy-duty thermal foil-bubble ground insulation, a 4-season geodesic expedition dome tent with aluminum poles and heat-reflective rainfly, two subzero goose-down sleeping bags rated for -20°C, and four emergency space blankets.
 
 "The triumph of thermal insulation engineering—this will keep us alive without a single spark of fire!" Thame whispered with renewed hope.
 
-Wasting no time, he unrolled the thermal bubble insulation, spreading three overlapping layers across the icy, jagged rock floor.
+Wasting no time, he unrolled the compact foil-bubble sheet from beneath his pack, laying it across the icy, jagged rock floor as a thermal ground footprint.
 
-Millions of trapped air cells formed a continuous thermal barrier, completely halting conductive heat loss from the stone substrate.
+Millions of sealed air cells backed with radiant reflective foil formed an impermeable thermal break, completely halting conductive heat loss into the frozen stone substrate.
 
-Next, using heavy-duty duct tape, Thame anchored sheets of bubble wrap along the surrounding cavern walls, creating an insulated thermal cell around the campsite.
+Inside a windless cave, the double-walled 4-season geodesic tent would effortlessly trap their body heat as an insulated micro-climate, provided the frozen ground was neutralized.
 
-The reflective cellular walls trapped stagnant air while reflecting ambient radiant heat.
-
-Elya stared at the translucent bubble film in wide-eyed fascination, touching the smooth cushions until her thumb accidentally popped a cell with a sharp *crack!*
+Elya helped smooth down the reflective sheet in wide-eyed wonder, her fingers curiously tracing the translucent bubbles until she accidentally squeezed one with a sharp *crack!*
 
 The miniature detonation made the huntress leap back, tilting her head in comical bewilderment as Thame offered a reassuring smile and motioned for her to help erect the tent.
 
