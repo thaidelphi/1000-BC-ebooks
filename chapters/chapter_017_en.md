@@ -12,7 +12,7 @@ Thame's Vibram-lugged trekking boots bit securely into slippery scree and glazed
 
 The 65-liter tactical expedition backpack riding on his back weighed around eighteen kilograms, packed with smoked jerky, a titanium mess kit, a vacuum flask, a down sleeping bag, 550 paracord, and trauma medical supplies—with the compound hunting crossbow resting ready across his chest for an instant shot.
 
-Ahead of him, Elya stalked forward with the fluid grace of an apex feline, carrying her recurve bow in her left hand and the quiver of armor-piercing carbon arrows across her shoulders.
+Ahead of him, Elya stalked forward with the fluid grace of an apex feline. The stainless steel crampons strapped to her boots bit crisply into glazed ice and loose scree with absolute confidence, while the slim-fit down jacket beneath her deerskin tunic sealed in body heat. With thermal archery gloves keeping her fingers warm and battle-ready, she gripped her recurve bow in her left hand, her quiver of carbon armor-piercing arrows slung over her back, and her new stainless bushcraft knife riding snugly beside her tactical sling pack.
 
 Abruptly, the huntress froze in her tracks, throwing up her right palm in the sharp signal for "Tah!" (Stop!) while dropping low against a moss-covered boulder.
 
@@ -72,7 +72,7 @@ Gritting his teeth, Thame locked both hands around the paracord line, using uppe
 
 He signaled back to Elya; grasping the paracord, she waded through with resolute courage, even as her lips turned a pale, cyanotic blue from the icy shock.
 
-Once both were safely ashore, Thame quickly pulled a clean, dry microfiber towel from his pack to dry her shivering legs, immediately helping her into spare merino wool socks to ward off frostbite.
+Once both were safely ashore, Thame quickly pulled a clean, dry microfiber towel from his pack to dry her shivering legs, immediately helping her into spare merino wool socks to ward off frostbite. Unclipping the stainless vacuum flask from her sling bag, Elya took a deep sip of the steaming pine needle tea prepared that morning; waves of radiant heat surged through her chest, driving off the inner chill as a bright, resilient smile returned to her face.
 
 Their trek through the prehistoric taiga continued throughout the afternoon until the sun began sinking behind the western crags, turning the sky deep twilight purple as the mercury plunged to minus eight degrees Celsius (-8°C).
 
@@ -84,7 +84,7 @@ As primordial night descended, an eerie, profound silence blanketed the wilderne
 
 Thame reached for his magnesium rod and ferro striker, but Elya offered a faint, knowing smile and knelt beside a mound of dry kindling.
 
-Taking a small primitive wooden bow drill and a hardwood spindle, she spun the shaft against a dry hearth board with practiced, astonishing speed.
+Setting her thermal archery gloves aside so her bare fingertips could sense the heat, she took a small primitive wooden bow drill and a hardwood spindle, spinning the shaft against a dry hearth board with practiced, astonishing speed.
 
 In less than two minutes, a wisp of fragrant white smoke curled upward; Elya blew gently into a nest of dry tinder until a bright orange flame blossomed into life.
 
@@ -94,7 +94,7 @@ The campfire crackled robustly, casting radiant heat that banished the biting co
 
 Thame unpacked the titanium mess kit, filled it with pristine creek water, and set it upon the flat stones flanking the hearth.
 
-He diced chunks of smoked jerky into the simmering pot, dropped in half a cube of concentrated beef bouillon, and sprinkled a pinch of sea salt.
+He diced chunks of smoked jerky into the simmering pot, dropped in half a cube of concentrated beef bouillon, and sprinkled a pinch of sea salt, while Elya deftly used her new 440C stainless steel knife to feather dry pine kindling for the fire—its razor-sharp edge slicing through the dense wood like butter, drawing a nod of fierce appreciation from the huntress.
 
 The rich, savory aroma of hot meat stew filled the rock hollow, making their mouths water in the bitter cold.
 

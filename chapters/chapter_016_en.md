@@ -138,21 +138,23 @@ With polar blizzards completely sealing the southern passes and freezing Grak's 
 
 Meanwhile, the four-meter chokepoint at Fortress Alpha stood virtually impregnable under Kuran's command, fully fortified by hydro-floodlights, barbed wire, and radial-armored spearmen.
 
-Stepping into the container, Thame swept his flashlight across the cargo racks, searching for the expedition crate whose shipping manifest he had noted the previous day.
+Stepping into the container, Thame swept his flashlight across the cargo racks, searching for the expedition crate whose shipping manifest he had noted the previous day. Venturing into the subzero glacial corridor—steep, frozen, and treacherous—he refused to let Elya face the elements empty-handed in thin animal furs and smooth-soled moccasins. She was his lead tracker, master archer, and a trusted comrade who had bled beside him; equipping her as a fully prepared equal was the bedrock of survival.
 
-His beam locked onto the heavy corrugated box `#TH-882194` resting on the middle shelf, addressed to the "Highland Geological Survey & Forestry Ranger Unit." The label on the carton clearly marked European Size 42 leather mountaineering boots with Vibram soles—matching his exact shoe size.
+His beam locked onto the heavy corrugated box `#TH-882194` resting on the middle shelf, addressed to the "Highland Geological Survey & Forestry Ranger Unit." Inside lay European Size 42 leather mountaineering boots with Vibram soles matching his exact size, a 65-liter waterproof Cordura tactical backpack with an aluminum load-distributing frame, a military magnesium lensatic compass, folding aluminum trekking poles, and a set of **heavy-duty stainless steel traction cleats (crampons)** with thick silicone elastomer bands designed to strap securely over Elya’s primitive leather boots, instantly converting them into slip-proof glacial footwear.
 
-Slicing through the reinforced tape, his blade revealed rugged field equipment: a 65-liter olive-drab tactical backpack made of waterproof Cordura fabric with an ergonomic load-bearing aluminum frame, a military lensatic compass housed in a magnesium casing with phosphorescent dial markings, and the heavy leather Vibram boots designed for ice and rocky scree.
+On the adjacent shelf, Thame opened crate `#TH-559102`, addressed to the "Highland Forest Ranger & Archery Sports Association." It contained a matte-black **Tactical Compound Hunting Crossbow (175 lbs)** with six carbon bolts for himself, a rigid tube housing **twelve armor-piercing carbon arrows** for Elya, **thermal archery gloves** lined with fleece and reinforced with three-finger genuine leather to prevent frostbite and finger stiffness, and a razor-sharp **440C stainless steel bushcraft fixed-blade knife** with a locking Kydex belt sheath.
 
-Right beside it on the shelf, Thame noticed an elongated, heavy-duty carton `#TH-559102` addressed to the "Highland Forest Ranger & Archery Sports Association." Slicing through the reinforced tape revealed a lethal suite of long-range hunting gear: a matte-black **Tactical Compound Hunting Crossbow (175 lbs draw weight)** fitted with twin high-energy cams, a metal foot stirrup, a compact Red Dot optic, and a side-mount quiver containing **six carbon crossbow bolts** for himself—alongside a rigid storage tube packed with **twelve arrow-straight carbon hunting arrows** tipped with hardened steel broadheads for Elya's bow!
+Furthermore, Thame unboxed parcel `#TH-621048` from the apparel stacks, labeled for a "Women's Alpine Mountaineering Club." He pulled out a charcoal-gray **Women's Ultralight Down Jacket**—a slim-fit, highly elastic technical layer engineered to slip under her deerskin tunic, delivering furnace-like thermal core retention without restricting her archery draw motion. Packed beside it were a compact **tactical sling bag** and a **one-liter vacuum-insulated stainless steel thermos** for carrying hot beverages on the trail.
 
-From the camp's supplies, Thame fetched his titanium nesting pot and diamond sharpening stone, packing them securely inside the 65-liter pack alongside smoked jerky rations, a sleeping bag, paracord, and a thermal flask.
+Thame packed his titanium nesting pot, diamond sharpening stone, sleeping bag, paracord, and smoked meat rations into his 65-liter pack, then stepped out of the container with the full suite of gear to outfit the prehistoric huntress.
 
-"Superb... exactly the high-mobility equipment needed to cross the glacier passes and make our return run."
+"For you, Elya... The ice ahead is merciless and steep. You need this protection."
 
-Thame laced up the rigid Vibram boots for steadfast ankle support, handing the tube of twelve carbon arrows to Elya.
+Thame guided Elya into the slim-fit down jacket beneath her deerskin vest. As the zipper slid shut, her amber eyes widened in sheer disbelief; her body heat was sealed instantly against her skin in a warm, weightless cocoon that felt as light as bird feathers, leaving her arms completely free. Thame then helped stretch the stainless steel traction crampons over her leather boots. Stamping her foot against the frost-rimmed bedrock, the steel teeth bit into the frozen surface with a crisp crunch—unyielding and completely skid-free.
 
-Elya traced her calloused fingertips down the arrow-straight, ultralight carbon shafts, her eyes transfixed by the gleaming triangular steel heads. She nocked a shaft against her recurve bow, testing its deadly balance, and nodded fiercely at Thame with a predator's silent resolve.
+Next, Thame fitted her with the thermal archery gloves, fastened the stainless fixed blade to her belt, handed over the twelve carbon arrows, and slung the tactical pack containing her warm tea flask across her shoulder.
+
+Tracing her fingers over the sleek down fabric, the gleaming steel blade, and the arrow-straight carbon shafts, Elya shuddered with a surge of overwhelming emotion and fierce pride. She was not merely a primitive follower trailing behind a supernatural stranger; Thame had equipped and honored her as a respected, equal hunter-warrior. She drew her recurve bowstring, testing the glove's firm, tactile grip, then met Thame’s gaze with burning amber eyes—ready to march to the very ends of the earth.
 
 Meanwhile, Thame inspected the 175-lb compound crossbow, stepping his boot into the foot stirrup to cock the heavy string smoothly into the trigger latch, then securing the carbon bolt quiver to the frame. Slung across his chest, the crossbow provided him with an ultra-precise, silent sniper weapon with rifle-like trigger control—allowing him to eliminate threats from afar without expending his irreplaceable .38 revolver cartridges.
 
@@ -162,17 +164,17 @@ With over three thousand irreplaceable parcels inside the cargo hold and the cab
 
 Thame raised the lensatic compass to sight his bearing toward the northwest, where frozen jagged peaks soared defiantly into the subzero wind.
 
-Spreading the cardboard tactical map, Thame pointed to the southern pass marked with an X for the blizzard, then tapped the western pass and gestured to himself and Elya, indicating they were heading out to scout and retrieve medicine.
+Spreading the cardboard tactical map, Thame pointed to the southern pass marked with an X for the blizzard, then tapped the western pass and gestured to himself and Elya, explaining the tactical necessity of a two-person team: a forty-eight-hour weather window before the southern storm opened the pass to enemy hosts demanded maximum speed and ghostlike stealth, leaving almost no tracks for Beast Fang scouts to ambush. Crucially, Kuran was required to command the radial-armored spearmen to hold the fortress perimeter, safeguarding the refugees and wounded at Fortress Alpha against sudden flank attacks.
 
 He gripped Kuran's shoulder firmly, pointing toward the barbed wire, the hydro-powered floodlights, and the palisade gate, commanding wordlessly for Kuran to hold the citadel secure.
 
-Kuran hammered his chest in solemn salute. Raising his flint spear toward the chokepoint, the war chief nodded with unshakeable resolve, his guttural roar pledging that Fortress Alpha would remain impregnable.
+Kuran hammered his chest in solemn salute, the stone-age warlord instantly grasping the tactical wisdom of the stealth infiltration. Raising his flint spear toward the chokepoint, the war chief nodded with unshakeable resolve, his guttural roar pledging that Fortress Alpha would remain impregnable.
 
 Hoisting the sixty-five-liter pack, Thame checked his loaded .38 revolver holstered at his hip, the 1095 carbon blade strapped to his thigh, and the compound hunting crossbow resting across his chest, primed for action.
 
 Before crossing the palisade, Thame knelt to inspect the incision on Elya’s thigh once more. Eight full days of antibiotic therapy and thermal spring soaks had healed the wound into a pale-pink scar, free of infection—a testament to the fierce regenerative resilience of prehistoric humans. Yet to prevent muscle strain on the steep glacial ascent, Thame wrapped an elastic compression bandage snugly around her thigh for added joint and muscle support.
 
-Testing her footing against the frost, Elya felt the firm support and looked down at Thame with silent gratitude. Though the subzero bite left the scarred muscle stiff, her amber eyes blazed with predatory resolve. Nodding firmly, she slung her recurve bow and carbon quiver, matching his stride with measured, feline stealth.
+Testing her footing against the frost, the stainless crampons bit deep into the frozen crust while the thermal down and elastic bandage kept her leg muscles warm and loose. Nodding firmly with silent gratitude and predatory resolve, she slung her recurve bow, carbon quiver, stainless knife, and tactical sling bag, matching his stride with measured, feline stealth.
 
 Side by side, they stepped past the timber palisade, vaulting out from Fortress Alpha into the jagged ascent of the western ice corridor on a race against time.
 
