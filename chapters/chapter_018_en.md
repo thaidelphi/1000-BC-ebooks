@@ -90,9 +90,7 @@ The air inside was so frigid that their breath condensed into frost along their 
 
 On their first night under the open rock overhang, they had relied on a crackling campfire, keeping the tent packed to avoid drifting sparks melting the nylon fly. But inside this pitch-black, fireless cavern, the time had arrived to deploy their dedicated arctic survival gear.
 
-Unbuckling the heavy-duty compression straps of his sixty-five-liter pack, Thame swiftly drew out the expedition shelter and insulation gear he had inspected from parcel `#TH-492019` and packed before leaving Fortress Alpha.
-
-He had discarded the bulky cardboard carton back at base camp, compressing the contents tightly into waterproof stuff sacks so his pack remained streamlined against alpine gale-force winds.
+Unbuckling the heavy-duty compression straps of his sixty-five-liter pack, Thame swiftly drew out the expedition shelter and insulation gear he had compressed and packed from Fortress Alpha.
 
 Unfurling from the waterproof compression bags came the ultimate arctic life-support system:
 
