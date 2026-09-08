@@ -10,7 +10,7 @@ They were the shock vanguard of the Beast-Fang cannibal tribe, wielding flint-ti
 
 Their bloodthirsty, hyena-like shrieks shook the frigid air, reverberating off the sheer karst cliffs toward the encampment.
 
-"They're coming! Everyone to their battle stations as planned!" Thame roared through his damp cotton mask, his tone cutting like hardened steel.
+Thame jabbed his arm toward the dust plume on the ridge, then slashed his palm down toward the zigzagging barricade. Watching his movements intently, Kuran and the hunters immediately crouched into their battle stations behind the stone breastwork as drilled that morning.
 
 Kuran and the eight Cliff Deer warriors, clad in thick radial tire cuirasses, crouched motionless behind the zigzagging stone revetments flanking the four-meter-wide bottleneck.
 
@@ -24,13 +24,13 @@ The distance of the charging horde closed at breakneck speed: one kilometer... f
 
 The roar of the Beast-Fangs reverberated like ravenous beasts; seeing only low stone barricades and a narrow defile, they surged forward in a dense pack to trample the camp.
 
-"Kuran... steady! Hold your ground! Wait for my hand signal!" Thame ordered in a low, measured voice.
+Crouching low behind the stone wall, Thame clamped a firm hand onto Kuran's shoulder, locking eyes with the chieftain and giving a slow, resolute shake of his head—a clear signal to hold their ground and wait. Kuran drew a deep breath, nodding curtly as his grip tightened on the blaster.
 
 The attackers funneled into the four-meter chokepoint, packed so tightly their arms could barely swing, flint spearheads clattering against one another.
 
 Fifty meters... thirty meters... twenty meters!
 
-"Ready... FIRE!" Thame slashed his hand down decisively.
+As the enemy crushed into point-blank range, Thame slashed his arm down decisively!
 
 *TWANG! THWACK!*
 
@@ -38,7 +38,7 @@ Elya's arrow plunged from above, piercing clean through the vanguard chieftain's
 
 Razor-sharp galvanized steel barbs sliced deep into bare soles and shins, spilling blood as savages tripped violently over the coiled wire, howling in agony and piling up in the bottleneck.
 
-"Kuran! Drench them with the venom fire!" Thame commanded with a thunderous roar.
+Thame struck Kuran's back in a sharp cue, jabbing his finger directly at the eye-level of the snarled invaders!
 
 Kuran pumped the pressurizing cylinder twice and pulled the trigger on the super soaker!
 
@@ -48,9 +48,7 @@ A crimson high-pressure jet lanced through the air nearly ten meters, whistling 
 
 The hyper-concentrated capsaicin solution from Sichuan peppercorns and habaneros instantly seared into the mucous membranes of their eyes and nasal passages.
 
-"AAARRRGH! My eyes! My eyes are burning out!"
-
-Agonized, blood-curdling shrieks tore through the gorge as savages struck by the pressurized pepper jet dropped their weapons, clawing at eyes that felt branded by white-hot coals.
+Agonized, guttural shrieks tore through the gorge as the savages struck by the boiling pepper jet dropped their weapons, violently clawing at eyes that burned as if branded by red-hot coals.
 
 Blindness and neurotoxic agony threw the vanguard into wild convulsions, trampling their own comrades within the narrow defile.
 
@@ -58,7 +56,7 @@ Crouched behind the opposite parapet, Thame raised the second water cannon, swee
 
 The atomized pepper mist engulfed the ranks, sending warriors attempting to hurl javelins collapsing to their knees in coughing convulsions.
 
-"Invisible demon fire! The iron beast spits blinding flame!" rear ranks screamed in sheer existential dread.
+The rear ranks wailed in raw primal dread, utterly unhinged by the sight of their frontline vanguard writhing blind from invisible venom.
 
 The remaining skirmishers, witnessing their comrades bleeding from their eyes and writhing in agony, ground to a terrified halt, their battle morale shattered.
 
@@ -90,7 +88,7 @@ Though the tire cuirass had protected his torso, a jagged fragment of the shatte
 
 Simultaneously, another young warrior took flying stone shrapnel to the forehead, blood blinding his vision.
 
-"We have to stop the bleeding immediately!" Thame pressed a clean cloth firmly against the wound, ordering warriors to support Kuran into the stone shelter.
+Thame pressed a clean cloth firmly against the wound, nodding sharply to gesture the other hunters to support Kuran into the stone shelter.
 
 Thame scrambled up to the truck cab, retrieving sterile dressings and gauze from the emergency first-aid kit kept beside the driver's seat.
 
