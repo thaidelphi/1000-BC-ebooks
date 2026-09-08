@@ -128,19 +128,19 @@ She taught Thame how to distinguish the chirping of forest crickets, the rustlin
 
 Beneath the primordial stars, the bond between the modern engineer and the stone-age huntress deepened through firelight and shared understanding, bridging the chasm of ten thousand years.
 
-Remembering the compact parcel he had tucked into his pack from Zone Blue before departing Fortress Alpha, Thame retrieved it from his gear.
+Thame reached into the top lid pocket of his sixty-five-liter pack, drawing out the vital reconnaissance tool he had brought along for the trek.
 
-Label code `#TH-102948`—a sturdy, cylindrical cardboard box, reassuringly dense in the hand.
+It was his rubber-armored 12x50 Monocular Telescope—the rugged, IPX7-waterproof optic he had previously used to scan approaching enemy warbands from the ten-wheeler cab at Fortress Alpha.
 
-Using his 1095 carbon steel bushcraft knife, Thame sliced through the packing tape in the dim firelight.
+Housing high-precision 50mm glass optics multi-coated in emerald FMC film, the instrument featured an integrated compass and low-light light-gathering capabilities.
 
-Inside lay a piece of high-precision optical equipment: a 12x50 Monocular Telescope, its multi-coated FMC glass gleaming emerald green in the dark.
+Thame raised the monocular to his eye, sweeping the lens across the sheer limestone ramparts ahead amidst the primordial silence of the night.
 
-Encased in rugged, non-slip black rubber armor, it was IPX7 waterproof and equipped with an integrated lens compass and an emergency mini-LED light.
+Twelve-times magnification pulled towering cliffs and frosted pine crests kilometers away right into razor-sharp focus, its wide aperture drinking in ambient starlight and the pale moon's glow.
 
-Thame raised the optic to his eye, sweeping across the limestone ridge ahead; the twelve-power magnification pulled cliffs and pine crowns miles away into razor-sharp clarity.
+He fine-tuned the focus wheel, carefully charting the icy crevasse paths and glacial ridges they would need to traverse at dawn.
 
-Adjusting the knurled focus ring, the 50mm objective lens captured ambient starlight with remarkable brightness.
+Noticing Elya watching the curious black cylinder with intense, quiet curiosity, Thame smiled and offered the monocular to his huntress partner.
 
 Handing the optic to Elya, she held it to her right eye with hesitant uncertainty at first.
 
