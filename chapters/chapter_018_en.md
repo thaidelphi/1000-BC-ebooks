@@ -148,14 +148,16 @@ Elya leaned against his shoulder, her eyes closed in light hunter's slumber whil
 
 A profound bond formed between them amidst this knife-edge survival, bound together by mutual trust in a prehistoric wilderness where death was never more than a breath away.
 
-At last, golden morning light filtered through the rocky cleft at the entrance, signaling that the polar blizzard had broken.
+At last, golden morning light filtered through the rocky cleft at the entrance, signaling that the polar blizzard had finally broken, leaving only a gentle, freezing breeze in its wake.
 
-They awoke to greet the morning. Thame rinsed his mouth with a sip of warm salted water, while Elya drew fresh pine twigs from her pouch to chew and brush her teeth, the fragrant resin reviving their senses and cleansing her mouth with ten-thousand-year-old wisdom.
+Thame moved deliberately, tapping Elya's shoulder gently to wake her. Before speaking, both remained frozen in absolute silence to listen toward the cavern's depths. The deep, heavy rhythm of the giant cave bear's snores still rumbled steadily from behind the rock barricade, proving that the pungent barrier of Sichuan chili powder and deep torpor had held the six-hundred-kilogram titan asleep all night.
 
-After refreshing their faces with a dry wipe, they worked together to pack their down bags, roll up the dome tent and bubble wrap, and stow their gear neatly into their packs.
+Both exhaled quiet breaths of immense relief. Thame unthreaded his insulated flask to pour a small sip of warm salted water to rinse their mouths, while Elya drew fresh pine twigs from her leather pouch to chew and polish their teeth. The fragrant resin revived their senses and cleansed their palates before they used a dry microfiber cloth to wipe the cold sweat and grime from their faces and necks.
 
-Thame and Elya crawled through the narrow fissure to inhale the crisp, crystalline morning air.
+Breaking camp proceeded with meticulous stealth. They parted the tent zippers millimeter by millimeter to eliminate screeching noise, compressed the down sleeping bags into waterproof dry sacks, folded the aluminum poles without clattering against the rock, and tightly rolled the foil-bubble ground footprint beneath Thame's 65-liter pack.
 
-Stretching out before them was a pristine, snow-draped alpine wonderland of limestone peaks glittering brilliantly beneath the morning sun.
+Thame and Elya cast one final, respectful glance at the stone barrier and chili line, choosing to leave the monarch of the ice cave undisturbed in its prehistoric slumber. Shouldering their heavy packs and gripping their weapons, they crept through the narrow fissure and slipped outside into the open world one by one.
 
-The shadow of death had retreated... and in the mountain pass just ahead, the wreckage of the second iron beast awaited!
+The moment they emerged from the claustrophobic darkness, crisp, biting air at negative six degrees Celsius (-6°C) rushed against their faces, their warm breaths billowing into thick plumes of white vapor. Stretching out before them was a breathtaking panorama of majestic limestone peaks draped in virgin snow, glittering like millions of diamonds beneath the radiant morning sun.
+
+The shadow of death from the polar tempest had passed... Thame raised his 12x50 monocular telescope to glass the western mountain pass ahead; the wreckage of the second iron beast and an urgent life-or-death rescue mission awaited!
