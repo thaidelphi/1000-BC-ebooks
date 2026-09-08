@@ -54,7 +54,7 @@ The technical blueprint aligned seamlessly in Thame's mind; he saved the specs a
 
 Thame summoned Kuran and the young hunters clad in radial tire armor, gathering them beneath the bamboo flume beside the log longhouses.
 
-"Kuran... help me cut seasoned pine into round wheels, and split giant bamboo culms into twenty-four curved drive cups!" Thame instructed, sketching on the dirt.
+Using a pine twig, Thame sketched the circular wooden discs and split bamboo cups into the earth, miming the cutting and assembly steps for Kuran and the hunters.
 
 The tribal hunters could not fathom the silver iron cylinder in Thame's grasp, yet they trusted their miraculous guide with absolute devotion.
 
@@ -114,15 +114,15 @@ Yet relief proved fleeting when Moka approached with a grim face to consult over
 
 Although the camp possessed paracetamol and saline wash, the patient with flint spear fragments buried deep inside swollen muscle urgently required surgical incision and extraction before necrosis set in.
 
-"We have no local anesthesia and no surgical tools..." Thame admitted grimly; cutting into raw muscle without anesthetic would trigger fatal neurogenic shock from sheer agony.
+Thame examined the festering wound and shook his head grimly; without local anesthetics or surgical instruments, incising raw flesh would trigger fatal neurogenic shock. Miming an incision and then a convulsion of pain, Thame shook his head firmly, forbidding Moka from attempting crude cuts.
 
-Right then, the one-eyed elder tending his wounded kin limped forward, pointing toward the northwest glacier pass.
+Right then, the one-eyed elder tending his wounded kin limped forward. Kneeling upon the damp soil, he grabbed a dry twig and etched urgently into the earth.
 
-"Iron Chieftain... inside the glacier cleft where the enemy scouts prowl to flank our gorge... lies a wounded brother of this very beast."
+The elder scratched the crude outline of a wheeled box resembling the ten-wheeler, then flipped both palms downward to show it lay overturned on its roof. He pointed urgently toward the northwest glacier pass, traced the sun arcing one and a half times across the sky to indicate travel distance, and pinched his nostrils to mimic the acrid stench of scorched metal.
 
-The elder recounted in a trembling voice that about a day and a half of rapid march away, a second dark-blue iron beast lay overturned with scorched odors.
+Kuran and Moka grunted in comprehension, pointing toward the same ridges to indicate that enemy scouts frequently traversed that glacial bypass.
 
-Thame's pulse pounded violently; a dark-blue four-wheel-drive vehicle had crashed right inside the flanking corridor of Warlord Grak's advancing horde!
+Thame's pulse pounded violently; an overturned four-wheel-drive vehicle inside the glacier cleft... a second vehicle from the modern world!
 
 If that vehicle belonged to rangers or rescue teams, it would carry advanced trauma kits, local anesthetics, injectable antibiotics, and potentially surviving modern comrades!
 
@@ -158,17 +158,15 @@ A dual-sided diamond sharpening whetstone, alongside a hard case carrying twelve
 
 Thame laced up the rigid Vibram boots for steadfast ankle support, handing the case of twelve carbon arrows to Elya.
 
-Elya traced her fingers down the arrow-straight, ultralight carbon shafts, her eyes transfixed by the gleaming triangular steel heads.
-
-"These are the deadliest shafts I have ever seen... they will drill through enemy scouts and predators alike," Elya vowed fiercely.
+Elya traced her fingers down the arrow-straight, ultralight carbon shafts, her eyes transfixed by the gleaming triangular steel heads. She nocked a shaft against her recurve bow, testing its deadly balance, and nodded fiercely at Thame with a predator's silent resolve.
 
 Thame raised the lensatic compass to sight his bearing toward the northwest, where frozen jagged peaks soared defiantly into the subzero wind.
 
-Thame coordinated tactics with Kuran: "The southern pass is blocked by snowdrifts; their main army cannot advance yet, but they are seeking a bypass through the western pass. Elya and I must cut them off and retrieve the anesthesia."
+Spreading the cardboard tactical map, Thame pointed to the southern pass marked with an X for the blizzard, then tapped the western pass and gestured to himself and Elya, indicating they were heading out to scout and retrieve medicine.
 
-"This narrow chokepoint is secure with hydro-lights and barbed wire; hold the line tight and let no enemy straggler breach the gates," Thame urged firmly.
+He gripped Kuran's shoulder firmly, pointing toward the barbed wire, the hydro-powered floodlights, and the palisade gate, commanding wordlessly for Kuran to hold the citadel secure.
 
-Kuran hammered his chest with a ferocious roar: "Rest easy! No enemy can breach this narrow gorge past my spear; go intercept them in the western pass and bring back the medicine!"
+Kuran hammered his chest in solemn salute. Raising his flint spear toward the chokepoint, the war chief nodded with unshakeable resolve, his guttural roar pledging that Fortress Alpha would remain impregnable.
 
 Hoisting the sixty-five-liter pack, Thame checked his loaded .38 revolver holstered at his hip and the 1095 carbon blade strapped to his thigh.
 
