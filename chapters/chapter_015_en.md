@@ -118,11 +118,15 @@ The subzero gales howled into the valley; if the burned refugees and shivering t
 
 In this pressing emergency, attempting to sort through the entire freight container was completely out of the question.
 
-Headlamp strapped on, he climbed onto the truck bed, scanning the front row of boxes for any pharmacy or medical sender labels.
+Headlamp strapped on, he climbed onto the truck bed, sweeping his beam methodically across the waybills on the front row of crates.
 
-His eyes caught a medium-sized carton bearing an online pharmacy sender label and a red fragile sticker, and he pulled it out at once.
+His eyes locked onto a medium-sized carton labeled for the **"Highland Wildfire Volunteer & Rescue Coordination Center."**
 
-Thame sliced the packing tape with a utility blade; by sheer luck, inside lay twenty silver rescue space blankets, burn ointment, paracetamol, and sterile gauze.
+*"A field order for mountain wildfire responders..."* Thame calculated rapidly. In high winter, volunteer wildfire units were strictly provisioned for burn casualties and acute hypothermia. He hauled the carton out immediately.
+
+Slitting the packing tape with his utility blade, the dedicated field response kit was revealed inside: **a bulk pack of twenty silver foil emergency space blankets, tubes of Mebo burn ointment, and sterile rolled gauze.**
+
+Gathering the medical supplies along with the paracetamol bottle from the truck cab's first-aid kit, Thame rushed straight back to the injured.
 
 Thame immediately unfurled the radiant foil blankets, wrapping the shivering children, elderly folk, and wounded who were trembling uncontrollably in the cold.
 
