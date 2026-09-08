@@ -134,9 +134,13 @@ Thame broke a high-calorie chocolate bar in half and handed her a portion; quick
 
 Elya savored the rich chocolate, a radiant smile gracing her weary features.
 
-Thame clasped her hand, sharing steady warmth as they nestled side by side within the downCocoon, listening to the muffled roar of the blizzard beyond the stone walls.
+As the sweetness faded, Elya drew fresh pine chewing twigs from her pouch, their ends frayed into soft fibrous brushes. She handed one to Thame and began polishing her teeth, the aromatic conifer resin naturally cleansing away sugars and fighting bacteria with ice-age wisdom.
 
-The subzero blizzard raged across the jagged peaks all night, yet within their insulated bubble sanctuary, both survived unharmed and completely insulated from peril.
+Thame smiled, rinsing with a sip of warm salted water before using the natural twig brush to clean his teeth. In negative fifteen degrees, bathing with water was life-threatening; a quick wipe with a dry cloth was all they needed to stay clean before sliding back into their lofts.
+
+Thame clasped her hand, sharing steady warmth as they nestled side by side within the down cocoon, listening to the muffled roar of the blizzard beyond the stone walls.
+
+The subzero blizzard raged across the jagged peaks all night, yet within their insulated double-wall tent, both survived unharmed and completely insulated from peril.
 
 The distant, low snores of the hibernating cave bear behind the barrier of Sichuan spice faded into harmless background noise.
 
