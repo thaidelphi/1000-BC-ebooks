@@ -1,6 +1,6 @@
 # Chapter 16: The Hydroelectric Dawn and The Western Pass Reconnaissance
 
-The scent of woodsmoke, dried Mala pepper residue, and bloodstains at the chokepoint from repelling last night's thirty shock skirmishers still lingered in the frigid gale.
+The scent of woodsmoke, dried Mala pepper residue, and bloodstains at the chokepoint from repelling last night's eight to ten shock skirmishers still lingered in the frigid gale.
 
 Kuran, his left arm wrapped in blood-tinged gauze, was leading his hunters in retrieving shattered flint spearheads and repairing the barbed tripwires that halted the skirmishers.
 
