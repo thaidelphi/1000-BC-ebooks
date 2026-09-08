@@ -78,6 +78,10 @@ Using deliberate gestures and a bird’s-eye perspective, he explained the geogr
 
 Prehistoric hunters, whose vision of the world had always been confined to ground level, stared in stunned silence as their towering canyon was captured upon a single sheet.
 
+At the heart of the map, directly over the sketch of the ten-wheeler, Thame inscribed bold English letters with charcoal: **"FORTRESS ALPHA."**
+
+In a prehistoric world ten thousand years in the past without a single named territory, this was the very first name he bestowed—both a solemn anchor for human survival and a strategic tactical coordinate to communicate with the online war room on 2G. Kuran and the clan hunters gazed upon the foreign glyphs in hushed, reverent awe, treating them as the citadel's sacred sigil.
+
 Thame established absolute camp laws: all refuse and deep latrine trenches were banished eighty meters to the south, downwind of the canyon.
 
 No food scraps or human waste would be tolerated near the sleeping quarters or freshwater springs; any violation meant immediate forfeiture of food rations.

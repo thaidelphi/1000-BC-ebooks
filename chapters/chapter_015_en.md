@@ -152,7 +152,7 @@ The treated refugees were profoundly grateful; they intended to rest overnight a
 
 Elya climbed down from the lookout crag, delivering fresh frontline reconnaissance to Thame and Kuran.
 
-The scouts reported that Warlord Grak's warband of twenty-some warriors had been pinned down by a violent polar blizzard in the southern passes; having learned that their vanguard of eight to ten skirmishers was decimated and blinded by venom fire, Grak had halted their advance to regroup, buying Fortress Alpha a critical window of two to three days to fortify and prepare.
+The scouts reported that Chieftain Grak's warband of twenty-some warriors had been pinned down by a violent polar blizzard in the southern passes; having learned that their vanguard of eight to ten skirmishers was decimated and blinded by venom fire, Grak had halted their advance to regroup, buying Fortress Alpha—the ten-wheeler citadel Thame had designated on his tactical map—a critical window of two to three days to fortify and prepare.
 
 Thame gazed at the container, his thoughts drifting to the two badly injured who could not travel. Their wounds needed far more than saline wash and gauze strips.
 
