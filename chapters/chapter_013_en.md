@@ -146,28 +146,24 @@ The trussed scout stared at the brass glinting in Thame's hand, his eyes instant
 
 He spat bloody phlegm onto the frost-rimed rock, his chest heaving with manic laughter.
 
-Then, in a terrifying collision of guttural clicks and clumsy English consonants, the savage shrieked into the night:
+Then, howling in a terrifying primal roar, the savage shrieked into the night:
 
-"Vic... tor! Thunder God Victor! Kraak... Victor... Marn! Coming to butcher and devour you all!"
+"Kraak! Warlord Kraak... Marn! Coming to butcher and devour you all!"
 
-"Victor...?" Thame repeated the name, frozen in sheer disbelief.
-
-A modern Western name, enunciated from the jagged teeth of an Ice Age cannibal ten thousand years in the past!
-
-The scout raved that Warlord Kraak was marching with twenty-five spears to wipe Fortress Alpha off the earth.
+The scout raved with crazed frenzy, boasting that Warlord Kraak was marching with twenty-some warriors to wipe Fortress Alpha off the earth.
 
 Thame scrambled atop the truck's cab, raising his smartphone to catch the flickering one-bar 2G signal.
 
-He snapped a photo of the 9mm brass casing and the yellow nylon zip-tie, posting the image alongside the name "Victor" to the emergency forum thread.
+He snapped a photo of the 9mm brass casing and the yellow nylon zip-tie, posting the image to the emergency forum thread.
 
 Responses from `@OSINT_Watchdog` and `@Tactical_Recon` pinged back within seconds:
 
-`@OSINT_Watchdog`: *`[CODE RED ALERT] Authentic 9mm brass! And cross-referencing news reports: an 'Armored Special Prison Transport' carrying an ex-mercenary convict named Victor vanished on that exact mountain highway!`*
+`@OSINT_Watchdog`: *`[CODE RED ALERT] Authentic 9mm brass! And that yellow nylon zip-tie is unmistakably 21st-century issue. That confirms remnants of a modern vehicle or other modern castaways fell through the rift into this sector before you!`*
 
-`@Tactical_Recon`: *`[TACTICAL WARNING] Cliff Deer only has ten warriors. If twenty to twenty-five cannibals charge the gorge without defenses, you'll be hard-pressed to hold! You need asymmetric crowd control and impenetrable body armor immediately!`*
+`@Tactical_Recon`: *`[TACTICAL WARNING] Cliff Deer only has ten warriors. If twenty-some cannibals charge the gorge without defenses, you'll be hard-pressed to hold! You need asymmetric crowd control and impenetrable body armor immediately!`*
 
 Thame lowered the phone, gazing out past the illumination into the pitch-black southern ridges.
 
-There was no telling when the Demon Fang advance guard would reach the gorge; the twenty-five-spear warband was still massing to the south.
+There was no telling when the Demon Fang advance guard would reach the gorge; the warband of twenty-some warriors was still massing to the south.
 
 Thame had to build his defenses and have them ready before that first wave arrived.

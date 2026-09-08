@@ -4,7 +4,7 @@
 
 Kuran's hoarse, strained whisper cracked like dry timber against the tense silence of the eleventh day's dawn surrounding the clay Rocket Stove hearth inside the winter longhouse.
 
-The terrifying threats of War Chief Kraak's twenty-five spears and the modern "Thunder God Victor"—bellowed by the bound scouts confined in the rock alcove—echoed in the back of everyone's mind like an approaching death sentence.
+The terrifying threats of War Chief Kraak's twenty-some warriors—bellowed by the bound scouts confined in the rock alcove—echoed in the back of everyone's mind like an approaching death sentence.
 
 The pale morning light filtering across the ten-wheeler's steel cab and the pure water trickling through the "Green Dragon Bamboo Aqueduct" did nothing to dispel the suffocating dread choking the settlement.
 
@@ -16,7 +16,7 @@ Kuran sketched an attack diagram into the hard-packed dirt floor with a twig, ge
 
 "Clan Cliff Deer has only eight spearmen fit to bear weapons... Count me, Elya, and you, we stand barely eleven defenders in all."
 
-"If twenty-five cannibals charge the gorge... With barely eight defenders, they could still overwhelm our line through sheer weight of numbers."
+"If twenty-some cannibals charge the gorge... With barely eight defenders, they could still overwhelm our line through sheer weight of numbers."
 
 Shaman Moka added with trembling dread, pointing a withered finger toward the towering cliffs: "The women, children, and elders must retreat into the Secret Cliff Sanctuary."
 
@@ -50,7 +50,7 @@ Under ordinary conditions, prehistoric hunters received scant sodium from raw an
 
 Fragrant smoke from dried pine twigs and oak bark cured the meat to dry perfection, filling the crisp morning air with a savory aroma—an enduring war vault had been secured.
 
-Next, Thame confronted their deadliest tactical dilemma: stopping a charge of twenty to twenty-five warriors at the four-meter chokepoint.
+Next, Thame confronted their deadliest tactical dilemma: stopping a charge of twenty-some warriors at the four-meter chokepoint.
 
 He knew all too well that his precious Smith & Wesson .38 revolver ammunition, conserved strictly at 43 rounds, could not be squandered recklessly.
 

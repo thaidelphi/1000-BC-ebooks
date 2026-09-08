@@ -2,9 +2,9 @@
 
 The guttural blare of prehistoric war horns echoed across the limestone valley on the afternoon of the eleventh day, churning clouds of gray dust behind the southern ridge three kilometers away.
 
-Thame stood resolute atop the cab of the Hino 500 Victor ten-wheeler, right hand clutching the titanium whistle, his gaze steady through the monocular lens.
+Thame stood resolute atop the cab of the Hino 500 ten-wheeler, right hand clutching the titanium whistle, his gaze steady through the monocular lens.
 
-The silhouettes of thirty hulking savage warriors crested the dirt ridge, donning beasts' skulls, their faces and chests daubed crimson with fresh animal blood.
+The silhouettes of eight to ten hulking savage skirmishers crested the dirt ridge, donning beasts' skulls, their faces and chests daubed crimson with fresh animal blood.
 
 They were the shock vanguard of the Beast-Fang cannibal tribe, wielding flint-tipped spears and bone cleavers as they charged down the foothills with berserk fury.
 
@@ -26,7 +26,7 @@ The roar of the Beast-Fangs reverberated like ravenous beasts; seeing only low s
 
 "Kuran... steady! Hold your ground! Wait for my hand signal!" Thame ordered in a low, measured voice.
 
-The horde funneled into the four-meter chokepoint, the leading ten skirmishers packed so tightly their arms could barely swing, flint spearheads clattering against one another.
+The attackers funneled into the four-meter chokepoint, packed so tightly their arms could barely swing, flint spearheads clattering against one another.
 
 Fifty meters... thirty meters... twenty meters!
 
@@ -60,7 +60,7 @@ The atomized pepper mist engulfed the ranks, sending warriors attempting to hurl
 
 "Invisible demon fire! The iron beast spits blinding flame!" rear ranks screamed in sheer existential dread.
 
-The remaining dozen vanguards, witnessing their vanguard bleeding from their eyes and writhing in agony, ground to a terrified halt, their battle morale shattered.
+The remaining skirmishers, witnessing their comrades bleeding from their eyes and writhing in agony, ground to a terrified halt, their battle morale shattered.
 
 Yet two towering Beast-Fang berserkers brandishing long flint spears lunged through the pepper mist with suicidal desperation!
 
@@ -76,7 +76,7 @@ Roaring like a cave lion, Kuran swung his hardwood war club, smashing it across 
 
 Elya loosed two more arrows, pinning the legs of the second attacker attempting to rise.
 
-In fewer than ten minutes, the thirty-man vanguard of the Beast-Fang clan was completely shattered!
+In fewer than ten minutes, the vanguard of the Beast-Fang clan was completely shattered!
 
 The survivors hauled their blinded, screaming comrades over their shoulders, fleeing back up the limestone ridge in frantic panic.
 
@@ -150,7 +150,7 @@ The treated refugees were profoundly grateful; they intended to rest overnight a
 
 Elya climbed down from the lookout crag, delivering fresh frontline reconnaissance to Thame and Kuran.
 
-The scouts reported that Warlord Grak's warband of twenty to twenty-five spears had been pinned down by a violent polar blizzard in the southern passes; having learned that their vanguard of eight to ten skirmishers was decimated and blinded by venom fire, Grak had halted their advance to regroup, buying Fortress Alpha a critical window of two to three days to fortify and prepare.
+The scouts reported that Warlord Grak's warband of twenty-some warriors had been pinned down by a violent polar blizzard in the southern passes; having learned that their vanguard of eight to ten skirmishers was decimated and blinded by venom fire, Grak had halted their advance to regroup, buying Fortress Alpha a critical window of two to three days to fortify and prepare.
 
 Thame gazed at the container, his thoughts drifting to the two badly injured who could not travel. Their wounds needed far more than saline wash and gauze strips.
 
