@@ -156,6 +156,10 @@ Elya traced her calloused fingertips down the arrow-straight, ultralight carbon 
 
 Meanwhile, Thame inspected the 175-lb compound crossbow, stepping his boot into the foot stirrup to cock the heavy string smoothly into the trigger latch, then securing the carbon bolt quiver to the frame. Slung across his chest, the crossbow provided him with an ultra-precise, silent sniper weapon with rifle-like trigger control—allowing him to eliminate threats from afar without expending his irreplaceable .38 revolver cartridges.
 
+Before stepping away, Thame returned to the rear of the container and swung the heavy corrugated steel doors shut. Slamming the twin cam-lock bars down into their keepers, he snapped the hardened-steel padlock shut with a solid, reassuring click. Walking around to the Hino 500's cab, he locked both the driver and passenger doors with his physical master key, tucking the lanyard deep into the zippered interior pocket of his parka.
+
+With over three thousand irreplaceable parcels inside the cargo hold and the cab housing the horn and master electrical controls, securing every portal was second nature to a seasoned logistics driver—ensuring no inquisitive hands or roaming wildlife could stumble into hazardous materials while he was away.
+
 Thame raised the lensatic compass to sight his bearing toward the northwest, where frozen jagged peaks soared defiantly into the subzero wind.
 
 Spreading the cardboard tactical map, Thame pointed to the southern pass marked with an X for the blizzard, then tapped the western pass and gestured to himself and Elya, indicating they were heading out to scout and retrieve medicine.
@@ -166,7 +170,9 @@ Kuran hammered his chest in solemn salute. Raising his flint spear toward the ch
 
 Hoisting the sixty-five-liter pack, Thame checked his loaded .38 revolver holstered at his hip, the 1095 carbon blade strapped to his thigh, and the compound hunting crossbow resting across his chest, primed for action.
 
-Recurve in hand and quiver of carbon arrows slung across her back, Elya matched his stride with fluid, silent agility.
+Before crossing the palisade, Thame knelt to inspect the incision on Elya’s thigh once more. Eight full days of antibiotic therapy and thermal spring soaks had healed the wound into a pale-pink scar, free of infection—a testament to the fierce regenerative resilience of prehistoric humans. Yet to prevent muscle strain on the steep glacial ascent, Thame wrapped an elastic compression bandage snugly around her thigh for added joint and muscle support.
+
+Testing her footing against the frost, Elya felt the firm support and looked down at Thame with silent gratitude. Though the subzero bite left the scarred muscle stiff, her amber eyes blazed with predatory resolve. Nodding firmly, she slung her recurve bow and carbon quiver, matching his stride with measured, feline stealth.
 
 Side by side, they stepped past the timber palisade, vaulting out from Fortress Alpha into the jagged ascent of the western ice corridor on a race against time.
 
