@@ -66,7 +66,7 @@ A six-hundred-kilogram monster was in deep winter torpor in the inner vault!
 
 It was not yet fully aroused from hibernation, but the scent of human perspiration and unfamiliar footfalls was disturbing its slumber.
 
-Should it awaken ravenous within these close confines, neither modern carbon arrows nor a .38 revolver could pierce that thick, sloped cranium before both were shredded.
+Should it awaken ravenous within these close confines, neither Thame's crossbow bolts, Elya's carbon arrows, nor a .38 revolver could pierce that thick, sloped cranium before both were shredded.
 
 "Do not make a sound. Do not step forward," Thame whispered through taut hand signals.
 

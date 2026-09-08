@@ -144,15 +144,17 @@ His beam locked onto the heavy corrugated box `#TH-882194` resting on the middle
 
 Slicing through the reinforced tape, his blade revealed rugged field equipment: a 65-liter olive-drab tactical backpack made of waterproof Cordura fabric with an ergonomic load-bearing aluminum frame, a military lensatic compass housed in a magnesium casing with phosphorescent dial markings, and the heavy leather Vibram boots designed for ice and rocky scree.
 
-Right beside it on the shelf, Thame noticed a rigid mailing tube `#TH-559102` stamped with an archery logo, addressed to a highland sports archery club. Popping the cap, he extracted a dozen arrow-straight carbon-fiber hunting shafts fitted with hardened triangular steel broadheads.
+Right beside it on the shelf, Thame noticed an elongated, heavy-duty carton `#TH-559102` addressed to the "Highland Forest Ranger & Archery Sports Association." Slicing through the reinforced tape revealed a lethal suite of long-range hunting gear: a matte-black **Tactical Compound Hunting Crossbow (175 lbs draw weight)** fitted with twin high-energy cams, a metal foot stirrup, a compact Red Dot optic, and a side-mount quiver containing **six carbon crossbow bolts** for himself—alongside a rigid storage tube packed with **twelve arrow-straight carbon hunting arrows** tipped with hardened steel broadheads for Elya's bow!
 
 From the camp's supplies, Thame fetched his titanium nesting pot and diamond sharpening stone, packing them securely inside the 65-liter pack alongside smoked jerky rations, a sleeping bag, paracord, and a thermal flask.
 
 "Superb... exactly the high-mobility equipment needed to cross the glacier passes and make our return run."
 
-Thame laced up the rigid Vibram boots for steadfast ankle support, handing the case of twelve carbon arrows to Elya.
+Thame laced up the rigid Vibram boots for steadfast ankle support, handing the tube of twelve carbon arrows to Elya.
 
-Elya traced her fingers down the arrow-straight, ultralight carbon shafts, her eyes transfixed by the gleaming triangular steel heads. She nocked a shaft against her recurve bow, testing its deadly balance, and nodded fiercely at Thame with a predator's silent resolve.
+Elya traced her calloused fingertips down the arrow-straight, ultralight carbon shafts, her eyes transfixed by the gleaming triangular steel heads. She nocked a shaft against her recurve bow, testing its deadly balance, and nodded fiercely at Thame with a predator's silent resolve.
+
+Meanwhile, Thame inspected the 175-lb compound crossbow, stepping his boot into the foot stirrup to cock the heavy string smoothly into the trigger latch, then securing the carbon bolt quiver to the frame. Slung across his chest, the crossbow provided him with an ultra-precise, silent sniper weapon with rifle-like trigger control—allowing him to eliminate threats from afar without expending his irreplaceable .38 revolver cartridges.
 
 Thame raised the lensatic compass to sight his bearing toward the northwest, where frozen jagged peaks soared defiantly into the subzero wind.
 
@@ -162,9 +164,9 @@ He gripped Kuran's shoulder firmly, pointing toward the barbed wire, the hydro-p
 
 Kuran hammered his chest in solemn salute. Raising his flint spear toward the chokepoint, the war chief nodded with unshakeable resolve, his guttural roar pledging that Fortress Alpha would remain impregnable.
 
-Hoisting the sixty-five-liter pack, Thame checked his loaded .38 revolver holstered at his hip and the 1095 carbon blade strapped to his thigh.
+Hoisting the sixty-five-liter pack, Thame checked his loaded .38 revolver holstered at his hip, the 1095 carbon blade strapped to his thigh, and the compound hunting crossbow resting across his chest, primed for action.
 
-Strung recurve in hand and quiver slung over her shoulder, Elya matched his stride with fluid, silent agility.
+Recurve in hand and quiver of carbon arrows slung across her back, Elya matched his stride with fluid, silent agility.
 
 Side by side, they stepped past the timber palisade, vaulting out from Fortress Alpha into the jagged ascent of the western ice corridor on a race against time.
 

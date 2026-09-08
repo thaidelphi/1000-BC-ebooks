@@ -10,7 +10,7 @@ Each prehistoric pine measured nearly two meters across its trunk, its deeply gr
 
 Thame's Vibram-lugged trekking boots bit securely into slippery scree and glazed ice, granting him balanced, unyielding traction across the treacherous, snowbound slopes.
 
-The 65-liter tactical expedition backpack riding on his back weighed around eighteen kilograms, packed with smoked jerky, a titanium mess kit, a vacuum flask, a down sleeping bag, 550 paracord, and trauma medical supplies.
+The 65-liter tactical expedition backpack riding on his back weighed around eighteen kilograms, packed with smoked jerky, a titanium mess kit, a vacuum flask, a down sleeping bag, 550 paracord, and trauma medical supplies—with the compound hunting crossbow resting ready across his chest for an instant shot.
 
 Ahead of him, Elya stalked forward with the fluid grace of an apex feline, carrying her recurve bow in her left hand and the quiver of armor-piercing carbon arrows across her shoulders.
 

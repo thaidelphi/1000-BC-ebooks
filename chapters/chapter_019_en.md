@@ -60,11 +60,11 @@ And more terrifying still... perched on a limestone overhang above the cave mout
 
 They were patiently waiting for the wolf pack to tear the prey apart before descending to loot the exotic prize.
 
-"Elya! Drop the savages on the cliff first!" Thame roared without breaking stride.
+Thame halted instantly, snapping the 175-lb compound hunting crossbow to his shoulder and aligning the illuminated Red Dot reticle dead-center on the lead scout's chest.
 
-*TWANG! THWACK!*
+*CLICK! — THWACK!*
 
-A high-velocity carbon arrow with an armor-piercing steel broadhead lanced through the air, punching clean through the first scout's chest and sending him plummeting off the cliff to smash dead against the boulders below!
+A high-velocity carbon crossbow bolt tipped with an armor-piercing steel broadhead tore through the subzero air at 350 feet per second, punching clean through the first scout's ribcage and hurtling his lifeless body off the cliff to smash against the jagged boulders below!
 
 The second scout shrieked in terror, his eyes bulging as his comrade died in a heartbeat, before turning and fleeing over the ridge in panicked terror.
 
@@ -90,7 +90,9 @@ Dr. Nicha did not waste the miraculous opening; gritting her teeth, she pulled t
 
 A heavy-gauge veterinary immobilization dart sank deep into the alpha's jugular; the hyper-concentrated neuro-sedative took effect instantly, dropping the six-hundred-pound predator limp into the snow within seconds.
 
-Elya loosed a second carbon arrow into the flank of the nearest wolf; the remaining predators, blinded and terrified, tucked their tails and bolted down the ravine in full retreat.
+*TWANG! THUMP!*
+
+Elya drew her recurve bow in a fluid motion and released her first carbon hunting arrow, drilling the razor broadhead deep into the flank of the nearest wolf; the remaining predators, blinded and terrified, tucked their tails and bolted down the ravine in full retreat.
 
 A profound, echoing silence settled over the snowbound shelf, punctuated only by the ragged breathing of the three survivors.
 
