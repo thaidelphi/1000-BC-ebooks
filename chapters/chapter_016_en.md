@@ -146,7 +146,7 @@ On the adjacent shelf, Thame opened crate `#TH-559102`, addressed to the "Highla
 
 Furthermore, Thame unboxed parcel `#TH-621048` from the apparel stacks, labeled for a "Women's Alpine Mountaineering Club." He pulled out a charcoal-gray **Women's Ultralight Down Jacket**—a slim-fit, highly elastic technical layer engineered to slip under her deerskin tunic, delivering furnace-like thermal core retention without restricting her archery draw motion. Packed beside it were a compact **tactical sling bag** and a **one-liter vacuum-insulated stainless steel thermos** for carrying hot beverages on the trail.
 
-Thame packed his titanium nesting pot, diamond sharpening stone, sleeping bag, paracord, and smoked meat rations into his 65-liter pack, then stepped out of the container with the full suite of gear to outfit the prehistoric huntress.
+Thame packed his titanium nesting pot, diamond sharpening stone, sleeping bag, paracord, a backup magnesium firestarter rod, and smoked meat rations into his 65-liter pack, then stepped out of the container with the full suite of gear to outfit the prehistoric huntress.
 
 "For you, Elya... The ice ahead is merciless and steep. You need this protection."
 
@@ -170,7 +170,7 @@ He gripped Kuran's shoulder firmly, pointing toward the barbed wire, the hydro-p
 
 Kuran hammered his chest in solemn salute, the stone-age warlord instantly grasping the tactical wisdom of the stealth infiltration. Raising his flint spear toward the chokepoint, the war chief nodded with unshakeable resolve, his guttural roar pledging that Fortress Alpha would remain impregnable.
 
-Hoisting the sixty-five-liter pack, Thame checked his loaded .38 revolver holstered at his hip, the 1095 carbon blade strapped to his thigh, and the compound hunting crossbow resting across his chest, primed for action.
+Hoisting the sixty-five-liter pack, Thame patted his chest to confirm his windproof jet torch lighter was securely tucked into his inner coat pocket—where body heat kept the butane pressurized against the freezing alpine air—with his loaded .38 revolver holstered at his hip, the 1095 carbon blade strapped to his thigh, and the compound hunting crossbow resting across his chest, primed for action.
 
 Before crossing the palisade, Thame knelt to inspect the incision on Elya’s thigh once more. Eight full days of antibiotic therapy and thermal spring soaks had healed the wound into a pale-pink scar, free of infection—a testament to the fierce regenerative resilience of prehistoric humans. Yet to prevent muscle strain on the steep glacial ascent, Thame wrapped an elastic compression bandage snugly around her thigh for added joint and muscle support.
 
