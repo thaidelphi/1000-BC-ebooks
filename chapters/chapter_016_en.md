@@ -86,7 +86,7 @@ The distinctive high-pitched whine of the internal rotor cutting through magneti
 
 Probing the alternator's output terminals with his digital multimeter, Thame watched the LCD screen jump instantaneously.
 
-"28.2 volts... 10 amps! Current is flooding the lines!"
+"28.2 volts... 4.5 amps! Nearly one hundred and thirty watts... Current is flooding the lines!"
 
 Thame clamped heavy gauge copper leads onto the truck battery bank, bridging the circuit to the camp's main distribution wiring.
 
