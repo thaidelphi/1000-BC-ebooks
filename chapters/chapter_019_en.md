@@ -124,15 +124,17 @@ Swirling at the center of the plateau was a residual, vortex-like shimmer of vio
 
 Thame pulled out his Blackview smartphone to open the magnetometer compass; the magnetic induction readings spiked into the red zone.
 
-Cross-referencing the solar angle with the celestial alignments depicted in the cave murals of Fortress Alpha, Thame gasped as the truth struck home:
+Suddenly, the cellular reception bars on his screen—usually dead or hovering at a flickering 2G—surged momentarily to full 4G bars! A flurry of notification pings rang out before fading back into static.
 
-"This dimensional rift isn't closed permanently... it will tear open again during the upcoming **Total Solar Eclipse** in just a few days!"
+The three looked up at the sky above the jagged ridge: the air twisted like rippling water, refracting sunlight into an eerie, swirling prismatic halo.
 
-Dr. Nicha's eyes widened in sheer disbelief: "You mean... we actually have a chance to go home?!"
+"The temporal rift isn't sealed shut... it fluctuates in the upper atmosphere!" Thame exclaimed in shock. "We can't predict exactly what day it will fully open, but whenever it fluctuates, the signal surges strong enough to reach the modern world!"
 
-"Yes... the gateway opens right here, and its time is fast approaching," Thame nodded firmly.
+Dr. Nicha's eyes widened in sheer disbelief: "You mean... we truly have a chance to make contact and find a way home?!"
 
-This was the solitary bridge back to the twenty-first century!
+"Yes... our world hasn't forgotten us, and the rift is real!" Thame nodded with soaring hope.
+
+This was the solitary ember of hope that could lead them back to the twenty-first century!
 
 Yet in that exact moment, Elya raised the 12x50 monocular telescope toward the southern basin below, her entire frame locking rigid as stone.
 
@@ -150,7 +152,7 @@ And most critically... a monstrous warlord clad in beast hides was barking order
 
 They were preparing to march their warband of twenty-some warriors to obliterate Fortress Alpha within forty-eight hours!
 
-Two devastating truths stood laid bare: the gateway home was about to open... but Fortress Alpha and the people who trusted Thame were about to be massacred!
+Two devastating truths stood laid bare: hope of connecting home through the temporal rift was real... but Fortress Alpha and the people who trusted Thame were about to be massacred!
 
 "If we just run home... Kuran, Tara, Moka... everyone in the camp will be slaughtered," Thame rasped, his knuckles whitening as his nails bit into his palms.
 
