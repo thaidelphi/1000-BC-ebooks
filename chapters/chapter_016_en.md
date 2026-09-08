@@ -138,21 +138,15 @@ With polar blizzards completely sealing the southern passes and freezing Grak's 
 
 Meanwhile, the four-meter chokepoint at Fortress Alpha stood virtually impregnable under Kuran's command, fully fortified by hydro-floodlights, barbed wire, and radial-armored spearmen.
 
-Stepping into the container, Thame swept his beam across the stacks for the heavy crate branded with alpine outdoor logos he had spotted earlier.
+Stepping into the container, Thame swept his flashlight across the cargo racks, searching for the expedition crate whose shipping manifest he had noted the previous day.
 
-His eyes locked onto the reinforced corrugated box `#TH-882194` resting firmly amid the middle shelf.
+His beam locked onto the heavy corrugated box `#TH-882194` resting on the middle shelf, addressed to the "Highland Geological Survey & Forestry Ranger Unit." The label on the carton clearly marked European Size 42 leather mountaineering boots with Vibram soles—matching his exact shoe size.
 
-Slicing through the reinforced tape, his blade revealed premium expedition hardware:
+Slicing through the reinforced tape, his blade revealed rugged field equipment: a 65-liter olive-drab tactical backpack made of waterproof Cordura fabric with an ergonomic load-bearing aluminum frame, a military lensatic compass housed in a magnesium casing with phosphorescent dial markings, and the heavy leather Vibram boots designed for ice and rocky scree.
 
-A 65-liter olive-drab tactical backpack made of waterproof Cordura fabric with an ergonomic load-bearing aluminum frame.
+Right beside it on the shelf, Thame noticed a rigid mailing tube `#TH-559102` stamped with an archery logo, addressed to a highland sports archery club. Popping the cap, he extracted a dozen arrow-straight carbon-fiber hunting shafts fitted with hardened triangular steel broadheads.
 
-Heavy leather mountaineering boots equipped with deep-lug Vibram rubber soles for gripping frozen ice and shale.
-
-An ultralight titanium nesting cookset featuring a tight-fitting lid and folding handles.
-
-A rugged military lensatic compass housed in a magnesium casing with phosphorescent dial markings.
-
-A dual-sided diamond sharpening whetstone, alongside a hard case carrying twelve carbon-fiber broadhead hunting arrows.
+From the camp's supplies, Thame fetched his titanium nesting pot and diamond sharpening stone, packing them securely inside the 65-liter pack alongside smoked jerky rations, a sleeping bag, paracord, and a thermal flask.
 
 "Superb... exactly the high-mobility equipment needed to cross the glacier passes and make our return run."
 
