@@ -42,6 +42,10 @@ Instant notifications buzzed wildly the moment Thame uploaded a snapshot of the 
 
 `@OffGrid_Prepper`: *Exactly! Direct-drive from a bamboo wheel will only net you 40 to 60 RPM. Zero charge. You must gear it up with a pulley step-up!*
 
+`@DIY_SolarTruck`: *Why not rewire the batteries in parallel for 12V? A 24V alternator can pump out 12V at half the RPM, saving you the hassle of extreme gearing!*
+
+`@HeavyTruck_Tech`: *Don't you dare! That ten-wheeler is pure 24V from nose to tail—relays, air valves, everything! Drop it to 12V and the truck systems will brick. Besides, running DC lines 40 to 80 meters across camp at 12V will cause massive line voltage drop. Keep it 24V and step up the pulley!*
+
 `@DieselMech_Detroit`: *You have the engine crankshaft pulleys and serpentine belts! Fabricate a two-stage step-up pulley system with a 1:30 ratio, man!*
 
 `@Hydraulic_Guru`: *An 18-meter head gives incredible water pressure! Constrict the bamboo outlet down to a 1-inch Pelton jet nozzle to blast the runner buckets!*
