@@ -29,6 +29,7 @@
 | 🎒 **[items.md](./items.md)** | **คลังไอเทมประจำตัวและยอดคงเหลือจริง (EDC & Live Inventory):** ยุทธภัณฑ์ EDC ในกระเป๋า/เสื้อกั๊ก, อาวุธประจำกาย, อุปกรณ์สนาม, และตัดยอดทรัพยากรสิ้นเปลือง (กระสุน 43 นัด, ดีเซล, ยา, เกลือ) | [เปิด items.md](file:///d:/myproject1/EBOOKs/10000-BC/items.md) |
 | 📋 **[unboxing_log.md](./unboxing_log.md)** | **บันทึกประวัติการแกะกล่องพัสดุ (Dedicated Unboxing Master Log):** ทะเบียนบาร์โค้ด Waybill พัสดุที่เปิดแล้ว การใช้งาน สภาพสินค้า และยอดคงเหลือในตู้ทึบ | [เปิด unboxing_log.md](file:///d:/myproject1/EBOOKs/10000-BC/unboxing_log.md) |
 | 🧭 **[story_outline.md](./story_outline.md)** / **[outline.md](./outline.md)** | **โครงเรื่องแม่บท 4 องก์ (Master Narrative Arc):** ปมขัดแย้ง 5 มิติ (เอาชีวิตรอด, ชนเผ่า, วิทยาการ, ความลับข้ามมิติ, ปรัชญาศีลธรรม) และกฎเกณฑ์ยุคหิน | [เปิด story_outline.md](file:///d:/myproject1/EBOOKs/10000-BC/story_outline.md) |
+| 🏰 **[fortress_alpha.md](./fortress_alpha.md)** | **คู่มือชัยภูมิป้อมปราการอัลฟ่าและที่พักแม่บท (Master Base Camp Codex):** บันทึกสภาพแวดล้อม ภูมิศาสตร์ 4 ทิศ ถ้ำลับผาสวรรค์ สถาปัตยกรรมปราการรถ 10 ล้อ และโครงสร้างพื้นฐานค่าย | [เปิด fortress_alpha.md](file:///d:/myproject1/EBOOKs/10000-BC/fortress_alpha.md) |
 | 📚 **[chapters/](./chapters/)** | **คลังต้นฉบับบทนิยายสองภาษา (Bilingual Manuscript Vault):** โฟลเดอร์จัดเก็บไฟล์บทนิยายภาษาไทย (`chapter_XXX_th.md`) และภาษาอังกฤษ (`chapter_XXX_en.md`) | [เปิดโฟลเดอร์ chapters/](file:///d:/myproject1/EBOOKs/10000-BC/chapters/) |
 
 ---
@@ -414,7 +415,8 @@ flowchart TD
    - จุดทิ้งท้ายตอน (Cliffhanger)
 3. **อ่าน [items.md](./items.md) และ [unboxing_log.md](./unboxing_log.md):** ตรวจสอบอาวุธในมือ ยุทธภัณฑ์ EDC ที่ธามพกติดตัว และสถานะทรัพยากรสิ้นเปลือง (เช่น กระสุน .38 นัดที่ 43, ยา Amoxicillin, เกลือ, น้ำมันดีเซล)
 4. **อ่าน [character.md](./character.md):** ตรวจสอบระดับความสัมพันธ์ บุคลิกภาพ และภาษาที่ใช้สื่อสารกับชนเผ่า
-5. **อ่าน [prompt.md](./prompt.md):** ทบทวนกฎเหล็ก 63 ประการ
+5. **อ่าน [fortress_alpha.md](./fortress_alpha.md):** ตรวจสอบแผนผังค่าย ชัยภูมิ 4 ทิศ และตำแหน่งสิ่งปลูกสร้าง
+6. **อ่าน [prompt.md](./prompt.md):** ทบทวนกฎเหล็ก 63 ประการ
 
 ---
 
