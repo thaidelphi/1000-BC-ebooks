@@ -16,7 +16,7 @@ Dr. Nicha gripped the roof rack railing tightly, feeling micro-vibrations hum th
 
 Faint blue St. Elmo's fire danced along the truck's steel tubing and side mirrors, hissing softly against the profound silence of the prehistoric night.
 
-On Thame's smartphone digital compass, electromagnetic readings spiked past three hundred microteslas, the needle spinning wildly beneath flashing crimson interference warnings.
+The magnesium lensatic compass in Thame's hand rattled violently, its magnetic needle spinning three hundred and sixty degrees like a propeller under the overwhelming geomagnetic surge.
 
 The camp's LED work lights, powered by the Pelton hydro generator, flickered in rhythmic pulses beneath the overwhelming electromagnetic induction.
 
