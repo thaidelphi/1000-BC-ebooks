@@ -24,9 +24,9 @@ And in that breathless heartbeat of cosmic wonder, Thame's smartphone and Dr. Ni
 
 The signal bar in the screen's upper corner, dead with 'No Service' for fifteen long days, surged instantly to full strength: **a rock-solid, uninterrupted 5G lock!**
 
-The system clock and network calendar instantly synchronized back to the year 2026—confirming exactly fifteen days had elapsed in the modern world since their fall.
+The network clock and calendar instantly synchronized with modern standard time—confirming exactly fifteen days had elapsed in 2026 since their catastrophic fall.
 
-The timestamp declared with chilling clarity that they had been displaced for over two weeks, while modern search efforts were grinding to a hopeless halt.
+It resolved the ultimate temporal mystery: time in 2026 was flowing in a parallel one-to-one ratio with 10,000 BC, while modern search efforts ground on in despair.
 
 A deafening cascade of notification chimes, LINE pings, unread emails, and missed-call alerts erupted like machine-gun fire, illuminating the dark limestone valley in bright light.
 
