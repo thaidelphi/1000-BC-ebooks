@@ -1,16 +1,16 @@
 # Chapter 20: The Desperate Race, Dr. Nicha's Clinic & First Peaceful Contact
 
-Howling glacial gusts swept down the limestone defile, driving stinging ice flurries across the scree as the pale orange late afternoon sun sank toward the western crags.
+The fifteen-kilometer return trek across the treacherous Western Pass could not be made swiftly, especially with Dr. Nicha suffering from a badly sprained right ankle and profound starvation.
 
-Thame, Elya, and Dr. Nicha moved at a relentless, half-sprinting pace across the treacherous ridge paths paved with glazed ice and shattered granite.
+Thame and Elya spent crucial hours felling tough alpine pine boughs and lashing them together with 550 paracord to fashion an **improvised bushcraft travois**.
 
-Thame's Vibram-soled trekking boots locked firmly onto the frosted rock fissures, while Elya spearheaded their descent with primal instincts, neatly circumventing concealed glacial crevasses.
+Lined with thermal bubble wrap, the sledge allowed Dr. Nicha to extend her swollen leg in safety, flanked by the securely lashed veterinary trauma chest.
 
-Though Dr. Nicha was battered and her right ankle throbbed from the violent rollover of her 4WD truck, her combat-tested field doctor's resolve burned fiercely in her eyes.
+Thame and Elya took turns hauling the harness through the snow drifts, halting for a mandatory bivouac night beneath their previous cliff overhang where they boiled smoked venison to rebuild their strength.
 
-The heavy wildlife medical trauma chest—laden with local anesthetics, injectable antibiotics, and sterile surgical kits—was lashed securely to Thame's 65-liter Cordura expedition pack with heavy zip ties.
+Setting out at dawn on Day 15, they pushed through the entire second day, retracing their packed footprints and relying on the tensioned traverse lines previously anchored across the crevasses.
 
-Passing the final limestone col just before five in the evening, the natural horseshoe karst amphitheater harboring Fortress Alpha unfolded in the shadowy basin below.
+Only as dusk settled heavily over the mountains did they surmount the final limestone col, revealing the natural horseshoe basin of Fortress Alpha below.
 
 The 200W solar-powered LED floodlight mounted high upon the timber palisade carved through the swirling valley fog, glowing like an amber beacon in the primeval gloom.
 
