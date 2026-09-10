@@ -1,18 +1,16 @@
 # Chapter 21: The White Shaman Miracle, Auroral Rift & The 10,000-Year Wire
 
-An abyss of subzero darkness swallowed the limestone gorge, the outside temperature plunging toward a brutal minus eleven degrees Celsius.
+Atop the ten-wheeler's cab, Thame and Dr. Nicha stood frozen, their eyes locked on the sky rippling in violent waves of prismatic violet aurora.
 
-Crystalline frost encrusted the heavy steel chassis and aluminum cargo box of the ten-wheeler, while icy gales shrieked through the limestone crags.
+Yet before either could decipher the cosmic anomaly, Elder Bathor's desperate, agonized cries echoed from the courtyard below.
 
-Yet inside the timber longhouses and the insulated container, the air remained filled with dry, draft-free warmth from the clean-burning rocket stoves.
+The patriarch sprinted frantically toward the cargo container carrying his ten-year-old grandson, the boy burning with fever and convulsing in sheer agony.
 
-Driven by the diversion flume, the micro-hydro Pelton wheel spun silently against its 24-volt alternator, feeding direct current to warm-white LED lanterns across the camp.
+"White Shaman!... Save my grandson!... Kamin cannot swallow broth, he is screaming in terrible belly pain!"
 
-Twelve exhausted refugees of the Mountain Sheep Clan huddled together, their shivering frames enveloped in shimmering silver Mylar emergency space blankets.
+Thame and Dr. Nicha leaped down from the cab, rushing straight into the partitioned field clinic to take the boy into their care.
 
-Young Tara helped distribute steaming bowls of bone broth from the titanium field pot alongside tangy pine needle tea, coaxing the first fragile smiles from frostbitten elders.
-
-Yet inside the sterile field triage clinic partitioned at the front of the cargo container, the atmosphere tightened with razor-sharp urgency.
+The atmosphere within the makeshift clinic tightened with razor-sharp urgency as the child's ragged whimpers pierced the warm air.
 
 Upon a wooden stretcher lined with clean waterproof tarps, a ten-year-old boy curled into a rigid fetal ball, his jaw clamped tight as his teeth chattered uncontrollably.
 

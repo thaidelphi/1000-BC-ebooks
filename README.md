@@ -478,7 +478,7 @@ git push origin main
 
 | พารามิเตอร์ | สถานะปัจจุบัน | หมายเหตุและบริบท |
 | :--- | :--- | :--- |
-| **ตอนล่าสุดที่เขียนเสร็จ** | **บทที่ 21: ปาฏิหาริย์เสื้อกาวน์ขาว ฟ้าเปิดข้ามมิติ และสายโทรศัพท์หมื่นปี** | [TH: chapter_021_th.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_021_th.md) (85 บรรทัด) / [EN: chapter_021_en.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_021_en.md) (85 บรรทัด) |
+| **ตอนล่าสุดที่เขียนเสร็จ** | **บทที่ 21: ปาฏิหาริย์เสื้อกาวน์ขาว ฟ้าเปิดข้ามมิติ และสายโทรศัพท์หมื่นปี** | [TH: chapter_021_th.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_021_th.md) (84 บรรทัด) / [EN: chapter_021_en.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_021_en.md) (84 บรรทัด) |
 | **ตอนถัดไปที่ต้องเขียน** | **บทที่ 22: คลังปัญญาออฟไลน์ เสียงกลองศึกมารเขี้ยว และแนวรบช่องแคบ** | ศึกตั้งรับกองหน้าเผ่ามารเขี้ยว, การใช้งานข้อมูล 850GB วางแผนยุทธวิธี, สปอร์ตไลต์และแตรลมรับศึกกลางคืน |
 | **ทิศทางเนื้อเรื่องหลัก** | **เน้นพบเจอชนเผ่าเล็กๆ ก่อน (ยังไม่เจอวิกเตอร์)** | เก็บวิกเตอร์ไว้ช่วงกลางเรื่อง (Saga 3-4 บทที่ 70+) ช่วงนี้เน้นการทูต ค้าขาย และช่วยเหลือชนเผ่าเล็กๆ รอบหุบเขา |
 | **องก์ปัจจุบัน (Act)** | **Act 2: การสร้างป้อมปราการและการเดินทางตามหารอยแยกมิติ** | กู้ภัย พญ. ณิชา, ติดตั้งพลังน้ำ 24/7, และสร้างเครือข่ายพันธมิตรชนเผ่าขนาดเล็ก |
@@ -536,7 +536,7 @@ git push origin main
 | **018** | พายุหิมะขั้วโลกและรังหมีถ้ำ | Subzero Blizzard & Ice Cave Survival | [TH](./chapters/chapter_018_th.md) | [EN](./chapters/chapter_018_en.md) | 82 | `#TH-492019` (บับเบิ้ลกันกระแทก 5 ม้วน, เต็นท์โดม 4 ฤดู, ถุงนอนติดลบ) |
 | **019** | ซากสัตว์เหล็กตัวที่สองและการกู้ภัย พญ. ณิชา | The Fallen Iron Beast & Rescue of Dr. Nicha | [TH](./chapters/chapter_019_th.md) | [EN](./chapters/chapter_019_en.md) | 88 | `#TH-771920` (ไฟฉายยุทธวิธี LED 2,000 ลูเมนส์, ซิปไทร์) |
 | **020** | ควบตะบึงกลับค่าย สถาปนาคลินิกสนาม และการมาเยือนของชนเผ่ากลุ่มเล็ก | The Desperate Race, Dr. Nicha's Clinic & First Peaceful Contact | [TH](./chapters/chapter_020_th.md) | [EN](./chapters/chapter_020_en.md) | 87 | `#TH-990128` (ชุดกู้ชีพ รพ.สต. สันป่าตอง: ผ้าห่มฟอยล์ 10 ผืน, อุปกรณ์ทำแผลปลอดเชื้อ, พาราเด็ก) |
-| **021** | **ปาฏิหาริย์เสื้อกาวน์ขาว ฟ้าเปิดข้ามมิติ และสายโทรศัพท์หมื่นปี** | **The White-Gowned Miracle, Auroral Rift & The 10,000-Year Wire** | [TH](./chapters/chapter_021_th.md) | [EN](./chapters/chapter_021_en.md) | 85 | `#TH-331829` (SanDisk SSD 2TB, Baseus 30,000mAh Power Bank, สาย Type-C) |
+| **021** | **ปาฏิหาริย์เสื้อกาวน์ขาว ฟ้าเปิดข้ามมิติ และสายโทรศัพท์หมื่นปี** | **The White-Gowned Miracle, Auroral Rift & The 10,000-Year Wire** | [TH](./chapters/chapter_021_th.md) | [EN](./chapters/chapter_021_en.md) | 84 | `#TH-331829` (SanDisk SSD 2TB, Baseus 30,000mAh Power Bank, สาย Type-C) |
 | *022* | *คลังปัญญาออฟไลน์ เสียงกลองศึกมารเขี้ยว และแนวรบช่องแคบ* | *The Offline Archive, War Drums of Demon Fang & The Chokepoint Frontline* | *(รอเขียน)* | *(รอเขียน)* | - | *ศึกตั้งรับกองหน้ามารเขี้ยว, คลังข้อมูล 850GB, สปอร์ตไลต์และแตรลม* |
 
 ---

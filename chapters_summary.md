@@ -415,7 +415,7 @@
 ---
 
 ### 📖 บทที่ 21: ปาฏิหาริย์เสื้อกาวน์ขาว ฟ้าเปิดข้ามมิติ และสายโทรศัพท์หมื่นปี (The White Shaman Miracle, Auroral Rift & The 10,000-Year Wire)
-* **สถานะ:** เขียนเสร็จสมบูรณ์ ([TH: chapter_021_th.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_021_th.md) | [EN: chapter_021_en.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_021_en.md)) | ความยาว: 85 บรรทัดเนื้อหาจริง (170 บรรทัดรวม, ~2,850 คำ, 28,400 ตัวอักษร)
+* **สถานะ:** เขียนเสร็จสมบูรณ์ ([TH: chapter_021_th.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_021_th.md) | [EN: chapter_021_en.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_021_en.md)) | ความยาว: 84 บรรทัดเนื้อหาจริง (168 บรรทัดรวม, ~2,850 คำ, 28,400 ตัวอักษร)
 * **รูปแบบบท:** Type F & E (Emergency Surgery, Telemedicine Video Call, Primal-Modern Synergy & Digital Knowledge Archiving)
 * **ลำดับเวลาในเรื่อง:** ค่ำคืนวันที่ 15 (เวลาประมาณ 21:00 – 22:30 น.)
 * **สภาพอากาศและภูมิประเทศ:** อุณหภูมิ -11°C ลมหนาวกรรโชก น้ำแข็งเกาะผิวตู้รถ ภายในค่ายอบอุ่นจากเตาผิง Rocket Stove และแสงไฟแอลอีดีพลังน้ำ
