@@ -134,7 +134,7 @@ Suddenly, the cellular reception bars on his screen—usually dead or hovering a
 
 The three looked up at the sky above the jagged ridge: the air twisted like rippling water, refracting sunlight into an eerie, swirling prismatic halo.
 
-"The temporal rift isn't sealed shut... it fluctuates in the upper atmosphere!" Thame exclaimed in shock. "We can't predict exactly what day it will fully open, but whenever it fluctuates, the signal surges strong enough to reach the modern world!"
+"The temporal rift isn't sealed shut... right now it's only fluttering in ripples, which is why the signal only flickered momentarily," Thame exclaimed in awe. "Whenever the dimensional portal opens wide, the signal will stay at full bars the entire time it remains open... and when that day comes, we'll truly be able to connect and transmit back to our world!"
 
 Dr. Nicha's eyes widened in sheer disbelief: "You mean... we truly have a chance to make contact and find a way home?!"
 
