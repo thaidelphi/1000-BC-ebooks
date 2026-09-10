@@ -34,13 +34,13 @@ Shaman Moka and the thirty souls of the Cliff Deer Clan emerged from the winter 
 
 Thame introduced Dr. Nicha using calculated sign gestures and established vocabulary: "Nicha... Shaman... Sua (Friend)... here to heal our wounded."
 
-To strip the biting frost that numbed their extremities, Thame led Dr. Nicha up the north limestone cliff trail, slipping behind the thick curtain of wild vines into the **Secret Cliff Sanctuary**.
+To strip the biting frost that numbed their extremities, Thame provided a clean towel and dry spare clothes from the truck cab before guiding Dr. Nicha up the cliff ledges into the **Heaven's Cliff Secret Cave** through the vine curtain.
 
-The moment they breached the cavern mouth, a soothing draft of 24°C air and the mineral scent of the **40°C emerald geothermal hot spring** enveloped them like a protective cocoon.
+Stepping inside, an ambient warmth of 24°C and the soothing mineral aroma of the **40°C emerald hot spring pool** enveloped them like a divine embrace.
 
-Dr. Nicha cupped the warm mineral water over her face, washing away dried soot and crystalline frost from her lashes as the subterranean heat restored her exhausted frame.
+Left in total privacy, Dr. Nicha soaked blissfully in the warm mineral spring, washing away half a month of soot and ice before changing into fresh clothes and donning her clean white clinical coat.
 
-"Incredible, Thame... to engineer such an oasis in the teeth of the Ice Age," she whispered in heartfelt admiration.
+"Simply incredible, Thame... how on earth did you create an oasis like this in the Ice Age?" Dr. Nicha praised with a rejuvenated, bright smile.
 
 Once their stamina was rekindled, Thame and Khuran pulled on heavy leather gloves and descended to inspect the readiness of the **three-tier barbed wire perimeter** guarding the chokepoint.
 
