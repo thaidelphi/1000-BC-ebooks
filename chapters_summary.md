@@ -379,7 +379,7 @@
 ---
 
 ### 📖 บทที่ 19: ซากสัตว์เหล็กตัวที่สองและการกู้ภัย พญ. ณิชา (The Fallen Iron Beast & The Rescue of Dr. Nicha)
-* **สถานะ:** เขียนเสร็จสมบูรณ์ ([TH: chapter_019_th.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_019_th.md) | [EN: chapter_019_en.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_019_en.md)) | ความยาว: 82 บรรทัดเนื้อหาจริง (163 บรรทัดรวม, ~2,850 คำ, 28,100 ตัวอักษร)
+* **สถานะ:** เขียนเสร็จสมบูรณ์ ([TH: chapter_019_th.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_019_th.md) | [EN: chapter_019_en.md](file:///d:/myproject1/EBOOKs/10000-BC/chapters/chapter_019_en.md)) | ความยาว: 86 บรรทัดเนื้อหาจริง (172 บรรทัดรวม, ~2,850 คำ, 28,100 ตัวอักษร)
 * **รูปแบบบท:** Type D & A (Discovery of Second Wreckage, Dr. Nicha Rescue & Temporal Rift Anomaly)
 * **ลำดับเวลาในเรื่อง:** สายถึงบ่าย วันที่ 14 (เวลาประมาณ 09:00 – 15:00 น.)
 * **สภาพอากาศและภูมิประเทศ:** อุณหภูมิ -6°C แดดจัดสะท้อนหิมะ ช่องเขาหินปูนตะวันตกความสูง 1,800 เมตร ซอกธารน้ำแข็งแตกร้าว
