@@ -124,21 +124,21 @@ Within five seconds, the longhouse doors burst open as Khuran and his radial-arm
 
 Thame seized his 12x50 monocular, scaled the cab roof, and peered through the blazing glare toward the chokepoint entrance.
 
-Yet the figures caught in the beam were neither dire wolves nor bloodthirsty cannibals...
+Yet what materialized within the piercing beam was neither a dire wolf pack nor bloodthirsty raiders...
 
-They were a bedraggled band of ten to twelve desperate humans!
+But the lone figure of an elderly primitive man prostrating face-down in the snow, hands clutching his head in absolute terror.
 
-Clad in ragged mountain sheep skins, the group consisted of hollow-cheeked elders, frail women, and three shivering children with frostbitten, cyanotic lips.
+"Spare me... O Great Sun God..." the elder wept, trembling uncontrollably, his ragged furs revealing a starving frame of exposed ribs.
 
-Terrified by the thunderous horn of iron and the blinding eye of the sun, the starving wanderers fell to their knees in the snow, weeping and trembling as they begged for mercy.
+Elya locked her gaze onto the curved ram-horn totems carved upon his chest, tugging Thame's arm: "Elder Bathor!... Chieftain of the Mountain Sheep Clan!"
 
-"Spare us... O Great Sun God... we freeze... we starve..." the elderly patriarch pleaded in archaic guttural tones.
+Bathor frantically pointed back into the frozen darkness, stammering that his eleven surviving clan members—women, elders, and infants—lay hiding in a rock cleft, freezing to death.
 
-Elya, standing at Thame's side, locked her gaze onto the curved ram-horn totems carved upon the elder's chest. She tugged Thame's sleeve, pointing with urgent gestures: "Argal!... Them... Mountain Sheep Clan!"
+Terrified of leading his family into an enemy den, he had risked his life to scout the miraculous light alone, desperate to plead for warmth and scraps of food to save the dying children.
 
-She mimed herding along high crags and pointed into the predator-stalked darkness, indicating they had fled the frozen summits all day; without following the distant light and warmth, their children and elders would have frozen to death tonight.
+"Khuran, take your warriors and bring the children and elders inside immediately!" Thame lowered his weapon and commanded firmly.
 
-"Lower your weapons, everyone! They are not enemies!" Thame commanded firmly.
+Within moments, the warriors carried the trembling children and supported the frostbitten women into the sanctuary, saving all eleven souls from the icy night.
 
 Thame and Dr. Nicha hurried to the rear of the container to unearth emergency relief supplies.
 
