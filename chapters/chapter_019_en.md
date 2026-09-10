@@ -106,7 +106,11 @@ Thame's eyes caught the embroidered Velcro patch on her tactical field vest: **"
 
 Thame knelt, gently lifting her to her feet and passing her an insulated flask of warm water: "You're safe now, Dr. Nicha. I'm Thame... We have a fortified encampment and allies waiting just behind us."
 
-Dr. Nicha drank deeply, warmth and clarity slowly returning to her shivering body.
+Dr. Nicha drank deeply, warmth and clarity slowly returning to her shivering body, but her parched lips and violent trembling betrayed acute hypoglycemia and days of near-starvation.
+
+Noticing her sunken cheeks, Thame immediately unzipped his chest rig, pulling out a rich dark chocolate bar and two strips of smoked venison jerky: "Don't just drink water, Doctor. Your blood sugar is dangerously low. Chew on this chocolate and cured meat first—take it slow."
+
+Tears welled in Dr. Nicha's eyes as her shaking hands gripped the gold foil wrapper. She took desperate bites, the intense surge of cocoa sugars, fat, and sodium flooding into her depleted bloodstream, restoring warmth and faint color to her pale cheeks. "Thank you so much, Thame... This tastes heavenly. I haven't tasted real food in two whole weeks..."
 
 "I thought I was going to die alone in this frozen nightmare..." Dr. Nicha whispered through shuddering breaths. "My truck was pulled into this strange world during that freak fog storm two weeks ago... For the first ten days, I took shelter inside the overturned cab, surviving on bottled water and emergency rations from the vehicle. But when that massive blizzard rolled in four days ago, dire wolves began circling the wreck. I had no choice but to haul my expedition pack, down sleeping bag, and the medical trunk up into this rocky cleft... I managed to hold out by rationing half an energy bar a day and melting clean snow to drink. But my food ran completely dry this morning, and that sedative dart was my absolute last line of defense..."
 
