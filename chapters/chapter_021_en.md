@@ -56,7 +56,7 @@ The bright orange rubber bumper and tactical alloy frame felt reassuringly solid
 
 Beside it sat a **Baseus 30,000 mAh 65W fast-charging power bank** with its digital display reading 100% full capacity, and **heavy-duty 100W braided nylon USB-C cables**.
 
-"The ultimate salvation payload!" Thame instantly hooked the power bank to his phone to prevent battery shutdown and plugged the high-speed data cable from the phone into the 2TB SSD.
+"The ultimate salvation payload!" Thame instantly connected the two-terabyte SSD directly into his smartphone's Type-C port via high-speed OTG, powered directly by the phone's fully charged battery.
 
 Harnessing the gigabit-speed 5G pipeline surging through the temporal conduit, Thame triggered a massive automated offline data download sequence:
 
