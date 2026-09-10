@@ -38,21 +38,69 @@ Breaking news headlines flashed across their feeds: "Day 15 of massive search fo
 
 Reports stated that mountain rescue units and search helicopters had discovered zero wreckage or tire tracks in the abyss, as though both vehicles had vanished into thin air.
 
-"Nicha!... The temporal rift has reconnected our communications with the modern world!" Thame shouted in raw exhilaration, his heart hammering against his ribs.
+"Nicha!... The phones have connected back to our world! There are dozens of missed calls from home!" Thame shouted in raw excitement, his heart pounding against his ribs.
 
-"But the auroral vortex is violently unstable!" Dr. Nicha pointed up at the pulsing funnel. "This dimensional bridge might only hold for fifteen or twenty minutes at most!"
+"Mom!... Mom called me almost a hundred times!" Dr. Nicha's eyes welled with tears, her trembling hands instantly pressing the video call button back to her mother on pure instinct.
 
-"If this rift snaps shut, we may never receive another transmission from our century again!" the doctor added in a trembling voice.
+The ringing chime sounded only twice before the high-definition image of an elderly woman, her face streaked with tears and hollowed by grief, appeared on the screen.
 
-"We have to seize this golden window to download everything human civilization has ever built!" Thame vaulted down the access ladder, sprinting straight into the cargo container.
+Behind her mother was the familiar living room, framed family portraits on the wall, and the evening television news—the warmth of a home ten thousand years away.
+
+The teacup in her mother's hand clattered against the table, her eyes widening in absolute, disbelieving shock: "Nicha?!... My child!... You are truly alive?!"
+
+"Mom!... It's me!" Dr. Nicha burst into tears of overwhelming relief, wiping the wet streaks from her cheeks. "Thame and I survived, Mom! Both of us are safe and unharmed!"
+
+"Where are you?! The rescue teams said the vehicle fell into a sheer abyss and was swept away; the police couldn't find a trace of wreckage!" her mother wept, her voice fractured with frantic relief.
+
+"Mom... listen to me. I am in a place far beyond imagination, but I have food, warm shelter, faithful allies, and I am using my medical skills to save countless human lives."
+
+"The ancient people here are noble and protect us with their lives. I am not alone at all, Mom," Dr. Nicha said, smiling through her tears.
+
+A tear from Nicha's cheek splashed against the glass screen; the doctor took a deep, steadying breath, knowing that preserving human life in this prehistoric dawn was the greatest honor of her calling.
+
+"Please take care of your health, Mom, and do not cry for me anymore. I am surviving with fierce strength... I love you more than anything in the world!"
+
+Standing beside her, Thame raised his smartphone to record a high-resolution audiovisual dispatch, transmitting it directly into his family chat and the provincial rescue dispatch:
+
+"Mom... Uncle Dech, and everyone in the mountain rescue team... this is Thame, the northern freight courier," his voice rang out firm and steady.
+
+"Dr. Nicha and I survived the accident. We were swept across a temporal rift into a primeval wilderness ten thousand years in the past that exists on no modern map."
+
+"Please do not risk any more lives searching the bottom of that ravine for us. Every parcel and medical supply has been put to work preserving the lives of over a hundred people here."
+
+"We are safe, we have food and electric power, and we are forging a new settlement together... Tell my mother that I love her, and never to worry about me again!"
+
+The messages and video clips transmitted through the 5G conduit into modern servers, marked with brilliant green checkmarks of confirmed delivery.
+
+Down in the courtyard below, every ancient soul—Kuran, Shaman Moga, little Tara, El-ya, and all twelve Mountain Sheep refugees—stood frozen in breathless wonder.
+
+They craned their necks toward the glowing rectangular glass tablets in Thame's and Dr. Nicha's hands, displaying living human figures moving and speaking across the boundless void.
+
+The cadence of unknown voices ringing clearly from the luminous glass slabs held every soul in the compound spellbound.
+
+"Spirits of the star-realm..." Shaman Moga whispered in a trembling murmur, sinking to his knees in the snow and bowing in supreme veneration toward the glowing screens.
+
+Kuran, a hardened warrior who had never flinched before cave bears or dire beasts, cautiously reached out a trembling hand to touch the truck's tire, as though revering a celestial beast.
+
+Elder Bathor, cradling young Kamin wrapped securely in his warm silver foil blanket, dropped to his knees, tears of sacred reverence welling in his eyes.
+
+The Mountain Sheep refugees and Crag Deer hunters knelt across the frozen soil and powdery snow, murmuring prayers to the wondrous miracle from beyond the heavens.
+
+In the eyes of these Stone Age folk, the doctor in her white coat and the master of the iron chariot were divine beings who held dominion over lightning and the voices of heaven.
+
+Yet in that very instant, the violet auroral vortex in the sky began to shudder and contract, emitting a low-frequency hum that vibrated through the air and dilated Thame's pupils in alarm.
+
+"Thame!... The spatial rift is wavering and shrinking rapidly!" Dr. Nicha pointed up at the summit cliffs. "This dimensional gateway might only hold for a few more minutes!"
+
+"We cannot return... but we must never allow the accumulated knowledge of humanity to die with us!" Thame vaulted down the side ladder, sprinting straight into the ten-wheeler's cargo hold.
 
 The young courier dashed into the Blue Zone shelving, scanning the manifest labels for the premium IT equipment he had memorized days ago.
 
-His hands clamped onto a reinforced cardboard carton labeled `#TH-331829` (1.5 kg), slicing through its security tape in one fluid slash.
+His hands clamped onto a heavy corrugated carton labeled `#TH-331829` (1.5 kg), slicing through its reinforced security tape in one fluid slash.
 
 Inside lay a pristine **ruggedized SanDisk Extreme Portable SSD 2TB (IP55 water/drop resistant)** fitted with an integrated aluminum carabiner loop.
 
-The bright orange rubber bumper and tactical alloy frame felt reassuringly solid, engineered to withstand the harshest field environments on Earth.
+The bright orange rubber bumper and tactical alloy frame felt reassuringly solid, engineered to endure the most grueling field environments on Earth.
 
 Beside it sat a **Baseus 30,000 mAh 65W fast-charging power bank** with its digital display reading 100% full capacity, and **heavy-duty 100W braided nylon USB-C cables**.
 
@@ -81,54 +129,6 @@ And at last, the counter locked onto **one hundred percent complete!** followed 
 Over eight hundred and fifty gigabytes of humanity's crowning wisdom, gathered across ten millennia, was safely committed into the solid-state drive in under ten minutes.
 
 Thame caressed the rugged drive in profound gratitude; the seeds of modern intellect and technological enlightenment had been successfully transplanted into the Stone Age.
-
-Meanwhile, atop the ten-wheeler, Dr. Nicha held her phone with trembling hands before pressing the video call button to her mother.
-
-The ring chime sounded only twice before the high-definition image of her elderly mother, tear-stained and worn by grief, materialized on the screen.
-
-Visible behind her mother was the familiar living room, framed family photos on the wall, and the evening television news—the mundane warmth of a home ten thousand years away.
-
-The teacup in her mother's hand shattered on the floor, her eyes widening in absolute shock: "Nicha?!... My child!... You are truly alive?!"
-
-"Mom!... It's me!" Dr. Nicha burst into tears of overwhelming relief, wiping her cheeks. "Thame and I survived! Both of us are completely safe and unharmed!"
-
-"Where are you?! The rescuers said the vehicle plunged down a deep gorge and washed away, the police couldn't even find wreckage!" her mother wept uncontrollably.
-
-"Mom... listen to me. I am in a place far beyond imagination, but I have food, warm shelter, allies, and I am using my medical knowledge to save countless lives."
-
-"The ancient people here are noble and caring, they look after us like family. I am not alone, Mom," Nicha smiled through her tears.
-
-A single tear rolled onto the glass screen; Dr. Nicha drew a steady breath, knowing that preserving human life in this prehistoric dawn was the greatest honor of her calling.
-
-"My connection window is closing fast... Please take care of your health, Mom, do not weep for me. I am surviving with fierce strength... I love you more than life itself!"
-
-Thame bounded back up to the roof, holding up his phone to record a high-resolution audiovisual dispatch, transmitting it directly to his family chat and the provincial police command:
-
-"Mom... Uncle Dech, and everyone in the mountain rescue team... this is Thame, northern route logistics courier," his voice rang firm and resolute.
-
-"Dr. Nicha and I survived the accident. We were pulled through an impossible spatial anomaly into a primeval wilderness ten thousand years in the past."
-
-"Please do not risk any more lives searching the ravines for us. Every parcel and medical supply is being used to sustain hundreds of lives here."
-
-"We have food, power, and shelter, and we are forging a new civilization... Tell my mother that I love her, and never to worry about me!"
-
-The messages and video clips transmitted through the 5G conduit into modern servers, marked with brilliant green checkmarks of confirmed delivery.
-
-Down in the courtyard below, every ancient soul—Kuran, Shaman Moga, little Tara, El-ya, and all twelve Mountain Sheep refugees—stood paralyzed in sheer bewilderment.
-
-They stared in awe at the glowing rectangular glass tablets in Thame's and Dr. Nicha's hands, showing living, moving human beings speaking across the heavens.
-
-The resonant foreign cadences ringing out from the luminous glass slabs held every soul in the compound completely spellbound.
-
-"Spirits of the star-realm..." Shaman Moga whispered in a trembling voice, falling to his knees in the snow and bowing in supreme veneration toward the glowing screens.
-
-Kuran, a seasoned chieftain who never flinched before cave bears or dire beasts, reached out a trembling hand to touch the truck's tire, as if honoring a celestial beast.
-
-Elder Bathor, cradling young Kamin wrapped securely in his warm silver Mylar blanket, slowly dropped to his knees, tears of sacred reverence spilling down his cheeks.
-
-The Mountain Sheep refugees and Crag Deer warriors knelt across the snowbound earth, murmuring prayers to the wondrous miracle from beyond their sky.
-
-In the eyes of these Stone Age folk, the doctor in her white coat and the master of the iron carriage were divine beings who held dominion over lightning and the voices of the cosmos.
 
 Suddenly, a deep subsonic resonance vibrated through the bedrock once more, as the atmospheric distortion above the cliffs began to twist and decelerate.
 
