@@ -8,11 +8,11 @@ Thame handed over his adjustable aluminum trekking pole to serve as her crutch a
 
 Hobbling step by agonizing step across the roadless alpine terrain, their pace slowed to a crawl, forcing a mandatory bivouac night beneath their previous cliff overhang to boil venison and recuperate.
 
-At dawn on Day 15, they pushed forward through the entire second day, Thame and Elya taking turns supporting Dr. Nicha over the rocky shelves along their previous tracks.
+At dawn on Day 15, they pushed forward from first light, Thame and Elya taking turns supporting Dr. Nicha over the rocky shelves along their previous tracks.
 
-Only as dusk settled heavily over the mountains did they surmount the final limestone col, revealing the natural horseshoe basin of Fortress Alpha below.
+After nearly nine hours of grueling trek, they finally crested the final limestone col in the late afternoon, revealing the natural horseshoe basin of Fortress Alpha below.
 
-The 200W solar-powered LED floodlight mounted high upon the timber palisade carved through the swirling valley fog, glowing like an amber beacon in the primeval gloom.
+The formidable timber palisade and gentle curls of warm chimney smoke caught the pale afternoon sun, standing as a miraculous sanctuary amidst the primeval wilderness.
 
 "Is that... is that truly your iron fortress?!" Dr. Nicha gasped, her breath billowing in white clouds as her eyes widened in profound disbelief.
 
