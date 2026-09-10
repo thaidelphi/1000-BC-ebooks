@@ -106,29 +106,54 @@ Beside it sat a **Baseus 30,000 mAh 65W fast-charging power bank** with its digi
 
 "The ultimate salvation payload!" Thame instantly connected the two-terabyte SSD directly into his smartphone's Type-C port via high-speed OTG, powered directly by the phone's fully charged battery.
 
-Harnessing the gigabit-speed 5G pipeline surging through the temporal conduit, Thame tapped the pinned emergency link in the forum war room, where members and modern experts had assembled a master offline civilization archive for him!
+Channeling the 5G signal from the modern world surging through the dimensional rift, Thame tapped the pinned link in the forum war room—the emergency civilization archive that the expert team had spent two weeks assembling for exactly this moment.
 
-The complete offline Wikipedia encyclopedias (Kiwix) in both Thai and English, containing full diagrams, scientific blueprints, and civilizational history exceeding five hundred gigabytes.
+But the instant the download dialog appeared, he froze: **Total file size: 847 gigabytes.**
 
-Historical chronicles, agrarian science, foundational mechanical engineering, and civil governance frameworks poured into the drive without pause.
+He ran the math in his head—engineer's reflex. Even if 5G was peaking right now, a cross-dimensional signal wasn't stable like fiber-optic glass. The real average throughput would be forty to sixty megabits per second at best. That meant—at the very fastest—over three hours to download everything.
 
-Field medical treatises, the complete Merck Manual, surgical atlases, clinical pharmacology, emergency obstetrics, and laboratory guides for extracting natural antibiotics.
+And the aurora twitching above him made it crystal clear: he did not have three hours.
 
-Protocols for culturing penicillium mold on citrus rinds to produce crude penicillin broth, along with formulas for botanical local anesthetics, were systematically archived.
+"Nicha!... How long before the rift closes?" he called out, fingers already flying across the screen.
 
-Protocols for diagnosing endemic tropical pathogens, fabricating field surgical instruments, and scientifically validating ancient herbal remedies were secured.
+"The aurora is contracting faster and faster!" she called back. "Fifteen minutes. Twenty at the absolute most!"
 
-Metallurgical engineering, ancient bloomery and blast furnace designs, bronze casting, mechanical gearworks, hydraulic turbines, and chemical formulas for black powder.
+Fifteen minutes. At best, fifteen to twenty gigabytes. Out of eight hundred and forty-seven.
 
-Agricultural cultivation blueprints, cold-climate agronomy, seed gene preservation, prehistoric Asian satellite geological surveys, and sub-surface ore deposit mappings.
+Thame made the call in under two seconds—selective manual download, not 'download all':
 
-The download progress bar blasted forward at hundreds of megabits per second across the Type-C port: twenty-five percent... fifty-five percent... eighty-five percent...
+**Priority one: Emergency field medicine** — Merck Manual Emergency, anatomy, surgery, pharmacology, obstetrics. Because Dr. Nicha's ability to keep people alive depended on these.
 
-And at last, the counter locked onto **one hundred percent complete!** followed by the chime of successful database compilation on the 2TB drive.
+**Priority two: Natural antibiotic extraction protocols** — penicillium mold on citrus rinds, willow bark, pine resin. Because the medical supplies in the crates would run out.
 
-Over eight hundred and fifty gigabytes of humanity's crowning wisdom, gathered across ten millennia, was safely committed into the solid-state drive in under ten minutes.
+**Priority three: Primitive metallurgy and bloomery construction** — because the bent axles and leaf springs on the truck were the finest steel available for ten thousand years.
 
-Thame caressed the rugged drive in profound gratitude; the seeds of modern intellect and technological enlightenment had been successfully transplanted into the Stone Age.
+**Priority four: Wheat and barley cultivation fundamentals** — the bedrock of every civilization that would follow.
+
+He selected files in rapid batches and launched the download. The progress bar climbed—speed surging and dropping with no rhythm. One moment it hit sixty megabits; the next it crashed to two or three as the signal wavered with every pulse of the shrinking aurora.
+
+"It's slowing down!" He gritted his teeth, pressing the screen harder—as though pressure could make it faster.
+
+Twenty percent... speed dropped hard. Four bars remaining...
+
+Thirty-five percent... back to five bars, briefly faster...
+
+Fifty percent... the aurora shuddered. Signal crashed to two bars. The download bar stalled for a full five seconds. Thame held his breath.
+
+Then it came back—four bars, five bars! The transfer resumed...
+
+Sixty-three percent... seventy-seven percent... *"Just a little more!"*
+
+And then, as the signal began to fail, the number froze at **eighty-eight percent.**
+
+The signal died. Alert: "Download interrupted — connection lost."
+
+Thame stared at the screen. Fifty-four gigabytes out of 61 GB selected had completed. Medical and pharmacological data: eighty-nine percent intact. Basic metallurgy and agronomy: partially recovered. What was missing: the advanced refining manuals and deep-mineral survey maps.
+
+Not complete. But enough to reshape the Stone Age.
+
+Thame slid his thumb over the rugged drive casing — still faintly trembling. There was enough light here to begin. Not every star, but enough to navigate.
+
 
 Suddenly, a deep subsonic resonance vibrated through the bedrock once more, as the atmospheric distortion above the cliffs began to twist and decelerate.
 
