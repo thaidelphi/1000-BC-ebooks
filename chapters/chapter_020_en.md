@@ -136,7 +136,7 @@ Terrified by the thunderous horn of iron and the blinding eye of the sun, the st
 
 Elya, standing at Thame's side, locked her gaze onto the curved ram-horn totems carved upon the elder's chest. She tugged Thame's sleeve, pointing with urgent gestures: "Argal!... Them... Mountain Sheep Clan!"
 
-She mimed herding along high crags, then rubbed her stomach and shivered, indicating they were peaceful alpine nomads driven down from the frozen peaks by starvation seeking sanctuary.
+She mimed herding along high crags and pointed into the predator-stalked darkness, indicating they had fled the frozen summits all day; without following the distant light and warmth, their children and elders would have frozen to death tonight.
 
 "Lower your weapons, everyone! They are not enemies!" Thame commanded firmly.
 
