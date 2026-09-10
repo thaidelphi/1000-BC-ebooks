@@ -22,7 +22,7 @@ Thame scrambled down the steep scree slope with calculated care, conducting an i
 
 Both front tires were shredded and the rear leaf springs buckled, yet along the passenger door gleamed a distinct green agency seal: **"Department of National Parks, Wildlife and Plant Conservation — Mobile Wildlife Epidemiology Unit."**
 
-The faint odor of vaporized gasoline and motor oil hung in the frozen air, mingled with the scent of long-extinguished scorched wire.
+The faint odor of vaporized diesel fuel and motor oil hung in the frozen air, mingled with the scent of long-extinguished scorched wire.
 
 Dried blood crusted across the driver's seat, but there was no corpse; only indications of an expedition pack hastily dragged free, and the distinct waffle-soled tracks of hiking boots scrambling frantically toward an upper snow cave.
 
