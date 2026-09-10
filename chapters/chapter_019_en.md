@@ -12,7 +12,7 @@ Aggressive all-terrain tire treads pressed into the glazed ice shelf confirmed a
 
 Black plastic bumper shards and trails of leaked hydraulic fluid led the eye down into the precipitous chasm.
 
-"There... the iron beast that lies upon its back!" Elya pointed eagerly toward the shadowy crevasse below.
+Elya trilled a sharp hunter's signal, pointing eagerly down into the shadowy chasm with wide eyes: "Thame... iron beast!" she called, mixing her primal dialect with the strange words she had learned.
 
 Wedged tight within a snow-choked glacial cleft, a dark blue vehicle lay overturned with its wheels pointing toward the sky, pinned between colossal granite slabs.
 
@@ -118,9 +118,9 @@ Also stowed inside were four spare sedative canisters and sterile scalpel blades
 
 Thame used heavy-duty zip ties to lock the chest down and secure the medical assets firmly to his expedition pack.
 
-Yet as relief bloomed, Elya, who had climbed atop the black monolith rock spire to stand watch, called down in a strained, urgent voice.
+Yet as relief bloomed, Elya, who had climbed atop the black monolith rock spire to stand watch, whistled a sharp scout signal and urgently waved for Thame to join her.
 
-"Thame... come see this! Quickly!"
+"Thame!... Look!" she whispered tensely, pointing toward the crest of the black monolith.
 
 Thame and Dr. Nicha scrambled up the steep stone spire.
 

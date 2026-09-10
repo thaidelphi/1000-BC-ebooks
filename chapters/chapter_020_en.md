@@ -134,9 +134,9 @@ Terrified by the thunderous horn of iron and the blinding eye of the sun, the st
 
 "Spare us... O Great Sun God... we freeze... we starve..." the elderly patriarch pleaded in archaic guttural tones.
 
-Elya, standing at Thame's side, locked her gaze onto the ram-horn totems carved upon the elder's chest and gasped: "They are... the **Mountain Sheep Clan**!"
+Elya, standing at Thame's side, locked her gaze onto the curved ram-horn totems carved upon the elder's chest. She tugged Thame's sleeve, pointing with urgent gestures: "Argal!... Them... Mountain Sheep Clan!"
 
-"A peaceful nomadic tribe from the high peaks... the early winter freeze has starved them from their hunting grounds," Elya explained softly.
+She mimed herding along high crags, then rubbed her stomach and shivered, indicating they were peaceful alpine nomads driven down from the frozen peaks by starvation seeking sanctuary.
 
 "Lower your weapons, everyone! They are not enemies!" Thame commanded firmly.
 
