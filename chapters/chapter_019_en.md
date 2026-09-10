@@ -98,11 +98,13 @@ A profound, echoing silence settled over the snowbound shelf, punctuated only by
 
 Before doing anything else, Thame and Elya moved swiftly to recover their carbon projectiles. In a savage epoch ten thousand years prior to the advent of modern metallurgy, high-strength carbon shafts and surgical broadheads were irreplaceable munitions that could never be squandered. Bracing his boot against the dead scout's ribs, Thame wrenched his crossbow bolt free, wiped the crimson clean against the icy crust, and inspected the straight, true spine. Elya likewise extracted her arrow from the fallen wolf, both carefully returning their retrieved munitions to their quivers.
 
-Dr. Nicha collapsed to her knees in the snow, the dart projector slipping from her trembling fingers as tears of overwhelming relief welled behind her goggles at the sound of her native language.
+The young woman collapsed to her knees in the snow, the dart projector slipping from her trembling fingers as tears of overwhelming relief welled behind her goggles at the sound of her native language.
 
-"You... you're Thai? There really are other survivors besides me..." Dr. Nicha wept, tears cutting clean tracks through the soot on her cheeks.
+"You... you're Thai? There really are other survivors besides me..." she wept, tears cutting clean tracks through the soot on her cheeks. "I'm Nicha... a wildlife veterinarian with the National Parks Department. My truck went over the cliff..."
 
-Thame knelt, gently lifting her to her feet and passing her an insulated flask of warm water: "You're safe now, Doctor. I'm Thame... We have a fortified encampment and allies waiting just behind us."
+Thame's eyes caught the embroidered Velcro patch on her tactical field vest: **"Dr. Nicha, D.V.M."**, matching the mobile epidemiology insignia on the overturned pickup truck he had just surveyed in the crevasse.
+
+Thame knelt, gently lifting her to her feet and passing her an insulated flask of warm water: "You're safe now, Dr. Nicha. I'm Thame... We have a fortified encampment and allies waiting just behind us."
 
 Dr. Nicha drank deeply, warmth and clarity slowly returning to her shivering body.
 
