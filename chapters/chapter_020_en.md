@@ -114,7 +114,7 @@ Then, out of the silent glacial night...
 
 The 200W floodlight above the chokepoint erupted like a miniature sun, obliterating the pitch-black darkness!
 
-*BRRRRRRRRRRAAAAAAAAP-BOOM!*
+*HONNNNNNNNNNNNNNNNNK—BLARRRRRRRR!*
 
 The 130 dB dual truck air horns bellowed with deafening, earth-shaking thunder, their sound waves ricocheting violently off the forty-meter limestone cliffs!
 
