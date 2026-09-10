@@ -106,7 +106,7 @@ Beside it sat a **Baseus 30,000 mAh 65W fast-charging power bank** with its digi
 
 "The ultimate salvation payload!" Thame instantly connected the two-terabyte SSD directly into his smartphone's Type-C port via high-speed OTG, powered directly by the phone's fully charged battery.
 
-Harnessing the gigabit-speed 5G pipeline surging through the temporal conduit, Thame triggered a massive automated offline data download sequence:
+Harnessing the gigabit-speed 5G pipeline surging through the temporal conduit, Thame tapped the pinned emergency link in the forum war room, where members and modern experts had assembled a master offline civilization archive for him!
 
 The complete offline Wikipedia encyclopedias (Kiwix) in both Thai and English, containing full diagrams, scientific blueprints, and civilizational history exceeding five hundred gigabytes.
 
