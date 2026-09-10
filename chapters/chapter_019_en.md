@@ -108,11 +108,11 @@ Thame knelt, gently lifting her to her feet and passing her an insulated flask o
 
 Dr. Nicha drank deeply, warmth and clarity slowly returning to her shivering body.
 
-"I thought I was going to die alone in this frozen nightmare..." she whispered softly, clutching their hands in gratitude.
+"I thought I was going to die alone in this frozen nightmare..." Dr. Nicha whispered through shuddering breaths. "When my truck crashed four days ago, I dragged my field pack and expedition sleeping bag up into this cave... I managed to survive by rationing half an energy bar a day and melting clean snow to drink. But my food ran dry this morning, and that sedative dart was my absolute last line of defense..."
 
 The meeting of two modern souls from the twenty-first century in the world of ten thousand BC was an invaluable miracle.
 
-Dr. Nicha led Thame inside the shallow cave to retrieve a reinforced veterinary field trunk she had salvaged from the truck, packed with injectable anesthetics, antibiotics, syringes, surgical suture kits, and antivenom serums.
+Dr. Nicha led Thame inside the shallow cavern, where her down sleeping bag lay unrolled over an insulated foam mat beside a heavy veterinary field trunk salvaged from the truck, packed with injectable anesthetics, antibiotics, syringes, surgical suture kits, and antivenom serums.
 
 Also stowed inside were four spare sedative canisters and sterile scalpel blades that remained completely sealed.
 
