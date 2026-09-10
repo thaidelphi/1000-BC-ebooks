@@ -128,7 +128,7 @@ Upon the flat summit, Thame felt a sharp, pungent stench of ozone crackling in t
 
 Swirling at the center of the plateau was a residual, vortex-like shimmer of violet-indigo light hovering in mid-air—the unmistakable footprint of a **Temporal Rift**!
 
-Thame pulled out his Blackview smartphone to open the magnetometer compass; the magnetic induction readings spiked into the red zone.
+Thame pulled out his Blackview smartphone and opened the digital compass app; the on-screen needle spun wildly out of control, flashing a bright red alert: 'Extreme Magnetic Interference Detected'.
 
 Suddenly, the cellular reception bars on his screen—usually dead or hovering at a flickering 2G—surged momentarily to full 4G bars! A flurry of notification pings rang out before fading back into static.
 
