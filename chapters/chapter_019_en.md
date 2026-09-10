@@ -108,7 +108,7 @@ Thame knelt, gently lifting her to her feet and passing her an insulated flask o
 
 Dr. Nicha drank deeply, warmth and clarity slowly returning to her shivering body.
 
-"I thought I was going to die alone in this frozen nightmare..." Dr. Nicha whispered through shuddering breaths. "When my truck crashed four days ago, I dragged my field pack and expedition sleeping bag up into this cave... I managed to survive by rationing half an energy bar a day and melting clean snow to drink. But my food ran dry this morning, and that sedative dart was my absolute last line of defense..."
+"I thought I was going to die alone in this frozen nightmare..." Dr. Nicha whispered through shuddering breaths. "My truck was pulled into this strange world during that freak fog storm two weeks ago... For the first ten days, I took shelter inside the overturned cab, surviving on bottled water and emergency rations from the vehicle. But when that massive blizzard rolled in four days ago, dire wolves began circling the wreck. I had no choice but to haul my expedition pack, down sleeping bag, and the medical trunk up into this rocky cleft... I managed to hold out by rationing half an energy bar a day and melting clean snow to drink. But my food ran completely dry this morning, and that sedative dart was my absolute last line of defense..."
 
 The meeting of two modern souls from the twenty-first century in the world of ten thousand BC was an invaluable miracle.
 
