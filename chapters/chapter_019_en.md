@@ -16,7 +16,7 @@ Black plastic bumper shards and trails of leaked hydraulic fluid led the eye dow
 
 Wedged tight within a snow-choked glacial cleft, a dark blue vehicle lay overturned with its wheels pointing toward the sky, pinned between colossal granite slabs.
 
-It was a lifted Toyota Hilux Revo 4WD pickup, outfitted with heavy steel roll bars and an expedition snorkel, its cab roof caved inward and windshield shattered.
+It was a lifted 4WD pickup truck, outfitted with heavy steel roll bars and an expedition snorkel, its cab roof caved inward and windshield shattered.
 
 Thame scrambled down the steep scree slope with calculated care, conducting an immediate, thorough inspection of the wreckage.
 
