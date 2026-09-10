@@ -160,7 +160,7 @@ They were preparing to march their warband of twenty-some warriors to obliterate
 
 Two devastating truths stood laid bare: hope of connecting home through the temporal rift was real... but Fortress Alpha and the people who trusted Thame were about to be massacred!
 
-"If we just run home... Kuran, Tara, Moka... everyone in the camp will be slaughtered," Thame rasped, his knuckles whitening as his nails bit into his palms.
+"If we choose to abandon the camp and stay here waiting for the rift just to save ourselves... Kuran, Tara, Moka... everyone in the camp will be slaughtered," Thame rasped, his knuckles whitening as his nails bit into his palms.
 
 Dr. Nicha met Thame's gaze, her eyes blazing with fierce conviction: "I'm a doctor... I will never abandon my patients or the people who saved my life!"
 
