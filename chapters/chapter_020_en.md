@@ -1,14 +1,14 @@
 # Chapter 20: The Desperate Race, Dr. Nicha's Clinic & First Peaceful Contact
 
-The fifteen-kilometer return trek across the treacherous Western Pass could not be made swiftly, especially with Dr. Nicha suffering from a badly sprained right ankle and profound starvation.
+The fifteen-kilometer return trek across the rugged Western Pass was devoid of any paths or trails, littered with jagged granite scree and ice crevasses that made any sledge or cart utterly useless.
 
-Thame and Elya spent crucial hours felling tough alpine pine boughs and lashing them together with 550 paracord to fashion an **improvised bushcraft travois**.
+Dr. Nicha had to tightly immobilize her sprained right ankle with elastic compression wraps and heavy-duty duct tape, locking the joint so she could limp under her own power without rolling it.
 
-Lined with thermal bubble wrap, the sledge allowed Dr. Nicha to extend her swollen leg in safety, flanked by the securely lashed veterinary trauma chest.
+Thame handed over his adjustable aluminum trekking pole to serve as her crutch alongside a sturdy pine staff carved by Elya, while Thame shouldered the 65-liter pack lashed with the heavy medical chest.
 
-Thame and Elya took turns hauling the harness through the snow drifts, halting for a mandatory bivouac night beneath their previous cliff overhang where they boiled smoked venison to rebuild their strength.
+Hobbling step by agonizing step across the roadless alpine terrain, their pace slowed to a crawl, forcing a mandatory bivouac night beneath their previous cliff overhang to boil venison and recuperate.
 
-Setting out at dawn on Day 15, they pushed through the entire second day, retracing their packed footprints and relying on the tensioned traverse lines previously anchored across the crevasses.
+At dawn on Day 15, they pushed forward through the entire second day, Thame and Elya taking turns supporting Dr. Nicha over the rocky shelves along their previous tracks.
 
 Only as dusk settled heavily over the mountains did they surmount the final limestone col, revealing the natural horseshoe basin of Fortress Alpha below.
 
