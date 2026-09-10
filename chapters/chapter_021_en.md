@@ -1,167 +1,167 @@
 # Chapter 21: The White Shaman Miracle, Auroral Rift & The 10,000-Year Wire
 
-Atop the ten-wheeler's cab, Thame and Dr. Nicha stood frozen, their eyes locked on the sky rippling in violent waves of prismatic violet aurora.
+High atop the ten-wheeler's steel roof rack in the biting alpine wind, Thame and Dr. Nicha stood frozen, their eyes locked in sheer awe at the sky above the ancient monoliths.
 
-Yet before either could decipher the cosmic anomaly, Elder Bathor's desperate, agonized cries echoed from the courtyard below.
+The upper atmosphere was actively tearing open, as brilliant ribbons of prismatic violet and emerald aurora spiraled into a colossal atmospheric vortex across the celestial vault.
 
-The patriarch sprinted frantically toward the cargo container carrying his ten-year-old grandson, the boy burning with fever and convulsing in sheer agony.
+Gravitational lensing distorted the starlight around the limestone precipices, bending the heavens like a vast, rippling ocean surface stirred by an invisible leviathan.
 
-"White Shaman!... Save my grandson!... Kamin cannot swallow broth, he is screaming in terrible belly pain!"
+The Big Dipper and Orion's belt warped into luminous curves across the void, reflecting the terrifying physical reality of spacetime folding upon itself.
 
-Thame and Dr. Nicha leaped down from the cab, rushing straight into the partitioned field clinic to take the boy into their care.
+Pungent ozone flooded the entire valley on the freezing mountain gale, blending with the scent of fresh pine needles and pristine glacial frost.
 
-The atmosphere within the makeshift clinic tightened with razor-sharp urgency as the child's ragged whimpers pierced the warm air.
+Surging static electricity crackled through the air, making their hair, arm hair, and the windbreak tarps laced around the perimeter flutter and bristle with tension.
 
-Upon a wooden stretcher lined with clean waterproof tarps, a ten-year-old boy curled into a rigid fetal ball, his jaw clamped tight as his teeth chattered uncontrollably.
+Dr. Nicha gripped the roof rack railing tightly, feeling micro-vibrations hum through the truck's heavy chassis like a slumbering machine pulsing with celestial energy.
 
-The boy's face was chalk-white, his lips cracked and parched, while cold sweat beaded across his brow from a spiking forty-degree fever.
+Faint blue St. Elmo's fire danced along the truck's steel tubing and side mirrors, hissing softly against the profound silence of the prehistoric night.
 
-"Kamin!... My grandson!..." Elder Bator, patriarch of the Mountain Sheep refugees, knelt sobbing beside the cot, clutching the boy's limp hand in despair.
+On Thame's smartphone digital compass, electromagnetic readings spiked past three hundred microteslas, the needle spinning wildly beneath flashing crimson interference warnings.
 
-Dr. Nicha checked the boy's radial pulse, finding it alarmingly rapid and thready, his shallow respirations signaling acute physiological distress.
+The camp's LED work lights, powered by the Pelton hydro generator, flickered in rhythmic pulses beneath the overwhelming electromagnetic induction.
 
-Clad in her white wildlife veterinarian field coat, the doctor gently pressed her fingertips into the boy's lower right abdomen; he convulsed with an agonizing scream.
+And in that breathless heartbeat of cosmic wonder, the smartphones nestled in Thame's heavy coat and Dr. Nicha's white clinical gown vibrated violently in unison!
 
-"Board-like abdominal wall rigidity... and acute, unmistakable rebound tenderness," Dr. Nicha murmured, looking up at Thame with grim, shadowed eyes.
+The signal bar in the screen's upper corner, dead with 'No Service' for fifteen long days, surged instantly to full strength: **a rock-solid, uninterrupted 5G lock!**
 
-"Acute perforated appendicitis... and it's going to rupture within hours," the doctor's voice trembled with immense clinical tension.
+The system clock and network calendar instantly synchronized back to the year 2026—confirming exactly fifteen days had elapsed in the modern world since their fall.
 
-"If that appendix bursts, bacterial peritonitis will flood his abdominal cavity, and septic shock will claim his life before sunrise."
+The timestamp declared with chilling clarity that they had been displaced for over two weeks, while modern search efforts were grinding to a hopeless halt.
 
-"Then we operate right here, right now, Doctor," Thame answered with unyielding resolve. "We have the sterile scalpel kit, Lidocaine local anesthetic, and injectable antibiotics salvaged from your truck."
+A deafening cascade of notification chimes, LINE pings, unread emails, and missed-call alerts erupted like machine-gun fire, illuminating the dark limestone valley in bright light.
 
-"But I'm a wildlife veterinarian... I've operated on leopards and bears in the jungle, never on a human child in a field clinic without general anesthesia!" Nicha swallowed hard against a parched throat.
+Brilliant glow from the smartphone screens bathed their wide, astonished eyes in stark illumination against the freezing darkness of the primeval basin.
 
-"I'll serve as your surgical scrub assistant," Thame offered a steadying hand. "And Shaman Moka is here with medicinal analgesic decoctions."
+Familiar lock-screen wallpapers displaying family portraits and modern city skylines lit up, emphasizing the staggering contrast between civilization and the ice-age void.
 
-Old Shaman Moka sat cross-legged beside the cot, his gnarled hands holding an earthenware bowl of concentrated willow bark and pine resin brew to suppress fever and pain.
+Breaking news headlines flashed across their feeds: "Day 15 of massive search for missing express delivery truck and wildlife rescue pickup in Inthanon pass..."
 
-The elder shaman smudged dried pine resin to cleanse the air, demonstrating a breathtaking synergy between prehistoric bushcraft and modern medical science.
+Reports stated that mountain rescue units and search helicopters had discovered zero wreckage or tire tracks in the abyss, as though both vehicles had vanished into thin air.
 
-Using shears, Thame sliced clean poly sheets from logistics parcels, hanging a sterile isolation curtain to seal off dust and drifting frost flakes.
+"Nicha!... The temporal rift has reconnected our communications with the modern world!" Thame shouted in raw exhilaration, his heart hammering against his ribs.
 
-A 12-volt LED task light hooked directly into the Pelton hydro line bathed the stretcher in bright, shadowless illumination.
+"But the auroral vortex is violently unstable!" Dr. Nicha pointed up at the pulsing funnel. "This dimensional bridge might only hold for fifteen or twenty minutes at most!"
 
-Thame brought the titanium pot to a rolling boil over the stove, meticulously sterilizing stainless hemostatic forceps, tissue pickups, and a number eleven scalpel blade.
+"If this rift snaps shut, we may never receive another transmission from our century again!" the doctor added in a trembling voice.
 
-Yet in the exact instant Dr. Nicha snapped on sterile latex gloves, a deep, subsonic hum vibrated upward through the limestone bedrock.
+"We have to seize this golden window to download everything human civilization has ever built!" Thame vaulted down the access ladder, sprinting straight into the cargo container.
 
-A low-frequency rumble shuddered through the air until eardrums rang; in the distant taiga, the dire wolves stopped howling, plunged into absolute, terrified silence.
+The young courier dashed into the Blue Zone shelving, scanning the manifest labels for the premium IT equipment he had memorized days ago.
 
-Static electricity crackled across the truck's aluminum body panels, spitting tiny blue sparks whenever fingertips brushed metal.
+His hands clamped onto a reinforced cardboard carton labeled `#TH-331829` (1.5 kg), slicing through its security tape in one fluid slash.
 
-Aloft the cab roof, Elya—standing watch as the night scout—blew a frantic series of short whistle bursts before gesturing wildly toward the crags.
+Inside lay a pristine **ruggedized SanDisk Extreme Portable SSD 2TB (IP55 water/drop resistant)** fitted with an integrated aluminum carabiner loop.
 
-"Thame!... Look!... Sky shattered!" Elya cried out in a trembling whisper, pointing toward the black monolith spire.
+The bright orange rubber bumper and tactical alloy frame felt reassuringly solid, engineered to withstand the harshest field environments on Earth.
 
-Thame burst through the container doors, scrambled atop the truck's cab roof, and looked up into the heavens.
+Beside it sat a **Baseus 30,000 mAh 65W fast-charging power bank** with its digital display reading 100% full capacity, and **heavy-duty 100W braided nylon USB-C cables**.
 
-The spectacle that greeted his eyes seized the breath straight from his chest.
+"The ultimate salvation payload!" Thame instantly hooked the power bank to his phone to prevent battery shutdown and plugged the high-speed data cable from the phone into the 2TB SSD.
 
-The upper atmosphere above the black rock pillar twisted like boiling oil; celestial constellations warped and refracted into shimmering prismatic halos.
+Harnessing the gigabit-speed 5G pipeline surging through the temporal conduit, Thame triggered a massive automated offline data download sequence:
 
-Suddenly, an immense undulating vortex of incandescent ultraviolet, deep indigo, and emerald aurora ignited across the stratosphere—the **Temporal Rift** had torn wide open directly above the valley!
+The complete offline Wikipedia encyclopedias (Kiwix) in both Thai and English, containing full diagrams, scientific blueprints, and civilizational history exceeding five hundred gigabytes.
 
-A suffocating stench of ozone filled the crisp air, while static fields raised every hair on their arms; the compass needle on Thame's chest spun like an untethered gyroscope.
+Historical chronicles, agrarian science, foundational mechanical engineering, and civil governance frameworks poured into the drive without pause.
 
-On Thame's Blackview rugged phone, the digital compass magnetic sensor spiked beyond 300 microteslas, flashing bright crimson: 'Extreme Electromagnetic Anomaly Detected'.
+Field medical treatises, the complete Merck Manual, surgical atlases, clinical pharmacology, emergency obstetrics, and laboratory guides for extracting natural antibiotics.
 
-In that fractional second, the smartphones nestled in Thame's and Dr. Nicha's coat pockets vibrated violently in wild, continuous pulses!
+Protocols for culturing penicillium mold on citrus rinds to produce crude penicillin broth, along with formulas for botanical local anesthetics, were systematically archived.
 
-The cellular reception bars—dead for fourteen grueling days—surged into a rock-solid, uninterrupted **5G Full Signal** as electromagnetic carrier waves poured through the open rift!
+Protocols for diagnosing endemic tropical pathogens, fabricating field surgical instruments, and scientifically validating ancient herbal remedies were secured.
 
-A torrential barrage of WhatsApp pings, LINE notifications, emails, and missed call alerts clattered like rapid-fire machine guns, illuminating Thame's face in the dark.
+Metallurgical engineering, ancient bloomery and blast furnace designs, bronze casting, mechanical gearworks, hydraulic turbines, and chemical formulas for black powder.
 
-Breaking news headlines flashed across the screen: "Fourteen Days of Search for Missing Courier Truck and Rescue Vehicle in Chiang Mai Canyon Still Yields Zero Wreckage..."
+Agricultural cultivation blueprints, cold-climate agronomy, seed gene preservation, prehistoric Asian satellite geological surveys, and sub-surface ore deposit mappings.
 
-"The temporal rift is wide open!... The signal stays at full bars the entire time the portal remains open!" Thame shouted in wild exhilaration.
+The download progress bar blasted forward at hundreds of megabits per second across the Type-C port: twenty-five percent... fifty-five percent... eighty-five percent...
 
-"We don't know how long it will hold... ten minutes, perhaps twenty!" Thame spun toward the clinic. "Doctor! Video call your senior surgical mentor right now!"
+And at last, the counter locked onto **one hundred percent complete!** followed by the chime of successful database compilation on the 2TB drive.
 
-Dr. Nicha dashed back into the triage clinic, her trembling thumbs tapping a high-definition video call to Dr. Kitti, Chief of Emergency Trauma Surgery at Chiang Mai University Hospital.
+Over eight hundred and fifty gigabytes of humanity's crowning wisdom, gathered across ten millennia, was safely committed into the solid-state drive in under ten minutes.
 
-The dial tone rang merely twice before the high-definition image of a middle-aged surgeon in emerald scrub attire materialized crisply on screen.
+Thame caressed the rugged drive in profound gratitude; the seeds of modern intellect and technological enlightenment had been successfully transplanted into the Stone Age.
 
-"Nicha?!... Is that truly you?!" the voice exploded from the speaker, as the senior surgeon dropped his ceramic coffee mug, shattering it across the hospital breakroom desk.
+Meanwhile, atop the ten-wheeler, Dr. Nicha held her phone with trembling hands before pressing the video call button to her mother.
 
-"Where have you been for fourteen days?! Police, rangers, rescue units have scoured the ravines of Inthanon for your truck!"
+The ring chime sounded only twice before the high-definition image of her elderly mother, tear-stained and worn by grief, materialized on the screen.
 
-"Ajarn! Listen to me!" Dr. Nicha held back tears, locking into steely professional focus. "I am alive and safe, but I have a pediatric emergency with perforated appendicitis about to burst!"
+Visible behind her mother was the familiar living room, framed family photos on the wall, and the evening television news—the mundane warmth of a home ten thousand years away.
 
-"I have no surgical suite, only two-percent Lidocaine, scalpels, and nylon sutures—guide me through the field incision and appendectomy!"
+The teacup in her mother's hand shattered on the floor, her eyes widening in absolute shock: "Nicha?!... My child!... You are truly alive?!"
 
-Dr. Kitti froze for a mere heartbeat before surgical instinct swept away all disbelief; he turned to summon his surgical resident to pull up pediatric anatomy charts.
+"Mom!... It's me!" Dr. Nicha burst into tears of overwhelming relief, wiping her cheeks. "Thame and I survived! Both of us are completely safe and unharmed!"
 
-The crystal-clear 5G video feed broadcasted every bead of sweat on Nicha's forehead and the razor sheen of her scalpel in breathtaking fidelity.
+"Where are you?! The rescuers said the vehicle plunged down a deep gorge and washed away, the police couldn't even find wreckage!" her mother wept uncontrollably.
 
-"Flip to the rear camera and angle the light!" the master surgeon commanded. "Palpate the anterior superior iliac spine and umbilicus. McBurney's point lies one-third of the distance from the hip!"
+"Mom... listen to me. I am in a place far beyond imagination, but I have food, warm shelter, allies, and I am using my medical knowledge to save countless lives."
 
-"Infiltrate the Lidocaine in a wide fan pattern beneath the dermis and muscle fascia... Wait two minutes for anesthesia, then make a three-centimeter transverse incision along Langer's lines!"
+"The ancient people here are noble and caring, they look after us like family. I am not alone, Mom," Nicha smiled through her tears.
 
-Prehistoric warriors Kuran, Moka, and the Mountain Sheep clan elders fell to their knees in paralyzed awe, trembling against the floor.
+A single tear rolled onto the glass screen; Dr. Nicha drew a steady breath, knowing that preserving human life in this prehistoric dawn was the greatest honor of her calling.
 
-To their eyes, the glowing glass slate speaking with a living human elder in green vestments was none other than the "Great Ancestral Spirit of Light" guiding the white-gowned shaman.
+"My connection window is closing fast... Please take care of your health, Mom, do not weep for me. I am surviving with fierce strength... I love you more than life itself!"
 
-Old Shaman Moka reverently touched a pinch of sea salt to the edge of the glass phone, paying sacred homage to the spirit of medicine.
+Thame bounded back up to the roof, holding up his phone to record a high-resolution audiovisual dispatch, transmitting it directly to his family chat and the provincial police command:
 
-Meanwhile, Thame sprinted into Zone Blue of the cargo container, seizing parcel `#TH-331829` (1.5 kg) and slicing through its logistics tape with his multi-tool.
+"Mom... Uncle Dech, and everyone in the mountain rescue team... this is Thame, northern route logistics courier," his voice rang firm and resolute.
 
-Within lay a **SanDisk Extreme 2TB Rugged Portable SSD (IP55 water/shock resistant)**, a **Baseus 30,000 mAh 65W Fast-Charging Power Bank**, and **heavy-duty braided nylon 100W USB-C data cables**.
+"Dr. Nicha and I survived the accident. We were pulled through an impossible spatial anomaly into a primeval wilderness ten thousand years in the past."
 
-"Thank God!" Thame bridged the high-capacity power bank to prevent any battery drop, snapped the 2TB drive into his phone's USB-C port, and launched his bulk archiving suite.
+"Please do not risk any more lives searching the ravines for us. Every parcel and medical supply is being used to sustain hundreds of lives here."
 
-Harnessing the blazing gigabit 5G throughput flooding through the celestial rift, Thame initiated bulk downloads of humanity's archived legacy:
+"We have food, power, and shelter, and we are forging a new civilization... Tell my mother that I love her, and never to worry about me!"
 
-The complete Kiwix offline Wikipedia in Thai and English, encompassing millions of articles, high-resolution technical schematics, and botanical encyclopedias totaling over 500 gigabytes.
+The messages and video clips transmitted through the 5G conduit into modern servers, marked with brilliant green checkmarks of confirmed delivery.
 
-The Merck Manual of Diagnosis and Therapy, emergency field surgery atlases, metallurgy textbooks, primitive blast furnace blueprints, satellite geological surveys, and civil hydraulics.
+Down in the courtyard below, every ancient soul—Kuran, Shaman Moga, little Tara, El-ya, and all twelve Mountain Sheep refugees—stood paralyzed in sheer bewilderment.
 
-Thame swiftly queued cold-hardy agricultural germination guides and primitive Penicillium mold culturing manuals into the download queue.
+They stared in awe at the glowing rectangular glass tablets in Thame's and Dr. Nicha's hands, showing living, moving human beings speaking across the heavens.
 
-The progress bars surged at supersonic velocity: twenty percent... sixty percent... eighty-five percent... one hundred percent complete!
+The resonant foreign cadences ringing out from the luminous glass slabs held every soul in the compound completely spellbound.
 
-The supreme intellectual heritage of Homo sapiens across three hundred millennia was permanently etched into the pocket-sized silicone drive in less than ten minutes.
+"Spirits of the star-realm..." Shaman Moga whispered in a trembling voice, falling to his knees in the snow and bowing in supreme veneration toward the glowing screens.
 
-Inside the clinic, Dr. Nicha incised the external oblique aponeurosis smoothly along its fibers, retracting adipose layers to enter the peritoneum.
+Kuran, a seasoned chieftain who never flinched before cave bears or dire beasts, reached out a trembling hand to touch the truck's tire, as if honoring a celestial beast.
 
-"Cecum visualized... deliver the appendix gently into the field!" Dr. Kitti's calm voice guided through the loudspeaker.
+Elder Bathor, cradling young Kamin wrapped securely in his warm silver Mylar blanket, slowly dropped to his knees, tears of sacred reverence spilling down his cheeks.
 
-"There it is! Turgid, dusky-purple, on the verge of perforation... Clamp the mesoappendix with hemostats, double-ligate the base with nylon suture, and resect the distal tip!"
+The Mountain Sheep refugees and Crag Deer warriors knelt across the snowbound earth, murmuring prayers to the wondrous miracle from beyond their sky.
 
-With surgeon's poise, Nicha tied the knots, dropped the resected appendix into a stainless steel basin, irrigated with sterile saline, and closed the fascia layer by layer.
+In the eyes of these Stone Age folk, the doctor in her white coat and the master of the iron carriage were divine beings who held dominion over lightning and the voices of the cosmos.
 
-"Administer crushed Amoxicillin in warm water twice daily alongside Paracetamol, and keep the wound dressing dry for seventy-two hours," the senior surgeon dictated the post-operative regimen.
+Suddenly, a deep subsonic resonance vibrated through the bedrock once more, as the atmospheric distortion above the cliffs began to twist and decelerate.
 
-The boy's pulse stabilized to a firm, regular rhythm; his shallow gasps relaxed into deep, peaceful breaths as the agony faded away.
+The brilliant violet auroral ribbons contracted into a narrowing pillar, while the electromagnetic static in the air rapidly dissipated.
 
-Little Kamin weakly opened his dark eyes, gazing at Dr. Nicha in child-like wonder and whispering a faint word of gratitude in his mountain tongue.
+The signal bars on their smartphone screens plunged: 5G... 4G... 3G... one bar... before blacking out entirely back to **'No Service'**.
 
-"The appendectomy is complete, Ajarn!" Nicha wiped her brow, weeping tears of pure triumph. "The child is safe!"
+A heavy, freezing quietude descended across the valley once more, with only the mountain wind whistling through the limestone gorges, as though time had never parted.
 
-"Nicha... where in God's name are you? Behind you... those look like log cabins and primitive tribesmen..." Dr. Kitti stammered in bewilderment.
+The night sky returned to the tranquil darkness and pristine starlight of ten thousand years past, leaving only a fading trace of ozone and warmth in their hearts.
 
-Smiling through tears, Dr. Nicha pressed the voice record button on her family chat: "Mom... I love you so much. I'm alive and completely safe. Don't worry about me..."
+Thame and Dr. Nicha exchanged a long, quiet look; their ties to the modern world were resolved in love and closure, leaving no lingering regrets behind.
 
-Thame stepped beside her, holding his phone up to record a swift, reassuring voice dispatch to his family and police dispatch:
+Thame slipped the two-terabyte SSD safely into the waterproof inner pocket of his heavy coat—the "Torch of Prometheus," ready to ignite a new dawn of human civilization.
 
-"Mom... Uncle Det... it's Thame. Dr. Nicha and I are alive, healthy, and safe. Do not grieve for us. We are building a new life here..."
+Kuran climbed onto the roof rack, resting his weathered hand upon Thame's shoulder with deep reverence and unbreakable camaraderie forged through survival.
 
-Without warning, the heavens above the monolith shuddered violently as the ultraviolet auroral vortex contracted into a collapsing spiral.
+Yet in that fleeting moment of peace, three sharp, piercing whistle blasts shrieked from the cliffside sentry post!
 
-The cellular reception bars plunged in rapid succession: 5G... 4G... a flickering single bar of 2G... before flatlining into absolute, static silence.
+El-ya, standing guard, aimed her carbon hunting bow toward the southern mountain pass in alarm: "Enemies!... Thame! Look at the snowy ridge!"
 
-The nocturnal sky returned to the frozen, star-strewn darkness of ten thousand years before Christ, leaving behind only the faint scent of ozone and radiant hope.
+Thame threw the toggle switch of the 200W LED searchlight on the roof rack, slicing a brilliant white beam through the drifting snow flurries toward the southern pass three kilometers out.
 
-All twelve members of the Mountain Sheep Clan prostrated themselves before Dr. Nicha and Thame, weeping with gratitude and revering them as divine guardians of life.
+The primeval thrum of mammoth-skin war drums rumbled down on the freezing wind: *BOOM!... BOOM!... BOOM-BOOM-BOOM!*... a heavy, bloodthirsty rhythm shaking the peaks.
 
-Thame looked down at the two-terabyte solid-state drive clutched in his palm—Fortress Alpha now possessed clean energy, steel defenses, and the **"Immortal Archive of Human Civilization"**.
+Elder Bathor gasped, crying out in sheer horror: "The war drums of the Demon Fang!... They have tracked our footsteps all the way to this pass!"
 
-Kuran stepped forward, clasping Thame's shoulder with solemn respect, offering a barbed-wire spear with an unyielding nod of brotherhood.
+Terrifying tales of the Demon Fang's savagery—burning settlements to ash and butchering captives for winter meat—flooded the refugees' minds, making them shudder in dread.
 
-Yet in that exact moment, a piercing sentry whistle shrieked from the truck's roof, followed by the blinding beam of the floodlight sweeping south.
+Across the southern snowy crest, over a hundred flickering torches flared in a jagged line through the dark—the vanguard of the Demon Fang cannibal horde had tracked the refugee trail to the fortress!
 
-The ominous, rhythmic thrum of primitive rawhide war drums drifted through the icy wind, echoing along the limestone cliffs in bloodthirsty cadence.
+Kuran thrust his barbed-wire bamboo spear toward the sky with a fierce roar, El-ya drew her carbon bowstring taut, and Dr. Nicha gripped her scalpel with unyielding resolve.
 
-Across the snowy southern ridge, dozens of burning pitch torches flickered in the darkness—the advance warband of the Demon Fang cannibals was marching on the camp!
+The galvanized barbed wire laced around Fortress Alpha glinted under the searchlight beam, ready to meet the bloodthirsty savages with razor-sharp steel barbs.
 
-Fortress Alpha stood on the precipice of its greatest trial, on the night when ten thousand years of science prepared to clash with primal savagery!
+Fortress Alpha was about to face the supreme battle of its existence—a night when ten thousand years of technology and prehistoric survival instincts must unite to conquer!
