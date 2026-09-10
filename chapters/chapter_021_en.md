@@ -20,7 +20,7 @@ The magnesium lensatic compass in Thame's hand rattled violently, its magnetic n
 
 The camp's LED work lights, powered by the Pelton hydro generator, flickered in rhythmic pulses beneath the overwhelming electromagnetic induction.
 
-And in that breathless heartbeat of cosmic wonder, the smartphones nestled in Thame's heavy coat and Dr. Nicha's white clinical gown vibrated violently in unison!
+And in that breathless heartbeat of cosmic wonder, Thame's smartphone and Dr. Nicha's phone—freshly recharged to one hundred percent from the camp's hydro line earlier that afternoon—vibrated violently in unison!
 
 The signal bar in the screen's upper corner, dead with 'No Service' for fifteen long days, surged instantly to full strength: **a rock-solid, uninterrupted 5G lock!**
 
