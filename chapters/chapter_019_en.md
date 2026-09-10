@@ -92,9 +92,11 @@ A heavy-gauge veterinary immobilization dart sank deep into the alpha's jugular;
 
 *TWANG! THUMP!*
 
-Elya drew her recurve bow in a fluid motion and released her first carbon hunting arrow, drilling the razor broadhead deep into the flank of the nearest wolf; the remaining predators, blinded and terrified, tucked their tails and bolted down the ravine in full retreat.
+Elya drew her recurve bow in a fluid motion and released an armor-piercing carbon hunting arrow, drilling the razor broadhead deep into the flank of the nearest wolf until it crashed limp into the snow; the remaining predators, blinded and terrified, tucked their tails and bolted down the ravine in full retreat.
 
 A profound, echoing silence settled over the snowbound shelf, punctuated only by the ragged breathing of the three survivors.
+
+Before doing anything else, Thame and Elya moved swiftly to recover their carbon projectiles. In a savage epoch ten thousand years prior to the advent of modern metallurgy, high-strength carbon shafts and surgical broadheads were irreplaceable munitions that could never be squandered. Bracing his boot against the dead scout's ribs, Thame wrenched his crossbow bolt free, wiped the crimson clean against the icy crust, and inspected the straight, true spine. Elya likewise extracted her arrow from the fallen wolf, both carefully returning their retrieved munitions to their quivers.
 
 Dr. Nicha collapsed to her knees in the snow, the dart projector slipping from her trembling fingers as tears of overwhelming relief welled behind her goggles at the sound of her native language.
 
