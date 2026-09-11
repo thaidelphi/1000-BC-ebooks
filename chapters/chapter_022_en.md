@@ -20,7 +20,7 @@ Kuran snatched his barbed-wire bamboo pike high, his ancient warrior eyes blazin
 
 "Don't engage head-on, Kuran. I won't allow a single drop of our warriors' blood to be spilled." Thame restrained him, his engineer's mind rapidly assessing the tactical landscape.
 
-Drawing upon modern tactical doctrines and chokepoint defense principles that Thame remembered from his own world, combined with the topographic sketches saved on his phone, Thame instantly recognized the valley's decisive terrain advantage. The most effective chokepoint defense was never a bloody melee clash, but simultaneous acoustic and visual sensory overload—disrupting the enemy before they ever closed to striking distance.
+The four-meter limestone gap ahead was a textbook natural chokepoint. Thame immediately recalled the survival forum members' tactical advice: in a narrow passage like this, the smartest defense was never a bloody melee brawl, but sensory overload—using blinding glare and deafening sound to shatter the enemy's morale and scatter them in panic!
 
 "Nicha, look at this..." Thame pointed out the rocky defile to the doctor. "That four-meter corridor at the mouth of the chokepoint is the perfect kill zone!"
 
