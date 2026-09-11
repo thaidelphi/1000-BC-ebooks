@@ -106,6 +106,8 @@ The vanguard that had just been routed was only a small raiding scouting party. 
 
 And the moment the blizzard cleared, in two to three days' time, the great army would advance—and would grind Fortress Alpha to dust.
 
-Thame raised his eyes to the winter sky, where the stars were beginning to reclaim their brilliance. His hand tightened around the SSD case in his coat pocket.
+Thame raised his eyes to the winter sky, where the stars were beginning to reclaim their brilliance. His fingers brushed against the cold steel of the .38 revolver and the engineering sketchbook in his coat pocket.
 
-The battle ahead would decide the fate of the valley... and Fortress Alpha would have to deploy every piece of knowledge at its disposal to rewrite ten thousand years of history.
+They had at most forty-eight to seventy-two hours before the pass cleared. In a razor's-edge crisis like this, there was no time to sit studying theoretical encyclopedias. Survival would not be decided by digital files, but by immediate, grueling physical labor—digging pit traps, stringing caltrops and barbed wire, and reinforcing the palisade with real steel tools as fast as humanly possible.
+
+The battle ahead would decide the fate of the valley... and Fortress Alpha would have to turn every tool and defense into an unbreakable barrier against the hundred-spear horde!
