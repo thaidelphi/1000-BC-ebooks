@@ -46,7 +46,7 @@ The gap closed to fifty meters... thirty meters... until the lead warriors ran d
 
 *Fwwwp!* The infrared PIR sensor on the fence post detected body heat in a fraction of a second. The relay induction circuit triggered instantly—without mercy!
 
-Two 200-watt solar LED floodlights erupted with daylight-white light at 6,500K, blasting directly into the wide-open eyes of the warriors who had been staring into total darkness. Instant flashblind.
+Two 200-watt solar LED floodlights erupted with an intense 6,500K pure white beam, cutting through the midnight dark and blasting directly into the wide-open eyes of the warriors. Instant flashblind.
 
 In that same fraction of a second, the solenoid valve released a burst of six-bar compressed air, firing the **dual air horns of the Hino 500 truck** in a thunderous **130-decibel roar!**
 
