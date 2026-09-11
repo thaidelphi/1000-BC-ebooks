@@ -1,14 +1,12 @@
 # Chapter 23: The Pine Nomads & The Titanium Diplomacy (เงาร่างพรานป่าสนและการทูตหม้อต้ม)
 
-The golden glow of a new dawn washed over the eastern horizon, dispelling the mist and faint sulfur smoke from the midnight psychological skirmish.
+*Scrape... scrape... hiss...*
 
-The early morning temperature plummeted to minus twelve degrees Celsius. Biting frost crystallized into silver-white rime, crusting over the limestone cliffs and the needles of the taiga pine trees.
+The rhythmic rasp of whetstone grinding against flint echoed through the tense silence of Fortress Alpha. Crouched beside the embers of the hearth, Kuran worked the edge of a new battleaxe, his dark eyes burning with focused malice. The captive's revelation of the coming horde still hung like lead over the camp.
 
-Around Fortress Alpha, the tension of war lingered in the air. Even though the twenty-man vanguard had broken and fled, the intelligence gathered from the prisoners weighed heavily on everyone's minds.
+"Warlord Grak and his army of a hundred spears..." Kuran growled, testing the flint edge against his calloused thumb. "They are ten times more brutal than their scouts. The moment the southern pass clears, they will come to crush us."
 
-"Warlord Grak and his army of a hundred spears..." Kuran clenched his jaw tightly as he honed the edge of his flint battleaxe. "They are far more savage and bloodthirsty than their scouts."
-
-"Yet they remain trapped by the blizzard on the far side of the southern pass. We have two to three days to prepare our kill zones," Thame remarked, studying a cardboard sheet sketched with regional topography.
+"We won't sit waiting to be crushed," Thame said, spreading a flattened cardboard box across the wooden workbench. With swift strokes of a black marker, he drew tactical symbols across the sketched chokepoint terrain—interlocking stake pits, barbed wire funnels, and elevated firing perches. "They're still pinned by the blizzard on the far side of the pass. That gives us two to three days to turn this bottleneck into a fortress."
 
 "Holding only the narrow pass might not be enough if the enemy comes in such overwhelming numbers," Dr. Nicha chimed in as she finished dressing the wounded prisoners, her expression grave.
 
