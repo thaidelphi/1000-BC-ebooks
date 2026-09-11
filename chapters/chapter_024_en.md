@@ -4,7 +4,7 @@ The night of the second day following the visit of the Pine Forest Nomads settle
 
 Atop the observation platform above the double-layer log palisade, Thame stood tightening his black down coat, his dark eyes scanning the pine forest submerged beneath dim shadows. The crescent moon cast a pale glow across the pristine white snow, reflecting a glittering sheen that concealed a bone-chilling freeze.
 
-Beside him, Elya, tightly bundled in wolf-hide attire, checked the string of her carbon fiber compound bow, while Kuran and three Cliff Deer warriors took turns on watch according to the three-shift system Thame had instituted.
+Beside him, Elya, tightly bundled in wolf-hide attire, checked the string of her carbon fiber compound bow, while Kuran and three Cliff Deer warriors took turns on watch according to the three-shift system Kuran had organized alongside Thame.
 
 "Tonight is colder than ever..." Elya whispered, warm breath puffing like white mist from her lips. "Wild beasts within five miles must have retreated into deep rock hollows. Yet the scent on the wind... feels unsettled."
 

@@ -4,7 +4,7 @@ A bitter wind of minus eleven degrees howled and shrieked through the limestone 
 
 On the iron skeleton of the ten-wheel truck's roof, Thame and Dr. Nicha still stood motionless in the darkness, the aurora curtain and the dimensional rift having just faded into silence.
 
-Yet that silence lasted only moments before three sharp blasts of a warning whistle pierced the air from the limestone lookout—blown by Chiru, the eagle-eyed young hunter on the midnight watch rotation, accompanied by Elya who commanded the sentry line and was urgently signaling down with a torch!
+Yet that silence lasted only moments before three sharp blasts of a warning whistle pierced the air from the limestone lookout—blown by Chiru, the eagle-eyed young hunter on the midnight watch rotation organized by Kuran according to Thame's strategic doctrine, accompanied by Elya who commanded the sentry line and was urgently signaling down with a torch!
 
 *Tung!... Tung!... Tung-Tung-Tung!*... Ancient war drums made of stretched animal hide thundered along with the wind, their deep, heavy beat reverberating through the earth like the heartbeat of some ancient demon.
 
