@@ -94,7 +94,7 @@ Kuran leapt down from the truck roof and charged, pike raised to finish the pris
 
 To Thame, slaughtering a wounded, helpless enemy violated every ethical instinct of a twenty-first-century human. More crucially, this captive was their sole source of intelligence—the only one who could reveal the enemy's numbers and plans.
 
-Dr. Nicha knelt beside the wounded young warrior, using her field shears to carefully cut away the barbed wire tangled in his clothing, then cleansed his wounds with saline and applied antiseptic.
+Wearing heavy leather work gloves, Thame carefully held back the sharp barbs of the concertina wire while Dr. Nicha used her field trauma shears to snip away the tangled animal pelt clothing, freeing the captive without damaging their camp's precious wire defense. Once extracted, she cleansed his puncture wounds with saline and applied antiseptic.
 
 The unexpected mercy and gentle treatment from the woman in the white coat shattered the captive's terror. Expecting ritual slaughter or cannibalism, the young scout began to weep in sheer relief and reverence.
 
