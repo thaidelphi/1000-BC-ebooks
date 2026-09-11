@@ -173,7 +173,9 @@ Kuran climbed onto the roof rack, resting his weathered hand upon Thame's should
 
 Yet in that fleeting moment of peace, three sharp, piercing whistle blasts shrieked from the cliffside sentry post!
 
-El-ya, standing guard, aimed her carbon hunting bow toward the southern mountain pass in alarm: "Enemies!... Thame! Look at the snowy ridge!"
+Yet in that brief moment of serenity, three sharp whistle blasts rang out piercingly from the limestone lookout cliff!
+
+Chiru, the eagle-eyed young hunter on the midnight watch rotation, blew the warning whistle with all his might, while El-ya, acting as Scout Captain inspecting the sentry posts, aimed her carbon hunting bow toward the southern mountain pass in alarm: "Enemies!... Thame! Look at the snowy ridge!"
 
 Thame threw the toggle switch of the 200W LED searchlight on the roof rack, slicing a brilliant white beam through the drifting snow flurries toward the southern pass three kilometers out.
 

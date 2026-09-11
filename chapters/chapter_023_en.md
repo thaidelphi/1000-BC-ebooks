@@ -14,9 +14,9 @@ Around Fortress Alpha, the tension of war lingered in the air. Even though the t
 
 "We need allies, and we need eyes and ears outside the valley to report their movements," Thame nodded in agreement with the doctor.
 
-Just then, Elya, standing lookout atop the high ridge where the mobile signal reached two bars, let out three low whistles mimicking the call of an ancient owl, signaling danger down toward the camp.
+Just then, Chiru and the sentry hunters stationed atop the high ridge let out sharp signal blasts on their whistles, pointing urgently toward the pine forest. Elya ascended swiftly to confirm the sighting alongside the watch, then waved for Thame to join.
 
-Thame and Elya exchanged a single glance. The young man tightened the straps of his tactical daypack and checked his 1095 carbon steel blade before nodding to the hunter girl, who led the way up the northwestern limestone ridgeline.
+Thame tightened the straps of his tactical daypack and checked his 1095 carbon steel blade before nodding to Elya, who led the way up the northwestern limestone ridgeline.
 
 Moving through the snow-laden pine forest roughly four hundred meters out from the palisade, the freezing wind carried the scent of foreign woodsmoke and animal tallow.
 
