@@ -22,7 +22,7 @@ The moment the words *'fire-spitting iron rod'* left his lips, all color drained
 
 "Victor? You know him?"
 
-"Not personally, but right before our team's truck plunged through the temporal rift, emergency radio broadcasts warned of a high-security prison transport van that slid off the highway into the black fog vortex," Dr. Nicha explained rapidly, cold sweat beading beneath her bangs. "In that van was a violent felon named Victor—an ex-mercenary serving time for armed robbery and murder. And in that transport van, the corrections officers were equipped with pump-action shotguns and nine-millimeter service pistols with spare ammunition!"
+"Not personally, but when the 5G signal surged through the rift night before last, breaking news alerts on my phone summarized the ongoing search over the fifteen days we've been missing," Dr. Nicha explained rapidly, cold sweat beading beneath her bangs. "The police and the Department of Corrections issued an emergency press briefing: four vehicles vanished along that foggy mountain highway—your cargo truck, my research 4WD, a family car, and a high-security prison transport van! Inside that van was a violent felon named Victor, an ex-mercenary convicted of armed robbery and murder. And the public safety bulletin explicitly warned that the escort officers' pump-action shotgun and nine-millimeter service pistols disappeared with the vehicle!"
 
 A leaden silence fell over the cargo container. Elya, standing beside them, could not understand the modern words, but she clearly read the crushing tension. The huntress stepped closer to Thame, her hand tightening around the riser of her carbon-fiber bow.
 
