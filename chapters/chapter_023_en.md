@@ -30,19 +30,19 @@ The eight hunters were peering cautiously at the log palisade and the roof of th
 
 "If we draw weapons rashly, they will fire an arrow volley and vanish into the deep woods," Elya cautioned. "And this pine forest is their domain."
 
-"We didn't come to wage war, Elya... With the Demon Fang clan looming, we need allies, not more enemies." Thame lowered the monocular, a calm smile touching his lips.
+"We didn't come to wage war, Elya... With the Demon Fang clan looming, we need allies, not more enemies." Thame lowered the monocular, his breath pluming white. "But we won't throw our lives away either... Climb up onto that limestone ledge on our flank. Keep an arrow nocked to your carbon bow. If any of them draws an arrow, take them down immediately."
 
-The young man unslung his pack onto an open rock shelf roughly thirty meters away and downwind—far enough to prevent panic, yet close enough for clear line-of-sight—deliberately setting his crossbow and weapons aside.
+Elya nodded with grim understanding. She slipped silently up the rocks, concealing herself behind a limestone crevice fifteen meters above the clearing, her carbon-fiber recurve bow drawn taut with a metal-tipped shaft locked onto the brush.
 
-He arranged three limestone rocks into a hearth, then pulled out his ultralight titanium mess kit and vacuum flask.
+Thame selected an open stone shelf downwind, backed firmly against a sheer limestone cliff to eliminate any risk of rear ambush. He set his heavy crossbow and hunting knife openly behind his back to project non-aggression, but inside his heavy parka pocket, his right hand gripped the checkered grip of his .38 revolver. The cold steel in his pocket was his lethal hidden insurance.
 
-"Watch how modern humans negotiate, Elya... In a freezing forest, hot food speaks louder than spear points." Thame gave a faint smile.
+Cold sweat prickled across his back beneath his layers. His heart hammered against his ribs—no sane man faced eight armed Stone Age hunters without dread—but he knew displaying panic or drawing weapons would shatter any chance of alliance.
 
-Thame clicked his jet lighter, the concentrated blue flame igniting dry pine shavings in an instant. He set the titanium pot over the stone hearth, pouring in water until it bubbled vigorously, sending thick plumes of white steam curling into the freezing air. He dropped in diced smoked venison and half a broth cube.
+He arranged three stones into a hearth, pulled out his titanium pot, and sparked dry pine tinder with his jet lighter. He boiled water, tossing in diced smoked venison and half a broth cube.
 
-Thame slid back, settling cross-legged on the stone with his empty hands resting openly on his knees, leaving his weapons well out of reach.
+Thame settled cross-legged on the stone, keeping his hands visibly open, though every sense was strained to a razor's edge.
 
-He retrieved a pouch of pure sea salt, lifting a pinch into the sunlight where the pristine crystals glittered brilliantly before scattering them into the simmering pot. The mountain breeze caught the steam, drifting the rich scent of simmering broth gently along the rocky slope.
+He lifted pure white sea salt into the sunlight where the crystals gleamed like precious gems, scattering them into the simmering pot. The mountain breeze caught the rising steam, drifting the rich aroma gently across the rocky slope.
 
 To nomads accustomed to bitter, muddy mineral licks, the sight of pure white crystal salt was like witnessing sacred treasure, and the sight of hot food in the snow held every eye captive.
 
@@ -56,7 +56,7 @@ Thame made no sudden movement to avoid startling them. He tapped his chest gentl
 
 "Thame... Sua (Friend)..." Thame smiled faintly, nodding in welcome. "Sua... eat..."
 
-Elya stepped forward beside him. She pressed two fingers to her forehead and then pointed them toward the earth—the mountain hunters' peace sign—before uttering a few brief, guttural dialect words to open a bridge of trust.
+Seeing the hunter lower his bow with no hostile intent, Elya stepped down silently from her high vantage point, lowering her bow. She pressed two fingers to her forehead and then pointed them toward the earth—the mountain hunters' peace sign—before uttering a few brief, guttural dialect words to open a bridge of trust.
 
 The lead hunter recognized at once that the young woman was kin of the Cliff Deer clan, and that the stranger bore no hostility. Turning his head, he whistled a low, sharp signal, prompting the seven hunters waiting warily at the tree line to step forward and gather cautiously around the warmth of the fire.
 
