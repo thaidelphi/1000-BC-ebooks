@@ -30,7 +30,7 @@ A blinding orange muzzle flash erupted from the 12-gauge barrel. The thunderous 
 
 Yet... the sound that followed was not the splintering crash of wood Victor had anticipated!
 
-The supersonic lead pellets punched through the outer pine bark, but the moment they struck the forty-centimeter-thick core of compacted red clay, sand, and limestone gravel, over two thousand joules of kinetic energy were utterly swallowed. Millions of earth and rock granules crushed the soft lead flat, halting the pellets dead within ten centimeters of impact. Only a harmless puff of red dust drifted into the freezing wind. The bulwark did not yield a single millimeter!
+The supersonic lead pellets punched through the outer pine bark, but the moment they struck the forty-centimeter-thick core of compacted red clay and limestone gravel, over two thousand joules of kinetic energy were utterly swallowed. Millions of earth and rock granules crushed the soft lead flat, halting the pellets dead within ten centimeters of impact. Only a harmless puff of red dust drifted into the freezing wind. The bulwark did not yield a single millimeter!
 
 The smirk on Victor’s face froze solid. The mercenary’s eyes stretched wide in disbelieving horror:
 "Sandbags?!... Compacted earth ramparts?! You bastard... he built a military ballistic trench!"

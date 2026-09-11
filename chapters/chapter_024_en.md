@@ -58,7 +58,7 @@ Thame demonstrated the doctrine of the 'Ballistic Earth Bastion' through immedia
 
 Unfolding a sandbag, he drove the sharp edge of the trench shovel into the red clay and limestone gravel beneath the packed snow, filling the tough woven bag until it swelled taut, then securing the neck with a nylon cable tie.
 
-A single packed sandbag just twenty-five centimeters thick was capable of absorbing and halting shotgun slugs and handgun rounds with absolute certainty. The granular mass of sand and gravel dispersed kinetic energy instantly, deforming lead projectiles and bringing them to a dead stop within inches!
+A single packed sandbag just twenty-five centimeters thick was capable of absorbing and halting shotgun slugs and handgun rounds with absolute certainty. The granular mass of packed soil and crushed gravel dispersed kinetic energy instantly, deforming lead projectiles and bringing them to a dead stop within inches!
 
 Kuran and his seasoned hunters grasped the concept with startling speed. The war chief raised his fist, bellowing across the stockade:
 "Wah! Wah! (Hurry!) Aka... stone... earth... Wah!"
