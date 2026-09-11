@@ -85,11 +85,11 @@ Thame knew modern speech was useless. Kneeling in the snow, he slipped off his p
 The first was an open canvas pouch revealing half a kilogram of sparkling, pristine white sea salt, shimmering in the winter sun like crushed diamonds.
 The second was a heavy ferrocerium rod with a steel striker, flanked by two kilograms of smoked venison.
 
-The eight pine hunters stared at the sparkling white crystals with narrowed eyes, caught between wonder and suspicion. In these harsh wilds, an unknown white powder could just as easily be crushed poisonous minerals, and among mountain hunters, touching another's possessions without permission was a grave breach of custom.
+The eight pine hunters froze, eyeing the gleaming white crystals with wary suspicion. Not a single man dared step forward.
 
-Understanding tribal caution, Thame knew he had to dispel any suspicion of poison. Dipping his own fingertip into the salt, he touched the crystals to his tongue before offering an open-handed gesture of invitation to Borg.
+Thame dipped his fingertip into the salt, tasted the crystals before them, and extended an open palm in invitation.
 
-Borg glanced at Elya. The huntress nodded with a reassuring smile. With a slight bow of respect, the scarred hunt-chief stepped forward and cautiously pressed a calloused fingertip to the white crystals, bringing them to his tongue.
+Borg looked to Elya, who gave an encouraging nod. The scarred hunt-chief then leaned forward, touched a calloused fingertip to the salt, and brought it to his tongue.
 
 The veteran hunter's eyes widened in sheer shock. A clean, intense salinity—free from the bitter mud and mineral grit of salt licks—burst across his palate!
 
