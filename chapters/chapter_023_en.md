@@ -18,9 +18,9 @@ Thame tightened the straps of his tactical daypack and checked the carbon steel 
 
 Moving through the snow-laden pine forest roughly four hundred meters out from the palisade, the freezing wind carried the scent of foreign woodsmoke and animal tallow.
 
-Elya crouched low against the snow, pointing the tip of her carbon bow toward a hollow beneath a dense cluster of pines: "Someone has been watching our camp since the sky burst with fire."
+Elya crouched low against the snow, pointing the tip of her carbon bow toward a rocky outcrop beneath dense pines about thirty meters away: "Someone has been watching our camp since the sky burst with fire."
 
-Thame brought his 12x50 monocular to his eye. The multi-coated glass lens captured the figures of eight human beings with razor-sharp clarity.
+Thame brought his monocular to his eye, the glass lens bringing the eight human silhouettes into sharp focus.
 
 They wore rough coats sewn from wild game hides, adorned with eagle feathers and wolf teeth. Lean, nimble, and athletic, they gripped long wooden hunting bows carved with remarkable skill.
 
@@ -32,27 +32,23 @@ The eight hunters were peering cautiously at the log palisade and the roof of th
 
 "We didn't come to wage war, Elya... With the Demon Fang clan looming, we need allies, not more enemies." Thame lowered the monocular, a calm smile touching his lips.
 
-The young man unslung his pack onto an open rock shelf in full view of the hunters, deliberately carrying neither crossbow nor drawn blade.
+The young man unslung his pack onto an open rock shelf roughly thirty meters away and downwind—far enough to prevent panic, yet close enough for clear line-of-sight—deliberately setting his crossbow and weapons aside.
 
-He arranged three limestone rocks into a three-point hearth, then pulled out his ultralight titanium field mess kit and a stainless-steel vacuum flask.
+He arranged three limestone rocks into a hearth, then pulled out his ultralight titanium mess kit and vacuum flask.
 
-"Watch how modern humans do diplomacy, Elya... Sometimes, the aroma of hot food is far more powerful than spear tips and arrows." Thame gave the hunter girl a quick wink.
+"Watch how modern humans negotiate, Elya... In a freezing forest, hot food speaks louder than spear points." Thame gave a faint smile.
 
-Thame clicked the piezo switch of his jet torch lighter. A concentrated blue flame flared instantly, igniting dry pine twigs in seconds—a sight that left the observing hunters stunned.
+Thame clicked the piezo switch of his jet lighter. The concentrated blue flame lit dry pine shavings instantly, the rising wisp of pine smoke catching the hidden hunters' eyes.
 
-Clear water from the limestone spring was poured into the titanium pot. As bubbles broke on the surface and fragrant steam billowed, Thame dropped diced cubes of smoked venison into the boiling broth.
+Clear water from the flask went into the titanium pot. As bubbles broke and warm steam rose, Thame dropped diced cubes of smoked venison into the boiling water, followed by half a beef bouillon cube.
 
-Next, he dissolved half a concentrated beef bouillon cube into the pot. The rich, savory aroma of herbs, dehydrated onions, and simmered marrow broth billowed along the wind.
+The savory fragrance of herbs, dehydrated onions, and rich broth lifted into the air with the steam. The mountain breeze blowing up the slope carried the warm mist and rich aroma straight toward the pine hollow just upwind.
 
-But the true masterstroke came when Thame reached into his coat pocket, retrieved a pouch of sparkling white sea salt crystals, and sprinkled a generous pinch into the simmering soup.
+When Thame retrieved a pouch of sparkling sea salt and sprinkled white crystals into the soup, the gleaming salt grains caught the sunlight like sacred gems.
 
-The sub-zero wind carried the irresistible scent of piping-hot meat stew directly into the rocky hollow where the pine hunters were hiding.
+To nomads who had endured chewing frozen raw game in sub-zero blizzards, the warm aroma drifting on the breeze was impossible to ignore.
 
-To primeval nomads accustomed to chewing frozen, gristly meat in sub-zero snowstorms, the aroma of boiling, savory stew was an olfactory revelation beyond mortal resistance.
-
-A loud stomach growl echoed from the brush before the pine branches parted, revealing the broad-shouldered leader of the hunters, a bear-claw scar etched deep into his weathered cheek.
-
-He stepped out slowly, bow in hand, but his eyes were glued to the matte-grey titanium pot and the pure, white crystals resembling sacred snow.
+The pine branches rustled softly. The broad-shouldered leader of the hunters, a bear-claw scar etched deep into his weathered cheek, stepped carefully out from the shadows. Though his wooden bow was held ready, his gaze remained transfixed by the steaming pot and the shimmering white crystals.
 
 "Outsider... Master of the Blue Flame..." the lead hunter rasped in an archaic tongue. "You hold the white mineral powder of life..."
 
