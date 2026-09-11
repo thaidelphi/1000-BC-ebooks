@@ -96,7 +96,7 @@ To Thame, slaughtering a wounded, helpless enemy violated every ethical instinct
 
 Wearing heavy leather work gloves, Thame carefully held back the sharp barbs of the concertina wire while Dr. Nicha used her field trauma shears to snip away the tangled animal pelt clothing, freeing the captive without damaging their camp's precious wire defense. Once extracted, she cleansed his puncture wounds with saline and applied antiseptic.
 
-The unexpected mercy and gentle treatment from the woman in the white coat shattered the captive's terror. Expecting ritual slaughter or cannibalism, the young scout began to weep in sheer relief and reverence.
+The unexpected mercy and gentle treatment from the young doctor in her heavy winter coat carrying her field medical kit shattered the captive's terror. Expecting ritual slaughter or cannibalism, the young scout began to weep in sheer relief and reverence.
 
 He babbled trembling words in his ancient tongue, pressing his forehead into the dirt in total submission before Thame and Dr. Nicha.
 
