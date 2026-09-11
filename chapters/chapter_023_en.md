@@ -12,7 +12,7 @@ The rhythmic rasp of whetstone grinding against flint echoed through the tense s
 
 "We need allies, and we need eyes and ears outside the valley to report their movements," Thame nodded in agreement with the doctor.
 
-Just then, Chiru and the sentry hunters stationed atop the high ridge let out sharp signal blasts on their whistles, pointing urgently toward the pine forest. Elya ascended swiftly to confirm the sighting alongside the watch, then waved for Thame to join.
+Just then, Chiru and the sentry hunters stationed atop the 'Two-Bar Ridge' observation crag let out sharp signal blasts on their whistles, pointing urgently toward the pine forest. Elya ascended swiftly to confirm the sighting alongside the watch, then waved for Thame to join.
 
 Thame tightened the straps of his tactical daypack and checked his 1095 carbon steel blade before nodding to Elya, who led the way up the northwestern limestone ridgeline.
 
