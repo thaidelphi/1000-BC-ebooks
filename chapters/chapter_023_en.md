@@ -48,56 +48,60 @@ To nomads accustomed to bitter, muddy mineral licks, the sight of pure white cry
 
 The pine branches rustled softly. The broad-shouldered leader of the hunters, a bear-claw scar etched deep into his weathered cheek, stepped cautiously out from the tree line thirty meters away. He treaded slowly across the snow, his wooden bow lowered to waist height, his eyes flicking between Thame's empty hands and the glistening white crystals in the pot.
 
-He halted three or four paces from the fire, his breath pluming white in the freezing air, before speaking in a low, rasping cadence:
+He halted three or four paces from the fire, his breath pluming white in the freezing air. His eyes shifted between the blue flame and the glistening salt crystals, and he muttered gutturally in clipped, ancient syllables:
 
-"Outsider... Master of the Blue Flame..." the lead hunter rasped in an archaic tongue. "You hold the white mineral powder of life..."
+"Tor... Sol..." (Fire... Salt...)
 
-"I am Thame, and this is Elya of the Cliff Deer clan," Thame replied calmly, gesturing with open hands toward the steaming pot. "We come as friends. Come share warm soup with us."
+Thame made no sudden movement to avoid startling them. He tapped his chest gently and gestured toward the bubbling pot, speaking the universal primal words he had learned:
 
-Elya signaled with traditional hunter hand signs of peace, prompting the remaining seven hunters at the tree line to move forward warily toward the warmth of the fire.
+"Thame... Sua (Friend)..." Thame smiled faintly, nodding in welcome. "Sua... eat..."
 
-Using a titanium spoon, Thame ladled steaming stew into a small metal bowl and offered it to the lead hunter with both hands.
+Elya stepped forward beside him. She pressed two fingers to her forehead and then pointed them toward the earth—the mountain hunters' peace sign—before uttering a few brief, guttural dialect words to open a bridge of trust.
 
-The hunter accepted the vessel cautiously. He inhaled deeply before taking a small, tentative sip.
+The lead hunter recognized at once that the young woman was kin of the Cliff Deer clan, and that the stranger bore no hostility. Turning his head, he whistled a low, sharp signal, prompting the seven hunters waiting warily at the tree line to step forward and gather cautiously around the warmth of the fire.
 
-In that instant, the primeval hunter's eyes widened in sheer astonishment! The clean, rich salinity of pure sea salt fused with the natural sweetness of venison and concentrated broth.
+Using his camp spoon, Thame ladled rich venison stew into a small titanium bowl and offered it to the leader with both hands.
 
-"Salt!... Pure salt, devoid of the bitter ash of mineral dirt!" the leader gasped, before gulping down the entire bowl in a single breath.
+The leader accepted the warm metal vessel with cautious curiosity. Inhaling the rising steam, he took a tentative sip.
 
-The younger hunters swallowed audibly. Thame smiled and ladled portions of meat and broth for each man until everyone had eaten their fill, sighs of warmth and delight filling the frigid air.
+In that instant, the weathered hunter's eyes widened in disbelief. The pure salinity of clean sea salt, entirely free of the bitter mud of mineral dirt, fused with the savory fat of stewed game and rich broth, sending warmth coursing through his shivering body.
 
-"I am 'Borg', Hunt-Chief of the Pine Forest," the rugged warrior knelt beside the fire, laying his hunting bow on the ground in a sign of truce. "This soup is the greatest gift of this cruel winter."
+"Sol!... Sol!..." he gasped in awe, before tilting the bowl back and draining every last drop, licking his lips to savor the precious mineral.
 
-"We seek nothing in return, Borg... except alliance and trust," Thame stated calmly.
+Thame dished out portions to the remaining hunters. As hot food filled their stomachs, suspicion melted into gratitude. Kneeling by the fire, the broad-shouldered leader laid his wooden bow flat upon the stone and thumped his left chest firmly:
 
-"I know what you are up against," Borg frowned, his expression turning solemn. "The thunder and fire in the sky last night... the Demon Fang vanguard was routed."
+"Borg..."
 
-"But Warlord Grak's army of a hundred spears is marching," Elya added. "They spare no one, not even those who wander the deep woods."
+"Thame," the young man replied, tapping his own chest.
 
-Borg nodded heavily: "The Demon Fang hunt us like deer... several of my kin were taken and slaughtered this past autumn."
+Negotiation across ten millennia began without complex speech. Thame picked up a dry pine twig and sketched upon the smooth snow before the fire:
 
-"Fortress Alpha has iron walls, perpetual light, and medicine that cures fatal wounds," Thame offered. "Stand with us, and we will protect you."
+He drew a rectangle with circles for wheels to represent the truck fortress, rugged jagged lines for the limestone pass, and a fanged skull with dozens of spears marching north. Pointing at the skull, he spoke the warning word:
 
-"What do you ask of us?" Borg inquired directly.
+"Orok (Enemy)... Grak..."
 
-"You are the masters of the pine forest with eyes like eagles... I want you to be our 'eyes and ears'—scouting Grak's advance along the southern ridges."
+Borg and his hunters stared at the sketch, their faces darkening with grim recognition. Gritting his teeth, Borg drew his thumb across his own throat and pointed toward the southern forest with a low hiss—making it clear that the cannibal Demon Fang had hunted and butchered their kin as well.
 
-"In exchange for what?" a young hunter asked with eager hope.
+Thame pointed to his own eyes, then to Borg's eyes, and traced a dotted line with the stick along the southern ridge on the snow:
 
-Thame handed Borg a canvas pouch containing half a kilogram of pure sea salt, a spare ferrocerium fire striker, and a large bundle of smoked venison.
+"Borg... watch... Orok."
 
-"Clean spring water from Dragon Bamboo Creek, pure salt for preserving meat, and warm shelter behind Fortress Alpha's walls when the blizzards strike."
+Elya reinforced the message with rapid hand signs, mimicking an animal scouting unseen along the rocky peaks. Borg nodded sharply, understanding the tactical request instantly through raw hunter instinct.
 
-Borg cradled the pouch of salt and the fire striker in trembling hands. These were treasures hunters gave their lives for across generations.
+Borg pointed back at the simmering pot and the salt pouch, gesturing to the terms of trade.
 
-"It is agreed, Thame of the Iron Fortress!" Borg roared, pounding his right fist against his chest in a blood oath. "We will be your shadow and your wind!"
+Thame laid out a canvas pouch containing half a kilogram of sea salt, a spare ferrocerium fire striker, and a thick bundle of smoked venison on the snow before him.
 
-"Within two days... every footprint of the Demon Fang army will reach your ears before they ever step into the chokepoint!"
+Borg cradled the glistening white salt and the metal fire striker in trembling hands. To a nomad clan, these treasures meant survival through the bitter winter.
 
-The third alliance of Horseshoe Valley was forged through titanium diplomacy and pure sea salt.
+"Sua!..." Borg grunted in deep satisfaction, thumping his chest to seal the blood pact as scouts along the southern peaks.
 
-Yet as they prepared to part, Borg turned back with a final warning that made Thame's jaw tighten:
+Yet before the hunters turned to depart, Borg stopped in his tracks, his weathered face tight with grave alarm.
 
-"Watch your back, Thame... In Grak's ranks marches a 'white-faced warrior' dressed in strange garments like yours... He carries a black iron stick that spits fire and kills a man from a hundred paces away!"
+He pointed at his own face, then tapped Thame's synthetic coat and rubber-soled boots. Then, raising both hands to his shoulder as if bracing a long staff, he aimed forward and made a violent cracking explosion from his throat:
 
-The warning struck like lightning... Victor, or his right-hand rogue, had formally joined the main host of the Demon Fang horde!
+"Crack!... Tor!... Smoke!..."
+
+Borg clutched his own chest, stumbled backward, and dropped onto the snow, convulsing before lying motionless—mimicking a warrior felled instantly from a great distance.
+
+The demonstration struck Thame like a thunderbolt... Modern firearms! Victor, or his rogue convicts, had officially joined the main host of the Demon Fang!
