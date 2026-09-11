@@ -1,107 +1,88 @@
-# Chapter 23: The Pine Nomads & The Titanium Diplomacy (เงาร่างพรานป่าสนและการทูตหม้อต้ม)
+# Chapter 23: Shadows in the Pines and the Salt Pact
 
-*Scrape... scrape... hiss...*
+*Scritch... scritch... hiss...*
 
-The rhythmic rasp of whetstone grinding against flint echoed through the tense silence of Fortress Alpha. Crouched beside the embers of the hearth, Kuran worked the edge of a new battleaxe, his dark eyes burning with focused malice. The captive's revelation of the coming horde still hung like lead over the camp.
+The steady rasp of river stone grinding against flint axe blades echoed through the tense morning air. By the dying embers of the hearth fire, Kuran sat shaping a fresh war axe, the seasoned warrior's eyes shadowed with fury and vigilance. The captive's intelligence regarding Grak's approaching host still hung heavy over the camp.
 
-"Warlord Grak and his army of a hundred spears..." Kuran growled, testing the flint edge against his calloused thumb. "They are ten times more brutal than their scouts. The moment the southern pass clears, they will come to crush us."
+"Warlord Grak and his hundred spears..." Kuran gritted his teeth, thumbing the sharp mineral edge. "Far more bloodthirsty and savage than the vanguard. When the blizzard clears beyond the southern pass, they will march to crush us."
 
-"We won't sit waiting to be crushed," Thame said, spreading a flattened cardboard box across the wooden workbench. With swift strokes of a black marker, he drew tactical symbols across the sketched chokepoint terrain—interlocking stake pits, barbed wire funnels, and elevated firing perches. "They're still pinned by the blizzard on the far side of the pass. That gives us two to three days to turn this bottleneck into a fortress."
+"We won't just wait to be crushed," Thame replied, leaning over a wide piece of flattened cardboard on the timber table. With quick strokes of a black permanent marker, he connected key defensive points—spiked barricades, pit traps, and designated marksman perches. "They are pinned down by the storm across the southern pass. That buys us two to three days to prepare."
 
-"Holding only the narrow pass might not be enough if the enemy comes in such overwhelming numbers," Dr. Nicha chimed in as she finished dressing the wounded prisoners, her expression grave.
+"Holding the chokepoint alone may not be enough if their numbers are truly that overwhelming," Dr. Nicha remarked, stepping over after checking the wounded captive, her expression grave.
 
-"We need allies, and we need eyes and ears outside the valley to report their movements," Thame nodded in agreement with the doctor.
+"We need scouts beyond the valley to give us advance warning of their movements," Thame agreed, nodding to the physician.
 
-Just then, Chiru and the sentry hunters stationed atop the high observation crag behind the camp let out sharp signal blasts on their whistles, pointing urgently toward the pine forest. Elya ascended swiftly to confirm the sighting alongside the watch, then waved for Thame to join.
+At that moment, Shiru and the cliff-top sentries blew a sharp coded blast from their lookout perches behind the camp, pointing toward the northwestern pine ridge. Elya scrambled swiftly up the crag, conferenced with the watch, and gestured urgently down at Thame.
 
-Thame tightened the straps of his tactical daypack and checked the carbon steel bushcraft knife at his hip before nodding to Elya, who led the way up the northwestern limestone ridgeline.
+Thame tightened his field pack and carbon-steel bushcraft knife at his hip, his right hand checking the reassuring weight of the .38 revolver in his heavy parka pocket, before nodding to Elya to lead the way up the limestone heights.
 
-Moving through the snow-laden pine forest roughly four hundred meters out from the palisade, the freezing wind carried the scent of foreign woodsmoke and animal tallow.
+Threading through the snow-draped taiga roughly four hundred meters beyond the palisade, Elya suddenly dropped low into the powder behind a limestone outcrop, her fingers pointing toward a hollow beneath dense pine boughs forty meters ahead.
 
-Elya crouched low against the snow, pointing the tip of her carbon bow toward a rocky outcrop beneath dense pines about thirty meters away: "Someone has been watching our camp since the sky burst with fire."
+"Eight men concealed..." Elya whispered. "Tracking our camp since the sky flashed fire last night."
 
-Thame brought his monocular to his eye, the glass lens bringing the eight human silhouettes into sharp focus.
+Thame unclipped his monocular and handed it to Elya. The multicoated glass lens pierced through the veil of snowy needles with razor sharpness.
 
-They wore rough coats sewn from wild game hides, adorned with eagle feathers and wolf teeth. Lean, nimble, and athletic, they gripped long wooden hunting bows carved with remarkable skill.
+Elya pressed her eye to the optic. Her breath hitched. A tremor passed through her frame before she lowered the scope, turning to Thame with blazing eyes.
 
-"Pine Forest Nomads..." Elya whispered softly. "They wander following the deer herds, keep to themselves, and never trust outsiders."
+"It is Borg!... I recognize the bear-claw scar across his left cheek!" Elya whispered with sudden excitement.
 
-The eight hunters were peering cautiously at the log palisade and the roof of the ten-wheel truck with suspicious, fearful eyes, hands resting warily on their bowstrings.
+"You know him?" Thame asked, his eyes scanning the tree line.
 
-"If we draw weapons rashly, they will fire an arrow volley and vanish into the deep woods," Elya cautioned. "And this pine forest is their domain."
+"He is the Hunt-Chief of the wandering pine forest nomads," Elya explained swiftly. "Two winters ago, when Tara was small, an avalanche blocked our hunting valley. Borg and I were trapped together in the Black Glacier cave for three days. We shared dried meat and hunted cliff deer side-by-side. Borg is fiercely proud and honors his word above his life. And above all... his clan despises the Demon Fang to the marrow!"
 
-"We didn't come to wage war, Elya... With the Demon Fang clan looming, we need allies, not more enemies." Thame lowered the monocular, his breath pluming white. "But we won't throw our lives away either... Climb up onto that limestone ledge on our flank. Keep an arrow nocked to your carbon bow. If any of them draws an arrow, take them down immediately."
+"Why?"
 
-Elya nodded with grim understanding. She slipped silently up the rocks, concealing herself behind a limestone crevice fifteen meters above the clearing, her carbon-fiber recurve bow drawn taut with a metal-tipped shaft locked onto the brush.
+"Last autumn, Grak's slave raiders pillaged their winter camp, taking his kin and children. Borg has been hunting the Demon Fang ever since!"
 
-Thame selected an open stone shelf downwind, backed firmly against a sheer limestone cliff to eliminate any risk of rear ambush. He set his heavy crossbow and hunting knife openly behind his back to project non-aggression, but inside his heavy parka pocket, his right hand gripped the checkered grip of his .38 revolver. The cold steel in his pocket was his lethal hidden insurance.
+"That is exactly the ally we need," Thame decided without hesitation. "Approach him the hunter's way."
 
-Cold sweat prickled across his back beneath his layers. His heart hammered against his ribs—no sane man faced eight armed Stone Age hunters without dread—but he knew displaying panic or drawing weapons would shatter any chance of alliance.
+Elya nodded. Slapping her carbon bow across her back, she left her hands visibly empty and stepped out onto a high limestone shelf in clear view of the thicket. Taking a deep breath, she whistled the piercing cry of a snow eagle—the exact call they had used across the blizzard two winters ago.
 
-He arranged three stones into a hearth, pulled out his titanium pot, and sparked dry pine tinder with his jet lighter. He boiled water, tossing in diced smoked venison and half a broth cube.
+In the thicket, drawn bows froze. The broad-shouldered leader parted the branches and stepped out from the trees, his piercing gaze sweeping over Elya before a guttural gasp escaped his lips:
 
-Thame settled cross-legged on the stone, keeping his hands visibly open, though every sense was strained to a razor's edge.
+"Elya... Hunter-Daughter of the Cliff Deer?!"
 
-He lifted pure white sea salt into the sunlight where the crystals gleamed like precious gems, scattering them into the simmering pot. The mountain breeze caught the rising steam, drifting the rich aroma gently across the rocky slope.
+Elya raised two fingers to her forehead and pressed them toward the earth—the ancient sign of peace among mountain hunters. Borg mirrored the gesture instantly, the razor-thin tension shattering. Whistling low in his native dialect, he signaled his seven hunters to lower their weapons and follow him into the open.
 
-To nomads accustomed to bitter, muddy mineral licks, the sight of pure white crystal salt was like witnessing sacred treasure, and the sight of hot food in the snow held every eye captive.
+The two parties converged, halting three paces apart. Borg thumped his left chest firmly, and Elya returned the greeting with a wide smile.
 
-The pine branches rustled softly. The broad-shouldered leader of the hunters, a bear-claw scar etched deep into his weathered cheek, stepped cautiously out from the tree line thirty meters away. He treaded slowly across the snow, his wooden bow lowered to waist height, his eyes flicking between Thame's empty hands and the glistening white crystals in the pot.
+"The cold did not claim you, Elya..." Borg murmured, glancing at the strange figure beside her. "And this man... is he the master of the iron beast and the thunder that routed the Demon Fang last night?"
 
-He halted three or four paces from the fire, his breath pluming white in the freezing air. His eyes shifted between the blue flame and the glistening salt crystals, and he muttered gutturally in clipped, ancient syllables:
+Elya nodded proudly: "This is Thame, my brother and leader of the Iron Fortress. He comes to offer his hand in friendship, Borg."
 
-"Tor... Sol..." (Fire... Salt...)
+Thame did not waste breath on elaborate speeches. In the frozen wilderness, survival resources spoke louder than ten thousand words.
 
-Thame made no sudden movement to avoid startling them. He tapped his chest gently and gestured toward the bubbling pot, speaking the universal primal words he had learned:
+Slipping his pack off, Thame retrieved two offerings and placed them upon a flat stone before Borg:
 
-"Thame... Sua (Friend)..." Thame smiled faintly, nodding in welcome. "Sua... eat..."
+The first was a canvas pouch rolled open to reveal half a kilogram of sparkling, pure white sea salt, glinting in the midday sun like crushed diamonds.
+The second was a heavy-duty ferrocerium rod with a steel striker, flanked by a generous bundle of smoked venison.
 
-Seeing the hunter lower his bow with no hostile intent, Elya stepped down silently from her high vantage point, lowering her bow. She pressed two fingers to her forehead and then pointed them toward the earth—the mountain hunters' peace sign—before uttering a few brief, guttural dialect words to open a bridge of trust.
+Borg and his hunters went entirely rigid, the breath catching in their throats at the sight of the pristine white crystals.
 
-The lead hunter recognized at once that the young woman was kin of the Cliff Deer clan, and that the stranger bore no hostility. Turning his head, he whistled a low, sharp signal, prompting the seven hunters waiting warily at the tree line to step forward and gather cautiously around the warmth of the fire.
+Borg extended a trembling finger, pressing it into the salt and touching it to his tongue.
 
-Using his camp spoon, Thame ladled rich venison stew into a small titanium bowl and offered it to the leader with both hands.
+The veteran hunter's eyes dilated in sheer wonder. A rich, clean salinity exploded across his palate, devoid of any bitter alkali mud or animal ash, sending warmth coursing through his starved senses.
 
-The leader accepted the warm metal vessel with cautious curiosity. Inhaling the rising steam, he took a tentative sip.
+"Sol!... The white stone of life!" Borg gasped in reverence. To mountain nomads enduring winter, pure sodium was the difference between life and death, an invaluable treasure to preserve meat.
 
-In that instant, the weathered hunter's eyes widened in disbelief. The pure salinity of clean sea salt, entirely free of the bitter mud of mineral dirt, fused with the savory fat of stewed game and rich broth, sending warmth coursing through his shivering body.
+Thame took the ferrocerium rod and struck the striker down the bar with a sharp scrape. A shower of three-thousand-degree sparks cascaded onto dry tinder, igniting instantly in the snow. The hunters recoiled in collective awe, witnessing the power of the sun tamed in a stranger's palm.
 
-"Sol!... Sol!..." he gasped in awe, before tilting the bowl back and draining every last drop, licking his lips to savor the precious mineral.
+"This salt and fire-steel are gifts of alliance," Elya translated. "We ask you and your pine hunters to be our eyes and ears along the southern ridges, scouting Grak's host... in exchange for food, pure salt, and warm shelter behind the Iron Fortress when blizzards rage."
 
-Thame dished out portions to the remaining hunters. As hot food filled their stomachs, suspicion melted into gratitude. Kneeling by the fire, the broad-shouldered leader laid his wooden bow flat upon the stone and thumped his left chest firmly:
+Borg cradled the salt and fire-striker to his chest, his eyes burning with vengeance and resolve. He slammed his left fist violently against his chest:
 
-"Borg..."
+"Even without salt, my spears thirst for Demon Fang blood! But these gifts will keep my people alive to see them burn!" Borg swore fiercely. "Every ridge and shadow in this pine forest belongs to us... Every footstep of Grak's army will reach your ears before they ever set foot in your pass!"
 
-"Thame," the young man replied, tapping his own chest.
+The pact was sealed in iron and salt. Yet as Borg turned to lead his scouts onto the heights, he froze, spinning back to grip Thame's sleeve with desperate urgency.
 
-Negotiation across ten millennia began without complex speech. Thame picked up a dry pine twig and sketched upon the smooth snow before the fire:
+The hunter's scarred face turned pale, drawn with a fear Thame had not yet seen in him.
 
-He drew a rectangle with circles for wheels to represent the truck fortress, rugged jagged lines for the limestone pass, and a fanged skull with dozens of spears marching north. Pointing at the skull, he spoke the warning word:
+Borg tapped Thame's synthetic coat and lugged boots. Then, raising both hands to his shoulder as if bracing a long wooden weapon, he aimed forward and made a violent cracking detonation in his throat:
 
-"Orok (Enemy)... Grak..."
+"Crack!... Fire!... Smoke!..."
 
-Borg and his hunters stared at the sketch, their faces darkening with grim recognition. Gritting his teeth, Borg drew his thumb across his own throat and pointed toward the southern forest with a low hiss—making it clear that the cannibal Demon Fang had hunted and butchered their kin as well.
+Borg clutched his own chest, staggered backward, and dropped into the snow, convulsing before lying motionless—mimicking a warrior struck down in an instant from afar!
 
-Thame pointed to his own eyes, then to Borg's eyes, and traced a dotted line with the stick along the southern ridge on the snow:
+"White-faced man... dressed like you... marches beside Warlord Grak!" Borg rasped in warning. "Beware of him!"
 
-"Borg... watch... Orok."
-
-Elya reinforced the message with rapid hand signs, mimicking an animal scouting unseen along the rocky peaks. Borg nodded sharply, understanding the tactical request instantly through raw hunter instinct.
-
-Borg pointed back at the simmering pot and the salt pouch, gesturing to the terms of trade.
-
-Thame laid out a canvas pouch containing half a kilogram of sea salt, a spare ferrocerium fire striker, and a thick bundle of smoked venison on the snow before him.
-
-Borg cradled the glistening white salt and the metal fire striker in trembling hands. To a nomad clan, these treasures meant survival through the bitter winter.
-
-"Sua!..." Borg grunted in deep satisfaction, thumping his chest to seal the blood pact as scouts along the southern peaks.
-
-Yet before the hunters turned to depart, Borg stopped in his tracks, his weathered face tight with grave alarm.
-
-He pointed at his own face, then tapped Thame's synthetic coat and rubber-soled boots. Then, raising both hands to his shoulder as if bracing a long staff, he aimed forward and made a violent cracking explosion from his throat:
-
-"Crack!... Tor!... Smoke!..."
-
-Borg clutched his own chest, stumbled backward, and dropped onto the snow, convulsing before lying motionless—mimicking a warrior felled instantly from a great distance.
-
-The demonstration struck Thame like a thunderbolt... Modern firearms! Victor, or his rogue convicts, had officially joined the main host of the Demon Fang!
+The revelation struck Thame like a hammer blow... Modern firearms! Victor, or his rogue convicts, had officially joined the main host of the Demon Fang!
