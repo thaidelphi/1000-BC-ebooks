@@ -18,13 +18,11 @@ The Mountain Sheep clan refugees and young Tara clung together in clusters, shak
 
 Kuran snatched his barbed-wire bamboo pike high, his ancient warrior eyes blazing with fury. He let out a fierce guttural roar in his tribal tongue, pounding his chest and barking the few broken words he had learned from Thame: "Kuran... no fear! Demon Fang come... kill! Pierce!"
 
-"Don't engage head-on, Kuran. I won't allow a single drop of our warriors' blood to be spilled." Thame restrained him, then immediately pulled out his smartphone connected to the 2TB SSD.
+"Don't engage head-on, Kuran. I won't allow a single drop of our warriors' blood to be spilled." Thame restrained him, his engineer's mind rapidly assessing the tactical landscape.
 
-With the 850-gigabyte knowledge archive he had just finished downloading, Thame typed a search for chokepoint defense tactics and psychological warfare through the Kiwix offline app.
+Drawing upon his knowledge of historical chokepoint battles like Thermopylae, combined with the topographic sketches saved on his phone, Thame instantly recognized the valley's decisive terrain advantage. The most effective chokepoint defense was never a bloody melee clash, but simultaneous acoustic and visual sensory overload—disrupting the enemy before they ever closed to striking distance.
 
-The screen displayed tactical diagrams for Thermopylae-style corridor defense, fused with principles for neutralizing enemies using acoustic and visual disruption—without ever closing to melee range.
-
-"Nicha, help me look at this tactical layout... a four-meter chokepoint in front of our gate is the most perfect kill zone imaginable!" Thame pointed out the diagram on-screen at rapid speed.
+"Nicha, look at this..." Thame pointed out the rocky defile to the doctor. "That four-meter corridor at the mouth of the chokepoint is the perfect kill zone!"
 
 "They rely on darkness and predatory instincts," Dr. Nicha analyzed. "If we destroy their senses simultaneously—both sight and hearing—they'll break on their own!"
 
