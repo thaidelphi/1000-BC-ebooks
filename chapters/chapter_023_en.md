@@ -25,68 +25,54 @@ Thame brushed the gravel off the cardboard, meeting Kuran's hardened gaze. He un
 
 A pair of sharp, shrill horn blasts echoed down from the crag lookout behind the camp. Shiru and the sentries waved frantically, pointing toward the northwestern pine ridge.
 
-Thame quickly unclipped his 12x50 monocular and climbed the rope ladder to the lookout platform atop the crag alongside Elya and Kuran.
+Kuran roared out commands across the courtyard:
+"Wah! Sua! (Hurry! Battle stations!)"
 
-On the high observation crag, Shiru pointed toward the pine forest roughly four hundred meters away. Thame pressed the glass to his eye. The coated optics cut through the cold mist, revealing unnaturally swaying branches and fleeting silhouettes crouching in the brush. Yet the dense taiga and the blind angle of the shoulder slope obscured their exact identities.
+The alarm galvanized Fortress Alpha into immediate combat lockdown. The heavy timber gate was dropped and barred tight. Mountain-deer warriors sprinted to the ramparts behind the log palisade, notching arrows to bowstrings and leveling heavy spears, while the women and children withdrew to shelter behind the armored ten-wheel truck.
 
-Elya tapped Thame's sleeve, pointing down toward the ground outside the timber palisade, gesturing that they needed to scout the tracks up close.
+Thame quickly grabbed his 12x50 monocular and climbed the rope ladder up to the observation platform atop the high crag alongside Elya and Kuran, assessing the threat from the safest vantage point.
 
-The two climbed back down into the courtyard. Thame slung his field pack, checked the .38 revolver in his parka pocket, and stepped toward the log fortress gate with Elya, preparing to scout beyond the walls.
+From the high cliff overlooking the entire valley, Shiru pointed toward the edge of the pine forest roughly two hundred meters away across the open snowfield fronting the fortress.
 
-Yet before they could open the heavy timber gate, Kuran, having scrambled down right behind them with his spear and war axe, stepped sharply in front of the doorway!
+Thame raised the monocular to his eye. The multicoated glass cut cleanly through the morning mist, revealing eight figures clad in heavy furs crouching among the boulders and pine fringe. They were peering at the log ramparts and the brilliant orange truck with wide, awe-struck eyes—wary and astonished, but showing none of the savage, bloodthirsty posture of Grak's raiders.
 
-The veteran war chief shook his head fiercely, placing a heavy, scarred palm firmly against Thame's chest, pointing outside the gate:
-"Thame... Elya... Tah! (Stop!) Two men... No!"
+"They're watching our camp..." Thame whispered, handing the glass to Elya. "Elya, look. Who are they? Friend or foe?"
 
-Kuran mimed drawing a bow and drew a finger violently across his throat. He thumped his left chest hard, then signaled a sharp-shooting young tribal archer to bring his bow:
-"Orok (Enemy)... ambush! Kuran go... Sua (Protect)!"
+Elya pressed her eye to the rubber eyecup, sweeping over each hunter in turn and holding up fingers:
+"Eight men... wooden bows... short spears..."
 
-Seeing them about to unbar the gate and venture into the wilderness alone, Kuran knew instantly where they were headed. In a state of war, allowing the fortress leader to confront strangers in the pine woods alone was reckless madness. If they walked into an ambush, Fortress Alpha would fall.
+Suddenly, the crosshairs of her gaze locked onto the broad-shouldered leader. Her eyes went wide in disbelief, a sharp gasp catching in her throat. Lowering the monocular, she turned to Thame and Kuran with blazing eyes.
 
-"Understood, Kuran," Thame agreed, yielding to the warrior's tactical wisdom. "You and the archer trail behind us fifteen paces. Cover our rear."
-
-Thame gave the hand signal. Kuran nodded curtly. The four slipped silently past the palisade, Elya and Thame tracking in front while Kuran and the archer provided flank and rear security.
-
-Threading through the snow-draped taiga roughly four hundred meters beyond the camp, Elya dropped low into the powder behind a limestone outcrop, brushing faint marks where branches had hastily swept over fresh tracks. Behind them, Kuran and the archer melted into high-ground overwatch behind the crags, nocking arrows and leveling their spear.
-
-Elya pointed her carbon bow toward a hollow beneath dense pine boughs forty meters ahead, whispering:
-"Concealed men... beneath pine boughs..."
-
-Thame unclipped his 12x50 monocular and handed it to Elya. The multicoated optic cut through the veil of needles and drifting snow.
-
-Elya pressed her eye to the glass, scanning the silhouettes in the shadows, holding up fingers to tally them:
-"Concealed men... bows... short spears..."
-
-Thame followed her point, estimating in his head: eight of them...
-
-Suddenly, her gaze locked onto the broad-shouldered leader. Her breath hitched. A tremor passed through her frame before she lowered the scope, turning to Thame and Kuran with wide, blazing eyes.
-
-She pressed three fingers to her left cheek, clawing downward:
+She touched her left cheek, miming a bear claw slashing downward:
 "Borg!... Pine hunter!"
+
+Kuran, crouching beside them on overwatch, heard the name and let his tense posture ease. The veteran war chief gave a low nod:
+"Borg... Master hunter... Sua."
 
 "You know him, Elya?" Thame whispered.
 
-Elya nodded vigorously. Pointing to herself and toward the distant glacier crags, she mimed shivering in the cold, then mimed dividing meat:
-"Two winters ago... Black Glacier cave... blizzard collapse. Borg and Elya trapped three days. Shared dried meat, hunted cliff deer... Borg Sua (Friend)! Keeps his word. Not Grak's pack!"
+Elya nodded vigorously. Pointing to herself and then toward the glacier cliffs, she mimed shivering violently in the frost, then made slicing gestures dividing meat:
+"Two winters ago... Black Glacier cave... avalanche collapse. Borg and Elya trapped three days. Shared dried meat, hunted mountain deer... Borg Sua (Friend)! Keeps his word. Not Grak's pack!"
 
-Kuran, crouching in overwatch behind the rocks, heard the name and relaxed his spear tip slightly, nodding:
-"Borg... Hunt-Chief... Sua."
+"If it's Borg and not the raiders, this is our chance for an alliance," Thame said, scanning the tree line. "Elya, try signaling him. We hold the high cliff and the walls protect the camp. It's safe to open a parley."
 
-"If he is a friend, we make an alliance," Thame decided. "Kuran, hold this ridge in overwatch. Keep watch from afar."
+Elya nodded. Slinging her carbon bow behind her back, she stepped out onto the open edge of the crag ledge, spreading empty hands to show peace. Taking a deep breath, she whistled the piercing cry of a snow eagle—the exact call they had used across the blizzard two winters ago.
 
-Slapping her carbon bow across her back, Elya raised two open, empty hands and stepped out onto an exposed limestone ledge. Taking a deep breath, she whistled the piercing cry of a snow eagle—the exact call they had used across the blizzard two winters ago.
+At the edge of the pine forest, wooden bows frozen at half-draw dropped. A tall, rugged figure bearing a deep bear-claw scar across his left cheek parted the pine branches and stepped out into the open. He looked up toward the whistle, his sharp eyes locking onto Elya standing high upon the cliff.
 
-In the thicket, drawn bows froze. Pine needles parted, and a broad-shouldered hunter bearing a deep bear-claw scar across his left cheek stepped out into the open. His sharp eyes scanned Elya, then darted to Kuran standing tall with his war axe on the rocks behind.
-
-Shock broke across the scarred hunter's face as a guttural gasp escaped his throat:
+Stunned recognition swept across the scarred hunter's weathered face. A raspy cry tore from his throat:
 "Elya?!"
 
-Elya raised two fingers to her forehead and swept them down toward the snow—the mountain hunter sign of peace.
+Elya touched two fingers to her forehead and swept them down toward the snow—the mountain hunter sign of peace.
 
-Borg mirrored the gesture instantly:
+Borg instantly mirrored the gesture:
 "Sua! (Friend!)"
 
-The razor-thin tension shattered. Borg gave a short whistle, signaling his seven pine hunters to lower their weapons and follow him into the open. The two parties converged, halting three paces apart. Borg thumped his chest firmly. Elya returned the greeting with a wide smile.
+The razor-thin tension evaporated. Borg gave a short whistle, signaling his seven hunters to lower their weapons and follow him out onto the open snowfield.
+
+With their identity confirmed as old allies and no ambush in play, Thame ordered the timber gate unbarred. Flanked by Elya and Kuran with his war axe ready, Thame stepped out into the snow clearing directly in front of the camp, covered closely by archers aiming from the parapets above.
+
+The two parties converged, halting three paces apart. Borg thumped his left chest firmly. Elya returned the gesture with a warm smile.
 
 Borg glanced at Thame standing beside her, taking in his synthetic parka and modern gear. Borg pointed toward the sky, puffed his hands outward, and rumbled a deep thunderous detonation in his throat:
 "Boom!... Sky-fire... Iron beast?... Thame?"
