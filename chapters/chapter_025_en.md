@@ -41,12 +41,12 @@ Behind the ramparts, the Hill Deer hunters, who had instinctively flinched at th
 
 The primal terror of the fire-spitting thunder wand evaporated in an instant, replaced by blazing confidence in the hearts of every warrior!
 
-Tham raised the 50W megaphone, triggering a piercing blast of the electronic siren before booming across the gorge:
-"Your fire-spitting stick cannot pierce the earth! Drop your weapons and retreat!"
+Tham raised the 50W megaphone, triggering a piercing wail of the electronic emergency siren that echoed thunderously across the valley to panic the savages, before booming directly at Victor:
+"Victor! Your shotgun can't pierce packed earth! Order your men to fall back, or don't say I didn't warn you!"
 
 Seeing that the white-faced man's magic weapon had failed to splinter the gate, and stung by the booming voice from the fortress, War Chief Grak flew into an uncontrollable berserk fury. He hoisted his colossal stone hammer overhead and bellowed a guttural roar:
 
-"Orok! Tor! Marn! (Slaughter them all!)"
+"Orok! Tor! Marn!"
 
 Over a hundred Beast Fang warriors shrieked in savage unison, surging forward like a howling human wave directly into the four-meter bottleneck chokepoint before the gate!
 
@@ -103,11 +103,11 @@ The primer detonated with a crisp recoil, unleashing a screaming sphere of incan
 
 The 3,000°F chemical furnace erupted upon contact with the sabertooth skull and cured wolf pelts!
 
-The fossilized bone shattered into showers of white-hot sparks. Grak’s heavy fur mantle burst into an inferno of roaring crimson flames in an instant. The crushing kinetic force and thermal blast lifted the two-hundred-kilogram giant off his feet, hurling him backward through the air to crash violently into the snow!
+The fossilized bone shattered into showers of white-hot sparks. Grak’s heavy fur mantle burst into an inferno of roaring crimson flames in an instant. The agonizing heat and chest impact staggered the two-meter-tall, hundred-kilogram warlord, knocking him flat on his back into the deep snow!
 
 Over thirty thousand candela of blinding red radiance washed over the frozen valley, turning the white snowfields into an incandescent sea of blood-red brilliance. Flocks of wild birds scattered in terror as the entire battlefield was enveloped in divine, blinding solar fire!
 
-"AAAAAAARGH! Tor! Tor-Teve! Burning! I surrender!"
+"AAAAAAARGH! Tor! Tor!... Aka! Aka!"
 
 Grak shrieked in absolute torment and horror, thrashing frantically in the deep snowbank to smother the flames consuming his furs. His war hammer and bone lance flew from his grip, his ferocious aura shattered into pitiful whimpering in the blink of an eye!
 
