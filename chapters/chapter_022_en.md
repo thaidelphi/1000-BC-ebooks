@@ -8,7 +8,7 @@ Yet that silence lasted only moments before three sharp blasts of a warning whis
 
 *Tung!... Tung!... Tung-Tung-Tung!*... Ancient war drums made of stretched animal hide thundered along with the wind, their deep, heavy beat reverberating through the earth like the heartbeat of some ancient demon.
 
-On the snow-capped ridgeline to the south, three kilometers away, hundreds of torches were moving in a long line through the dark like a fire-serpent slithering closer.
+On the snow-capped ridgeline to the south, three kilometers away, over twenty torches carried by the vanguard were moving in a long line through the dark like a fire-serpent slithering closer.
 
 "They really did follow our tracks..." Elder Bathor sank to his knees in the snow, lips trembling. "The vanguard of the Fang Drinker clan... they never let prey escape!"
 

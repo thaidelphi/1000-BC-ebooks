@@ -185,7 +185,7 @@ Elder Bathor gasped, crying out in sheer horror: "The war drums of the Demon Fan
 
 Terrifying tales of the Demon Fang's savagery—burning settlements to ash and butchering captives for winter meat—flooded the refugees' minds, making them shudder in dread.
 
-Across the southern snowy crest, over a hundred flickering torches flared in a jagged line through the dark—the vanguard of the Demon Fang cannibal horde had tracked the refugee trail to the fortress!
+Across the southern snowy crest, over twenty flickering torches carried by the vanguard flared in a jagged line through the dark—the vanguard of the Demon Fang cannibal horde had tracked the refugee trail to the fortress!
 
 Kuran thrust his barbed-wire bamboo spear toward the sky with a fierce roar, El-ya drew her carbon bowstring taut, and Dr. Nicha gripped her scalpel with unyielding resolve.
 
