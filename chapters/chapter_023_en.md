@@ -38,17 +38,17 @@ He arranged three limestone rocks into a hearth, then pulled out his ultralight 
 
 "Watch how modern humans negotiate, Elya... In a freezing forest, hot food speaks louder than spear points." Thame gave a faint smile.
 
-Thame clicked the piezo switch of his jet lighter. The concentrated blue flame lit dry pine shavings instantly, the rising wisp of pine smoke catching the hidden hunters' eyes.
+Thame clicked the piezo switch of his jet lighter. A concentrated blue flame ignited the dry pine shavings instantly without any spinning stick or striking flint. The sudden spark of fire from an open palm widened the watchful eyes hidden in the brush.
 
-Clear water from the flask went into the titanium pot. As bubbles broke and warm steam rose, Thame dropped diced cubes of smoked venison into the boiling water, followed by half a beef bouillon cube.
+He set the titanium camp pot over the flame, pouring in water until it bubbled vigorously, sending a thick column of white steam rising against the sub-zero air. He dropped in diced smoked venison and half a broth cube.
 
-The savory fragrance of herbs, dehydrated onions, and rich broth lifted into the air with the steam. The mountain breeze blowing up the slope carried the warm mist and rich aroma straight toward the pine hollow just upwind.
+In such bitter cold, the scent of food could hardly travel far. But far more arresting than scent was the sight unfolding before them. Thame sat cross-legged on the ground, setting his crossbow and knife far behind his back, his empty palms turned upward in an unmistakable gesture of peace.
 
-When Thame retrieved a pouch of sparkling sea salt and sprinkled white crystals into the soup, the gleaming salt grains caught the sunlight like sacred gems.
+Then, Thame lifted a pinch of pure white sea salt high into the midday sun, letting the pristine crystals catch the light like glittering gemstones, before letting them shower into the boiling broth.
 
-To nomads who had endured chewing frozen raw game in sub-zero blizzards, the warm aroma drifting on the breeze was impossible to ignore.
+To mountain nomads accustomed to bitter, muddy salt licks, the sight of pure white mineral crystals was like looking upon sacred treasure. When the subtle mountain breeze finally drifted past, carrying a faint whiff of hot broth to confirm it was real nourishment rather than a trick or trap, their caution wavered.
 
-The pine branches rustled softly. The broad-shouldered leader of the hunters, a bear-claw scar etched deep into his weathered cheek, stepped carefully out from the shadows. Though his wooden bow was held ready, his gaze remained transfixed by the steaming pot and the shimmering white crystals.
+The pine branches rustled softly. The broad-shouldered leader of the hunters, a bear-claw scar etched deep into his weathered cheek, stepped carefully out from the tree line. Though his wooden bow was held ready, his gaze remained transfixed by the rising steam and the shimmering white crystals.
 
 "Outsider... Master of the Blue Flame..." the lead hunter rasped in an archaic tongue. "You hold the white mineral powder of life..."
 
