@@ -46,13 +46,15 @@ He retrieved a pouch of pure sea salt, lifting a pinch into the sunlight where t
 
 To nomads accustomed to bitter, muddy mineral licks, the sight of pure white crystal salt was like witnessing sacred treasure, and the sight of hot food in the snow held every eye captive.
 
-The pine branches rustled softly. The broad-shouldered leader of the hunters, a bear-claw scar etched deep into his weathered cheek, stepped cautiously out from the tree line. Though his wooden bow was held ready, his gaze was fixed intently upon the simmering pot and the shimmering white crystals.
+The pine branches rustled softly. The broad-shouldered leader of the hunters, a bear-claw scar etched deep into his weathered cheek, stepped cautiously out from the tree line thirty meters away. He treaded slowly across the snow, his wooden bow lowered to waist height, his eyes flicking between Thame's empty hands and the glistening white crystals in the pot.
+
+He halted three or four paces from the fire, his breath pluming white in the freezing air, before speaking in a low, rasping cadence:
 
 "Outsider... Master of the Blue Flame..." the lead hunter rasped in an archaic tongue. "You hold the white mineral powder of life..."
 
-"I am Thame, and this is Elya of the Cliff Deer clan," Thame replied respectfully, gesturing with open hands. "We come as friends. Come share warm soup with us."
+"I am Thame, and this is Elya of the Cliff Deer clan," Thame replied calmly, gesturing with open hands toward the steaming pot. "We come as friends. Come share warm soup with us."
 
-Elya translated into their dialect and made peaceful hand signs, encouraging the other seven hunters to step forward one by one.
+Elya signaled with traditional hunter hand signs of peace, prompting the remaining seven hunters at the tree line to move forward warily toward the warmth of the fire.
 
 Using a titanium spoon, Thame ladled steaming stew into a small metal bowl and offered it to the lead hunter with both hands.
 
