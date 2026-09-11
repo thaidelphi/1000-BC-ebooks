@@ -33,7 +33,7 @@ Yet... the sound that followed was not the splintering crash of wood Victor had 
 The supersonic lead pellets punched through the outer pine bark, but the moment they struck the forty-centimeter-thick core of compacted red clay and limestone gravel, over two thousand joules of kinetic energy were utterly swallowed. Millions of earth and rock granules crushed the soft lead flat, halting the pellets dead within ten centimeters of impact. Only a harmless puff of red dust drifted into the freezing wind. The bulwark did not yield a single millimeter!
 
 The smirk on Victor’s face froze solid. The mercenary’s eyes stretched wide in disbelieving horror:
-"Synthetic woven sandbags from the modern world?!... And who the hell designed this?! In the middle of ten thousand BC... where did they get modern materials, and who taught them ballistic trench engineering?!"
+"Sandbags?!... Bullshit, where the hell did you bastards get sandbags in the middle of the Stone Age?! And who the fuck thought of packing dirt to stop bullets?!"
 
 Behind the ramparts, the Hill Deer hunters, who had instinctively flinched at the terrifying thunderclap, looked up to see their wall completely unbreached. Kuran ran his calloused hand across the rough sandbags, throwing his head back to roar at the heavens with unshakeable faith:
 
