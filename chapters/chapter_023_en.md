@@ -2,15 +2,24 @@
 
 *Scritch... scritch... hiss...*
 
-The steady rasp of river stone grinding against flint axe blades echoed through the tense morning air by the dying hearth fire. Kuran sat shaping a fresh war axe, the seasoned warrior's eyes blazing with cold fury and vigilance.
+The steady rasp of river stone grinding against flint axe blades echoed through the tense morning air by the dying hearth fire. Kuran sat shaping a fresh war axe, the seasoned warrior's eyes shadowed with cold fury and heavy dread. The grim intelligence wrested from the captive last night still hung over the camp like a storm cloud.
 
-"Grak..." Kuran rasped low in his throat. Scooping up two handfuls of coarse gravel from the hearth, he let the stones shower across the timber table, spreading his arms wide to the horizon to signify an overwhelming horde beyond counting, like pebbles on a riverbed. He slammed the spear butt hard into the frozen earth, pointing toward the southern pass where the blizzard still raged violently.
+Thame bent over the timber table, spreading a wide piece of flattened cardboard sketched with defensive blueprints—timber palisades, ditch traps, and barbed wire chokepoint perches.
 
-"Beyond counting... by our estimates, easily a hundred spears," Thame muttered, understanding the primitive gesture. He leaned over the flattened cardboard on the timber table, using a black permanent marker to connect defensive chokepoints, pit traps, and marksman perches. "They are pinned down by the blizzard across the southern pass. That buys us two to three days to prepare our barricades."
+Kuran paused his stone. He stared at the small drawing of their camp on the cardboard. Scooping up a heavy handful of coarse gravel from beside the hearth, he let the stones cascade across the cardboard, burying Thame's sketch beneath a mound of rock.
 
-"If their horde truly reaches a hundred warriors, holding the chokepoint alone might not be enough, Thame," Dr. Nicha said, stepping over after treating the wounded captive, her expression grave. "We have no way of knowing the moment their blizzard clears."
+Pointing to the stones smothering the drawing, the scarred warchief shook his head slowly, rumbling low in his throat:
+"Grak... Orok (Enemy)... many... bury us!"
 
-"We need allies, and we need eyes and ears outside this valley to send warning," Thame agreed.
+Kuran wasn't playing charades; it was a veteran hunter's blunt, unvarnished warning—no matter how clever Thame's contraptions were, if the Demon Fang horde poured through like an avalanche of stone, this tiny outpost would be crushed flat.
+
+Thame brushed the gravel off the cardboard, meeting Kuran's hardened gaze. He understood the deep-seated terror of a tribe hunted to the brink of extinction.
+
+"Did the captive reveal anything else when you dressed his wounds last night, Doctor?" Thame asked, turning to Dr. Nicha as she approached with her trauma kit.
+
+"He used charcoal to sketch countless stick figures across the dirt, Thame," Dr. Nicha replied, her expression grim. "He pointed to the snow-choked peaks to the south, shivering violently, then held up two fingers, then three, while tracing the sun rising and setting... It means Warlord Grak's host is pinned down by the blizzard behind the southern pass. Once the storm clears in two or three days, they will march to wipe us out."
+
+"Against numbers like that, barbed wire and chokepoints alone won't save a camp of our size," Thame nodded. "We need allies, and we need eyes and ears outside this valley to give us advance warning before they hit the pass."
 
 *Tweet!... Tweet!*
 
