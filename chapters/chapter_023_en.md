@@ -14,9 +14,16 @@ The steady rasp of river stone grinding against flint axe blades echoed through 
 
 At that moment, Shiru and the cliff-top sentries blew a sharp coded blast from their lookout perches behind the camp, pointing toward the northwestern pine ridge. Elya scrambled swiftly up the crag, conferenced with the watch, and gestured urgently down at Thame.
 
-Thame tightened his field pack and carbon-steel bushcraft knife at his hip, his right hand checking the reassuring weight of the .38 revolver in his heavy parka pocket, before nodding to Elya to lead the way up the limestone heights.
+Thame grabbed his field pack to move out, but Kuran, rising from the hearth with a long spear and his newly ground war axe, stepped sharply into his path, his scarred face grim.
 
-Threading through the snow-draped taiga roughly four hundred meters beyond the palisade, Elya suddenly dropped low into the powder behind a limestone outcrop, her fingers brushing against faint disturbances in the snow where branches had hastily swept over fresh tracks.
+"You cannot go out as just the two of you, Thame," Kuran said sternly. "Our fortress is in a state of war. If there is an ambush out there and you—the heart of this camp—fall, every soul here is doomed."
+
+"Kuran is right," Thame agreed, nodding to fundamental tactical doctrine. Wandering beyond defensive lines without rear security was reckless folly. "We form a four-man patrol. You and another marksman trail behind in overwatch, fifteen paces back. Keep low and don't alert them."
+
+Kuran gave a curt nod and signaled another sharp-shooting young tribal archer to follow. The four slipped silently past the palisade, Elya and Thame taking point to track while Kuran and the archer provided rear and flank security.
+
+Threading through the snow-draped taiga roughly four hundred meters beyond the palisade, Elya suddenly dropped low into the powder behind a limestone outcrop, her fingers brushing against faint disturbances in the snow where branches had hastily swept over fresh tracks. Behind them, Kuran and the archer slipped into concealed high-ground overwatch behind limestone boulders, arrows nocked and spear ready.
+
 "Fresh foot tracks heading toward the ridge..." Elya whispered, her bow tip pointing toward a hollow beneath dense pine boughs forty meters ahead. "Up there, beneath the boughs... people are crouching, watching our camp."
 
 Thame unclipped his monocular and handed it to Elya. The multicoated glass lens pierced through the veil of needles and drifting powder with razor sharpness.
@@ -24,18 +31,18 @@ Thame unclipped his monocular and handed it to Elya. The multicoated glass lens 
 Elya pressed her eye to the optic, carefully scanning the snowy thicket.
 "Eight of them... armed with short bows and spears..."
 
-Suddenly, her gaze locked onto the broad-shouldered leader seated against a boulder. Her eyes widened in shock. A tremor passed through her frame before she lowered the scope, turning to Thame with blazing eyes:
+Suddenly, her gaze locked onto the broad-shouldered leader seated against a boulder. Her eyes widened in shock. A tremor passed through her frame before she lowered the scope, turning to Thame and Kuran with blazing eyes:
 "It is Borg!... I recognize the bear-claw scar across his left cheek!"
 
-"You know him?" Thame asked, his eyes scanning the tree line.
+"Borg?" Kuran raised a brow, the edge of suspicion softening slightly. "The Hunt-Chief of the wandering pine nomads... Fiercely proud hunters who bow to no man, but they are certainly no friends of the Demon Fang."
 
-"He is the Hunt-Chief of the wandering pine forest nomads," Elya explained swiftly. "Two winters ago, when Tara was small, an avalanche blocked our hunting valley. Borg and I were trapped together in the Black Glacier cave for three days. We shared dried meat and hunted cliff deer side-by-side. Borg is fiercely proud and honors his word above his life. And his clan has never bowed to the Demon Fang!"
+"Yes, and I know him well," Elya explained swiftly. "Two winters ago, when Tara was small, an avalanche blocked our hunting valley. Borg and I were trapped together in the Black Glacier cave for three days. We shared dried meat and hunted cliff deer side-by-side. Borg is fiercely proud and honors his word above his life. His clan has always been blood enemies with the Demon Fang!"
 
-"That is exactly the ally we need," Thame decided without hesitation. "Approach him the hunter's way."
+"Then this is the exact ally we need," Thame decided without hesitation. "Kuran, hold this ridge in overwatch. The two of us will step forward and approach him the hunter's way."
 
 Elya nodded. Slapping her carbon bow across her back, she left her hands visibly empty and stepped out onto a high limestone shelf in clear view of the thicket. Taking a deep breath, she whistled the piercing cry of a snow eagle—the exact call they had used across the blizzard two winters ago.
 
-In the thicket, drawn bows froze. The broad-shouldered leader parted the branches and stepped out from the trees, his piercing gaze sweeping over Elya before a guttural gasp escaped his lips:
+In the thicket, drawn bows froze. The broad-shouldered leader parted the branches and stepped out from the trees, his piercing gaze sweeping over Elya before darting to Kuran standing tall in guard upon the rocky crest behind them. Then a guttural gasp escaped the chief's lips:
 
 "Elya... Hunter-Daughter of the Cliff Deer?!"
 
