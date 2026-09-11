@@ -96,7 +96,7 @@ Thame looked down at the emaciated group with calm resolve. He had no desire to 
 
 "Fortress Alpha never slaughters those who surrender..." Thame spoke in a deep, ringing voice that carried the weight of steel. "But there is no free food here for thieves and the lazy."
 
-The young man pointed the tip of his 1095 carbon steel blade toward the pine forest and the massive limestone quarry:
+The young man pointed the tip of his bushcraft knife toward the pine forest and the massive limestone quarry:
 
 "I give you two choices... First, get out. Return into the freezing wilderness empty-handed, and see how many days it takes for the blizzard to swallow you whole."
 
