@@ -1,117 +1,94 @@
-# Chapter 24: The Rogue Skirmish & Barbed Wire Trap (การปะทะโจรป่าชนเผ่าเร่ร่อนและค่ายกลลวดหนาม)
+# Chapter 24: The War Council & The Ballistic Bulwark
 
-Atop the observation platform above the double-layer log palisade, Elya pressed her back against the timber support beam, left hand gripping her carbon fiber compound bow as her hawk-sharp eyes swept the gloom of the taiga pine forest.
+The heavy timber bar slammed down across the fortress gate with a resonant *thud!*, sealing Fortress Alpha once more from the frozen wilderness beyond.
 
-"There is a strange scent on the cold wind..." Elya murmured, warm breath puffing like white mist in the dark. "Not Cliff Deer. And not the wild beasts of this valley."
+Thame, Elya, and Kuran walked back into the courtyard with heavy, deliberate strides. A biting wind howled through the limestone canyon, swirling plumes of powder snow across the frozen dirt. Yet the arctic chill biting at their cheeks was nothing compared to the cold dread settling in Thame's chest.
 
-Beside her, Thame quietly inspected the safety valve of the high-pressure spray cylinder, while Kuran and three Cliff Deer warriors kept vigilant watch according to the three-shift guard rotation Kuran had structured alongside Thame.
+Borg's warning echoed relentlessly in his mind like a funeral bell: *'A white-faced man dressed like you... carrying a fire-spitting iron rod that strikes from afar and kills in a heartbeat...'*
 
-"Bitter cold drives every living thing to risk everything for food," Thame replied quietly, his fingers resting on the reinforced steel nozzle beside him.
+"Kuran, keep the hunters on overwatch at the ramparts," Thame commanded with a brief hand gesture. "Elya, with me."
 
-Borg's warning about the 'white-faced warrior with the fire-spitting stick' still echoed in his mind. But tonight, the movement closing in on the camp belonged neither to Victor's army nor to the Demon Fang vanguard.
+Inside the insulated cargo box of the ten-wheel truck, the double Rocket Stoves radiated welcoming heat against the frost. Dr. Nicha was busy organizing vials of antiseptic and sterile gauze across the timber workbench. Seeing the grim, drawn expressions on Thame and Elya as they stepped inside, the young doctor paused immediately.
 
-At 2:15 AM... amid the whistling of the freezing wind, a crisp, sharp *jingle... clink!* drifted from the pine grove thirty meters out.
+"What happened, Thame? Did the parley with the pine hunters go wrong?" Dr. Nicha asked, her voice laced with tension.
 
-It was the sound of empty coffee tins and brass bullet casings filled with pebbles, tied securely to the outermost low tripwire perimeter!
+"The parley went well. We secured eight pine nomads to watch the southern ridge for us," Thame replied, slipping off his heavy gloves and sinking down onto a wooden crate. "But the intelligence Borg brought... is far worse than we feared."
 
-"Something entered our perimeter..." Thame signaled low with his hand, immediately dropping everyone flat behind the earthbags.
+Thame recounted Borg's gestures and warning in meticulous detail: the pantomime of shouldering a long rod, the guttural thunderous blast in the throat, and the 'white-faced man' marching alongside Warlord Grak's host.
 
-Peering through the observation slit, nearly ten emaciated silhouettes crept out from the pine tree line. Clothed in ragged, tattered scraps of beast skin, their bodies were so starved that their ribs showed prominently. Gripping fire-hardened wooden stakes and crude flint spears, their eyes hungrily locked onto the faint traces of smoke and the scent of animal fat rising from the camp's larders.
+The moment the words *'fire-spitting iron rod'* left his lips, all color drained from Dr. Nicha's face. Her dark eyes widened in sheer horror.
 
-"Southern rogue nomads..." Kuran hissed through gritted teeth, recognizing them instantly. "A nameless scattered clan broken by war. Starved out of their minds, trying to sneak into the camp to steal food!"
+"A gun!... A modern firearm!" Dr. Nicha gasped, her voice trembling. "The white-faced man... it can't be anyone else. It has to be 'Victor'!"
 
-The eight rogues grew emboldened seeing the front gate seemingly dark and deserted. Their leader let out a low hiss before surging forward across the snow, charging straight for the timber wall to scale it.
+"Victor? You know him?"
 
-Yet they never dreamed that beneath the virgin snow before them, Thame had meticulously laid out the multi-tiered **Anti-Human Barbed Wire Doctrine**!
+"Not personally, but right before our team's truck plunged through the temporal rift, emergency radio broadcasts warned of a high-security prison transport van that slid off the highway into the black fog vortex," Dr. Nicha explained rapidly, cold sweat beading beneath her bangs. "In that van was a violent felon named Victor—an ex-mercenary serving time for armed robbery and murder. And in that transport van, the corrections officers were equipped with pump-action shotguns and nine-millimeter service pistols with spare ammunition!"
 
-*Snap!... Crunch!*
+A leaden silence fell over the cargo container. Elya, standing beside them, could not understand the modern words, but she clearly read the crushing tension. The huntress stepped closer to Thame, her hand tightening around the riser of her carbon-fiber bow.
 
-The instant the calloused bare feet of the first three rogues crossed into the twenty-meter threshold, they slammed directly into Tier 1: galvanized high-carbon steel barbed wire strung just fifteen centimeters above ground and camouflaged beneath soft snowdrifts.
+Kuran, who had slipped into the container to report the perimeter status, crouched low beside the warm stove. The veteran war chief frowned deeply, pointing toward the timber palisade outside, mimicking a thunderclap in his throat before pointing at his own chest:
 
-Four-point high-carbon steel barbs as sharp as hypodermic needles seized their ankles and Achilles tendons with vicious force, sending all three crashing face-first into the snow with a thunderous *thud!*
+"Orok... Thor... invisible spear?... Camp logs... hold against it?"
 
-"Aaaargh!" A bloodcurdling scream of bone-piercing agony split the midnight silence.
+Thame met the scarred war chief's gaze, shaking his head slowly and honestly:
 
-The fallen bandits thrashing wildly attempted to jerk their feet free. But the more they struggled, the deeper the tightly twisted steel barbs dug into their flesh, tearing open skin and spilling bright crimson blood across the snow.
+"No, Kuran... Our pine palisades cannot stop bullets."
 
-The five charging behind them panicked, unable to brake in time, their forward momentum hurling them headlong into the Tier 2 trap—the **Double Concertina Coils** arranged in a funneling V-shaped corridor!
+A shotgun slug or a 9mm copper-jacketed round traveled at supersonic velocities. Hundreds of foot-pounds of kinetic energy would punch straight through three to four inches of soft pine logs as if they were wet parchment. If the mountain-deer archers manned the wooden ramparts as before, a single burst of gunfire from Victor would tear through the wood and slaughter everyone behind it.
 
-*Scrape!... Slash!*
+"Then what can we do?" Dr. Nicha pressed her hands together tightly. "A hundred raiders under Grak, plus Victor with modern firearms... We have barely twenty fighting men. Even with barbed wire, if they pin us down from range with gunfire, our obstacles won't save us!"
 
-The coiled loops of steel wire, ninety centimeters in diameter, collapsed around their bodies like living iron talons. Hundreds of razor-sharp barbs shredded through fur garments and bit into their chests, abdomens, and thighs.
+"Wood cannot stop bullets... but basic military physics offers something that stops projectiles better than steel," Thame said, his voice hardening with steely resolve. "And that is packed earth, sand, and stone!"
 
-"Demon vines!... Flesh-eating iron vines!" one rogue shrieked in uncontrollable hysteria. He swung a flint knife wildly against the wire, desperate to hack it apart.
+Rising to his feet, Thame marched toward the deep rear of the cargo container. His eyes scanned the stacked rows of corrugated boxes until they locked onto a heavy, reinforced carton labeled `#TH-819204`, weighing 14.5 kilograms. The shipping waybill was addressed to a civil engineering and flood defense contractor.
 
-*Clang! Crack!*
+Drawing his 1095 carbon steel bushcraft knife, Thame sliced cleanly through the reinforced packing tape!
 
-The flint blade shattered into useless fragments upon striking high-tensile steel wire exceeding 450 megapascals. The wire did not even bend. The brutal physics of modern metallurgy delivered an unforgiving slap across the face of Stone Age mankind.
+The first items to emerge were **one hundred heavy-duty woven polypropylene sandbags in olive drab**, bundled tightly with sisal twine.
 
-Another rogue tried tearing the wire away with his bare hands to free his comrade. The result was instantaneous: razor barbs pierced straight through his palms to the bone. Blood soaked the cold steel. The dagger-like barbs refused to let go; pulling only tore flesh into ribbons!
+Beneath the sandbags lay **two three-folding carbon-steel tactical trench shovels** and **four pairs of ANSI Z87.1 polycarbonate ballistic safety goggles**.
 
-Terrified wails reverberated across the valley, completely shattering the quiet of the night.
+"Here is our body armor," Thame announced, turning to the others.
 
-*Whirrr... Flash!!*
+Grabbing the trench shovels and the bundles of sandbags, Thame stepped out into the snowy courtyard. He raised his voice, calling out to Kuran and signaling a full mobilization of the entire settlement—uniting the warriors of the Mountain Deer and the thirty refugees of the White Deer clan, over sixty souls in all!
 
-At that exact moment, the camp's Passive Infrared (PIR) motion sensors tripped. Twin 200W solar-powered LED floodlights mounted atop the wooden corner towers burst to life, bathing the entire funnel corridor in blinding daylight illumination.
+"Kuran! Rally everyone to work! We have less than two days before the southern blizzard breaks!"
 
-The blinding glare overwhelmed eyes adapted to darkness, disorienting the two bandits who had not yet been caught in the wire. They stumbled backward, raising their arms in panic, believing the Sun God had descended to pass judgment.
+Thame demonstrated the doctrine of the 'Ballistic Earth Bastion' through immediate action:
 
-"Hold your arrows! Don't kill them!" Thame roared over the din, checking Kuran and the spearmen poised to strike.
+Unfolding a sandbag, he drove the sharp edge of the trench shovel into the red clay and limestone gravel beneath the packed snow, filling the tough woven bag until it swelled taut, then securing the neck with a nylon cable tie.
 
-On the rampart, Thame grabbed the five-liter pressurized garden sprayer, already pumped to maximum pressure. Its brass nozzle was set to a wide mist pattern.
+A single packed sandbag just twenty-five centimeters thick was capable of absorbing and halting shotgun slugs and handgun rounds with absolute certainty. The granular mass of sand and gravel dispersed kinetic energy instantly, deforming lead projectiles and bringing them to a dead stop within inches!
 
-Inside was a fiery, concentrated decoction brewed from extra-hot mala chili powder, wild crushed garlic, and black pepper—concocted specifically for non-lethal riot control!
+Kuran and his seasoned hunters grasped the concept with startling speed. The war chief raised his fist, bellowing across the stockade:
+"Wah! Wah! (Hurry!) Aka... stone... earth... Wah!"
 
-*Fsssshhhhhh!!*
+What followed was the most massive engineering mobilization in Fortress Alpha's history:
+The men swung trench shovels, axes, and iron crowbars, carving through frozen soil and quarrying limestone rubble along the cliff base, filling all one hundred polypropylene sandbags to bursting.
+The women and elder refugees, lacking woven bags, wove dense wicker baskets and stitched rawhide packs, packing them with heavy clay and river stones to form secondary revetments.
 
-A dense orange mist surged through the air, completely enveloping the trapped bandits in the chokepoint.
+Thame directed the timber crew to erect a secondary inner stockade forty centimeters behind the main log wall. Into the trench between the double palisades, they dumped tons of packed earth, limestone rocks, and sandbags, stamping it down into a massive, earth-filled timber rampart that mimicked World War field fortifications!
 
-The concentrated capsaicin, carried on the freezing wind, instantly assaulted their eyes, noses, and open wounds.
+On the roof of the Hino 500 truck, Thame carried thirty sandbags up the ladder, stacking them two-deep around the roof perimeter to create an **Elevated Sandbag Bunker**, offering commanding, bullet-resistant 360-degree overwatch over the entire valley approach.
 
-"It burns!... I'm blind! Hellfire is burning my face!"
+Along the earth ramparts, Thame used the cordless chainsaw to notch narrow firing slits barely a handspan wide. On either side of each loophole, he bolted twelve-millimeter-thick 5160 leaf spring steel plates salvaged from the truck's broken rear suspension, creating armored shields to deflect ricocheting lead.
 
-The remaining bandits collapsed onto their knees, clutching their burning faces as though branded with red-hot coals. Tears and mucus poured uncontrollably as they coughed and gagged in agony.
+To banish all lingering doubt, Thame brought Kuran and Elya to test the newly fortified wall:
+Elya drew her recurve bow, loosing an iron-tipped arrow into a bare pine log. The heavy point split the wood and punched straight through the opposite side.
+Next, she loosed an identical carbon arrow into the packed sandbag revetment. The arrow sank a mere finger-length into the woven sack and stopped dead. The packed gravel absorbed the blow completely, leaving the rear untouched!
 
-In less than three minutes, all eight rogue bandits were completely neutralized. Fortress Alpha had not spilled a single drop of its own defenders' blood, nor had Thame spent a single round from his .38 revolver! (All 43 cartridges remained completely intact).
+Kuran ran a scarred, calloused hand over the rugged surface of the sandbag wall. A gleam of profound reverence lit the war chief's eyes. Slamming a heavy fist against his chest, he rumbled in deep conviction:
 
-"Move in, disarm, and secure them!" Thame ordered decisively.
+"Earth... stone... swallows death!"
 
-Kuran and the Cliff Deer warriors, donning heavy-duty work gloves and brandishing torches and nylon cord, rushed through the front gate. They kicked away the crude spears and clubs before binding the surrendered men's hands behind their backs.
+Elya smiled broadly, every trace of doubt replaced by the fierce resolve of a mountain hunter.
 
-Thame descended from the parapet equipped with long-handled wire cutters and heavy leather welding gloves. Calmly and methodically, he snipped and unhooked the vicious steel barbs from their flesh one by one.
+The shared labor stretching from noon to dusk welded the two disparate tribes into a singular, unified force. The paralyzing dread of the 'fire-spitting iron rod' had been supplanted by an unyielding bastion of earth and stone.
 
-Dr. Nicha, accompanied by Tara and the first aid trauma kit, stepped forward quickly. The sharp, clean scent of povidone-iodine antiseptic drifted through the freezing air.
+Midnight fell over the valley, the temperature plunging to -13°C as arctic gusts whistled across the crags.
 
-"This thigh laceration is deep, but missed the femoral artery... this one has severe palm tears from pulling the wire," Dr. Nicha diagnosed professionally, flushing the wounds with sterile saline before applying antiseptic dressings.
+Clad in his heavy parka and ballistic goggles, Thame stood watch behind the sandbag bunker atop the truck cab. Raising his 12x50 monocular to his eye, he swept the lens across the frozen southern horizon.
 
-The bandits trembled in mortal terror as they lay in the snow, convinced the strange woman was preparing to carve them up for food. But when the burning pain began to subside under anesthetic ointment and sterile gauze, their terror turned into awe, regarding Dr. Nicha like a healing goddess.
+Suddenly... through the distant veil of frost, three tiny pinpricks of orange flame flickered atop the high snow ridge—the emergency signal fire from Borg and his scouts!
 
-The bandit chieftain, his forehead bearing an old hunting scar, dropped to his knees in the snow, bowing his head against Thame's heavy winter boots until blood marked the snow:
-
-"Spare our lives... Lord of the Iron Beast! We are starving... our women and children died of the winter freeze in the caves... we only wanted scraps of meat to survive!"
-
-Elya translated the trembling, broken plea for Thame. Her eyes softened with pity and understanding.
-
-Thame looked down at the emaciated group with calm resolve. He had no desire to slaughter helpless captives, yet he could not allow the camp's laws to be broken.
-
-"Fortress Alpha never slaughters those who surrender..." Thame spoke in a deep, ringing voice that carried the weight of steel. "But there is no free food here for thieves and the lazy."
-
-The young man pointed the tip of his bushcraft knife toward the pine forest and the massive limestone quarry:
-
-"I give you two choices... First, get out. Return into the freezing wilderness empty-handed, and see how many days it takes for the blizzard to swallow you whole."
-
-All eight bandits shook their heads in terror, weeping and begging for mercy.
-
-"Or the second choice..." Thame continued, his piercing gaze locking onto every pair of eyes. "Accept medical treatment, stay, and work hauling stone, chopping firewood, and digging drainage ditches to expand our perimeter walls. In exchange, you will receive hot porridge, safe shelter behind our secondary palisade, and our protection!"
-
-The chieftain looked up, eyes widening in disbelief as tears of overwhelming gratitude spilled across the snow.
-
-"We will work!... Make us haul stone, dig earth, or face danger—we swear our lives! Only give us food and do not cast us into the cold to die!"
-
-The eight rogues pressed their foreheads to the frozen ground once more in total, heartfelt submission.
-
-Within half an hour, an encounter that could have ended in a bloodbath was transformed into the acquisition of eight dedicated, capable laborers who would bolster the camp's strength.
-
-Kuran and the Cliff Deer clan looked upon Thame with boundless admiration. The barbed wire defenses had proven their terrifying power without taking lives, while Thame's iron discipline tempered with mercy bound the disparate peoples of the valley ever closer together.
-
-Amid the biting winter winds, Fortress Alpha stood proud and majestic—an unbreakable sanctuary of hope and wisdom in the primeval world!
+The southern blizzard had broken. Warlord Grak's hundred-spear host—and the dark shadow of Victor armed with modern fire—had crossed the pass, marching straight toward Fortress Alpha!
