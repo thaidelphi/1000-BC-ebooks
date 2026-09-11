@@ -88,17 +88,19 @@ On the ground before the chokepoint lay only one warrior—a young Fang Drinker 
 
 Kuran leapt down from the truck roof and charged, pike raised to finish the prisoner and take blood revenge, roaring with hatred: "Demon Fang!... Die!"
 
-"Stand down, Kuran! Stop right now!" Thame and Dr. Nicha lunged to intercept him just in time.
+"Kuran! Stop!" Thame lunged forward, grabbing Kuran's bamboo spear shaft and forcing it toward the ground, shaking his head with absolute resolve.
 
-"We don't kill helpless enemies... This camp is not a savage cannibal clan," Thame stated, his tone unwavering, his eyes filled with humanity.
+"No spear!... No kill!" Thame commanded, reinforcing his words with sharp hand gestures. Kuran froze, chest heaving, glaring in frustration. But Thame's unyielding gaze brokered no argument, and the veteran warrior finally lowered his weapon.
 
-Dr. Nicha knelt beside the wounded young warrior, using her field scissors to carefully cut away the barbed wire caught in his clothing, then irrigated the wounds with saline and applied antiseptic.
+To Thame, slaughtering a wounded, helpless enemy violated every ethical instinct of a twenty-first-century human. More crucially, this captive was their sole source of intelligence—the only one who could reveal the enemy's numbers and plans.
 
-The warmth and gentleness of the woman in the white coat caused the prisoner to let tears fall in gratitude and overwhelmed relief.
+Dr. Nicha knelt beside the wounded young warrior, using her field shears to carefully cut away the barbed wire tangled in his clothing, then cleansed his wounds with saline and applied antiseptic.
 
-"Thank you... witch of light..." the prisoner murmured in the ancient tongue, then knelt in full submission before Thame and Dr. Nicha.
+The unexpected mercy and gentle treatment from the woman in the white coat shattered the captive's terror. Expecting ritual slaughter or cannibalism, the young scout began to weep in sheer relief and reverence.
 
-Through the translation of Elder Bathor and Kuran, the prisoner revealed a piece of war intelligence that made everyone in the camp go cold:
+He babbled trembling words in his ancient tongue, pressing his forehead into the dirt in total submission before Thame and Dr. Nicha.
+
+Through the halting translation of Elder Bathor and Kuran's sign language mixed with tribal dialect, the captive revealed a critical piece of war intelligence that sent a chill through the entire camp:
 
 The vanguard that had just been routed was only a small raiding scouting party. The main Fang Drinker army of more than a hundred spears, led by a warlord called "Grak," was currently pinned down by a blizzard behind the southern mountain pass.
 
