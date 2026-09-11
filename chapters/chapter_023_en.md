@@ -23,17 +23,25 @@ Thame brushed the gravel off the cardboard, meeting Kuran's hardened gaze. He un
 
 *Tweet!... Tweet!*
 
-A pair of sharp, shrill horn blasts echoed down from the crag lookout behind the camp. Shiru and the sentries waved frantically, pointing toward the northwestern pine ridge. Elya scrambled swiftly down the rope ladder, gesturing urgently for Thame.
+A pair of sharp, shrill horn blasts echoed down from the crag lookout behind the camp. Shiru and the sentries waved frantically, pointing toward the northwestern pine ridge.
 
-Thame grabbed his field pack and .38 revolver, preparing to move out. But Kuran sprang up with his long spear and stone axe, stepping directly into his path.
+Thame quickly unclipped his 12x50 monocular and climbed the rope ladder to the lookout platform atop the crag alongside Elya and Kuran.
 
-The veteran war chief shook his head fiercely, placing a heavy, scarred palm firmly against Thame's chest, pointing outside the palisade:
-"Thame... Tah! (Stop!) Two men... No!"
+On the high observation crag, Shiru pointed toward the pine forest roughly four hundred meters away. Thame pressed the glass to his eye. The coated optics cut through the cold mist, revealing unnaturally swaying branches and fleeting silhouettes crouching in the brush. Yet the dense taiga and the blind angle of the shoulder slope obscured their exact identities.
 
-Kuran mimed drawing a bow and drew a finger violently across his throat. He thumped his left chest hard, then signaled a sharp-shooting young tribal archer:
+Elya tapped Thame's sleeve, pointing down toward the ground outside the timber palisade, gesturing that they needed to scout the tracks up close.
+
+The two climbed back down into the courtyard. Thame slung his field pack, checked the .38 revolver in his parka pocket, and stepped toward the log fortress gate with Elya, preparing to scout beyond the walls.
+
+Yet before they could open the heavy timber gate, Kuran, having scrambled down right behind them with his spear and war axe, stepped sharply in front of the doorway!
+
+The veteran war chief shook his head fiercely, placing a heavy, scarred palm firmly against Thame's chest, pointing outside the gate:
+"Thame... Elya... Tah! (Stop!) Two men... No!"
+
+Kuran mimed drawing a bow and drew a finger violently across his throat. He thumped his left chest hard, then signaled a sharp-shooting young tribal archer to bring his bow:
 "Orok (Enemy)... ambush! Kuran go... Sua (Protect)!"
 
-Kuran's resolute eyes made the primitive doctrine indisputable—in a state of war, allowing the fortress leader to walk into the unknown with only two people was suicide. If they walked into an ambush, Fortress Alpha would fall.
+Seeing them about to unbar the gate and venture into the wilderness alone, Kuran knew instantly where they were headed. In a state of war, allowing the fortress leader to confront strangers in the pine woods alone was reckless madness. If they walked into an ambush, Fortress Alpha would fall.
 
 "Understood, Kuran," Thame agreed, yielding to the warrior's tactical wisdom. "You and the archer trail behind us fifteen paces. Cover our rear."
 
