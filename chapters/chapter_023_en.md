@@ -4,11 +4,11 @@
 
 The steady rasp of river stone grinding against flint axe blades echoed through the tense morning air by the dying hearth fire. Kuran sat shaping a fresh war axe, the seasoned warrior's eyes blazing with cold fury and vigilance.
 
-"Grak..." Kuran rasped low in his throat. He looked up at Thame, repeatedly opening and closing all ten fingers ten times to signify a host of one hundred spears. He slammed the spear butt hard into the frozen earth, pointing toward the southern pass where the blizzard still raged violently.
+"Grak..." Kuran rasped low in his throat. Scooping up two handfuls of coarse gravel from the hearth, he let the stones shower across the timber table, spreading his arms wide to the horizon to signify an overwhelming horde beyond counting, like pebbles on a riverbed. He slammed the spear butt hard into the frozen earth, pointing toward the southern pass where the blizzard still raged violently.
 
-"A hundred spears..." Thame nodded, fully understanding the grim sign. He leaned over the flattened cardboard on the timber table, using a black permanent marker to connect defensive chokepoints, pit traps, and marksman perches. "They are pinned down by the blizzard across the southern pass. That buys us two to three days to prepare our barricades."
+"Beyond counting... by our estimates, easily a hundred spears," Thame muttered, understanding the primitive gesture. He leaned over the flattened cardboard on the timber table, using a black permanent marker to connect defensive chokepoints, pit traps, and marksman perches. "They are pinned down by the blizzard across the southern pass. That buys us two to three days to prepare our barricades."
 
-"If they truly march with a hundred spears, holding the chokepoint alone might not be enough, Thame," Dr. Nicha said, stepping over after treating the wounded captive, her expression grave. "We have no way of knowing the moment their blizzard clears."
+"If their horde truly reaches a hundred warriors, holding the chokepoint alone might not be enough, Thame," Dr. Nicha said, stepping over after treating the wounded captive, her expression grave. "We have no way of knowing the moment their blizzard clears."
 
 "We need allies, and we need eyes and ears outside this valley to send warning," Thame agreed.
 
@@ -37,8 +37,10 @@ Elya pointed her carbon bow toward a hollow beneath dense pine boughs forty mete
 
 Thame unclipped his 12x50 monocular and handed it to Elya. The multicoated optic cut through the veil of needles and drifting snow.
 
-Elya pressed her eye to the glass, counting the crouching silhouettes one by one:
-"Eight men... bows... short spears..."
+Elya pressed her eye to the glass, scanning the silhouettes in the shadows, holding up fingers to tally them:
+"Concealed men... bows... short spears..."
+
+Thame followed her point, estimating in his head: eight of them...
 
 Suddenly, her gaze locked onto the broad-shouldered leader. Her breath hitched. A tremor passed through her frame before she lowered the scope, turning to Thame and Kuran with wide, blazing eyes.
 
@@ -116,7 +118,7 @@ He tapped Thame's synthetic fabric and lugged rubber boots. Then, raising both h
 
 Borg clutched his own chest, stumbled backward, and collapsed into the snow, twitching twice before lying completely still—mimicking a warrior dropped dead from afar!
 
-Borg pushed himself up, pointing to the simulated weapon, then to his pale arm, his voice trembling:
-"White-faced man... clothes like you... walks with Grak! Fire-spitting iron stick... kills from a hundred paces!... Beware!"
+Borg pushed himself up, pointing the simulated weapon toward a distant pine ridge far across the valley, his voice trembling:
+"White-faced man... clothes like you... walks with Grak! Fire-spitting iron stick... strikes from afar... drops dead instantly!... Beware!"
 
 The demonstration struck Thame like a hammer blow... A modern firearm! Victor, or someone from the modern world, had officially armed the Demon Fang warlord!
