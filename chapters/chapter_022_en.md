@@ -58,11 +58,11 @@ Bodies pitched forward into the field of four-pronged galvanized steel barbs. Th
 
 The more they thrashed in panic, the more the barbs hooked and tore, making escape impossible. They howled in utter agony.
 
-And in that instant, Thame raised the fifty-watt megaphone to his mouth, cranked the volume to maximum, and unleashed his voice through the mic:
+And in that instant, Thame raised the fifty-watt megaphone to his mouth, switched on the emergency siren, and let the wailing alarm shriek at maximum volume—*WHEEE-OOOO-WHEEE-OOOO!*—piercing straight into the warriors' battered eardrums before he roared a furious warning through the mic:
 
-"Intruders! Stop this instant!! This land is under the command of the Great Deity of Lightning and the Eternal Sun!!"
+"HALT!! GET OUT OF HERE!!"
 
-The amplified sound of Thai language—a speech no human ear here had ever heard—boomed across the whole valley like the voice of a towering primordial god living above the clouds.
+Of course, the primeval savages didn't understand a single syllable of Thai. But the synthetic, unnatural scream of the siren combined with a human voice amplified to canyon-shaking proportions sounded to their ears like the wrath of a thunder demon roaring down from the heavens!
 
 Without hesitation, Thame lit the fuse of the 12-shot aerial display cake propped on the edge of the truck roof with his jet lighter!
 
