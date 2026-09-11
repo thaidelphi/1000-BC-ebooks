@@ -16,7 +16,7 @@ The Mountain Sheep clan refugees and young Tara clung together in clusters, shak
 
 "Everyone stay calm! Our walls are something they will never break through!" Thame shouted, steadying the crowd with a voice of absolute calm and resolve.
 
-Kuran snatched his barbed-wire bamboo pike high and his ancient warrior eyes blazed with fury. "Kuran not afraid! If they step inside, I drive this through their chest!"
+Kuran snatched his barbed-wire bamboo pike high, his ancient warrior eyes blazing with fury. He let out a fierce guttural roar in his tribal tongue, pounding his chest and barking the few broken words he had learned from Thame: "Kuran... no fear! Demon Fang come... kill! Pierce!"
 
 "Don't engage head-on, Kuran. I won't allow a single drop of our warriors' blood to be spilled." Thame restrained him, then immediately pulled out his smartphone connected to the 2TB SSD.
 
@@ -88,7 +88,7 @@ The battle ended in less than five minutes, with zero melee casualties on the de
 
 On the ground before the chokepoint lay only one warrior—a young Fang Drinker scout tangled in the barbed-wire entanglement, wounded and shaking with mortal fear.
 
-Kuran leapt down from the truck roof and charged, pike raised to finish the prisoner and take blood revenge. "Fang Drinker must die!"
+Kuran leapt down from the truck roof and charged, pike raised to finish the prisoner and take blood revenge, roaring with hatred: "Demon Fang!... Die!"
 
 "Stand down, Kuran! Stop right now!" Thame and Dr. Nicha lunged to intercept him just in time.
 
