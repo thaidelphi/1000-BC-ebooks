@@ -70,7 +70,11 @@ Borg instantly mirrored the gesture:
 
 The razor-thin tension evaporated. Borg gave a short whistle, signaling his seven hunters to lower their weapons and follow him out onto the open snowfield.
 
-With their identity confirmed as old allies and no ambush in play, Thame ordered the timber gate unbarred. Flanked by Elya and Kuran with his war axe ready, Thame stepped out into the snow clearing directly in front of the camp, covered closely by archers aiming from the parapets above.
+"If we want them to scout Grak's movements for us, we must offer something worthy," Thame told Kuran.
+
+Thame quickly scrambled down the ladder into the courtyard, heading straight into the truck's cargo container to prepare trade offerings for an alliance: he scooped half a kilogram of pure white sea salt into a canvas pouch, grabbed a spare ferrocerium fire-striker, and packed two kilograms of smoked venison into his field pack.
+
+With preparations complete and safety assured, Thame ordered the timber gate unbarred. Flanked by Elya and Kuran with his war axe ready, Thame stepped out into the snow clearing directly in front of the camp, covered closely by archers aiming from the parapets above.
 
 The two parties converged, halting three paces apart. Borg thumped his left chest firmly. Elya returned the gesture with a warm smile.
 
