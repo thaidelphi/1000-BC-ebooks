@@ -106,8 +106,8 @@ The vanguard that had just been routed was only a small raiding scouting party. 
 
 And the moment the blizzard cleared, in two to three days' time, the great army would advance—and would grind Fortress Alpha to dust.
 
-Thame raised his eyes to the winter sky, where the stars were beginning to reclaim their brilliance. His fingers brushed against the cold steel of the .38 revolver and the engineering sketchbook in his coat pocket.
+Thame stood watching the southern mountain pass, his fingers resting on the .38 revolver in his coat pocket.
 
-They had at most forty-eight to seventy-two hours before the pass cleared. In a razor's-edge crisis like this, there was no time to sit studying theoretical encyclopedias. Survival would not be decided by digital files, but by immediate, grueling physical labor—digging pit traps, stringing caltrops and barbed wire, and reinforcing the palisade with real steel tools as fast as humanly possible.
+They had at most forty-eight to seventy-two hours before the blizzard died down and the hundred-spear horde arrived.
 
-The battle ahead would decide the fate of the valley... and Fortress Alpha would have to turn every tool and defense into an unbreakable barrier against the hundred-spear horde!
+Everyone in Fortress Alpha would have to work without rest—digging pit traps, stringing caltrops and barbed wire, and reinforcing the chokepoint fortifications to their absolute limit for the battle that would decide the valley's fate!
