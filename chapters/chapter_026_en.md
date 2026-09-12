@@ -144,7 +144,13 @@ Brigade Three, the 'Hunting & Foraging Unit,' spearheaded by Elya and Borg, guid
 
 The combined expertise of two master trackers expanded their hunting range safely, channeling a steady supply of fresh fish and wild game into the fortress larder.
 
-And Brigade Four, the 'Sanitation & Healthcare Unit,' directed by Dr. Nicha, oversaw wound dressings, boiled drinking water, and established downwind waste incineration pits to prevent epidemic outbreaks among the crowded population.
+And Brigade Four, the 'Sanitation, Field Hygiene & Medical Unit,' commanded by Dr. Nicha, took on the critical responsibility of managing biological waste for over a hundred inhabitants.
+
+To sever the transmission vectors of enteric disease and prevent waste odors from luring apex predators toward the camp perimeter, Dr. Nicha directed work squads to excavate two deep-trench field latrines eighty meters south of the settlement, strictly downwind and far downhill from the aqueduct supply.
+
+The six-foot-deep trenches were spanned by rounded pine log beams for secure, non-slip squatting platforms, screened behind woven bamboo privacy partitions separated by gender.
+
+Dr. Nicha instituted an inflexible hygiene code: oversized bamboo scoops filled with fine pine wood ash from the Rocket Stoves were stationed at every stall. Every use required two scoops of alkaline ash dumped immediately over the waste. The high alkalinity of the ash neutralized pathogens, arrested foul odors, and prevented ancient blowflies from breeding, complemented by a gravity-fed bamboo washbasin stationed at the exit.
 
 The sight of three formerly bitter enemy tribes—the Cliff Deer, the Pine Nomads, and the former Demon Fangs—heaving timber, hammering nails, and calling out in rhythmic coordination under Thame's direction took shape before their eyes.
 
