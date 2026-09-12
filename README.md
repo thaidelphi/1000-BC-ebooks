@@ -545,7 +545,7 @@ git push origin main
 | **024** | สภาสงครามและปราการดินต้านกระสุน | The War Council and the Earthworks Bastion | [TH](./chapters/chapter_024_th.md) | [EN](./chapters/chapter_024_en.md) | 95 | `#TH-819204` (กระสอบทราย PP 100 ใบ, พลั่วสนาม 2 เล่ม, แว่นนิรภัย 4 อัน) |
 | **025** | มหายุทธการหน้าค่ายและเพลิงเทวะสยบกราก | The Great Bastion Siege & The Divine Flare Duel | [TH](./chapters/chapter_025_th.md) | [EN](./chapters/chapter_025_en.md) | 90 | `#TH-001928` (ปืนยิงพลุ 26.5 มม. + กระสุนแดง 3 นัด - ใช้ 1 นัด) |
 | **026** | สหพันธ์หุบเขาเกือกม้าและการรวมแผ่นดิน | The Horseshoe Valley Confederation & Unification | [TH](./chapters/chapter_026_th.md) | [EN](./chapters/chapter_026_en.md) | 88 | `#TH-392811` (หัวขวานเหล็ก 4 หัว, ตะปู 5 กก. ~750 ตัว, ค้อนหงอน 2 เต้า) |
-| **027** | พยายามส่งของข้ามมิติ คลื่นข้อมูล และความจริงจากโลกเดิม | The Failed Airdrop, Data Stream & Modern Reality | [TH](./chapters/chapter_027_th.md) | [EN](./chapters/chapter_027_en.md) | 95 | - (ข้อมูล Kiwix 850GB จัดเก็บลง SSD 2TB, ยืนยันสสารข้ามไม่ได้) |
+| **027** | พยายามส่งของข้ามมิติ คลื่นข้อมูล และความจริงจากโลกเดิม | The Failed Airdrop, Data Stream & Modern Reality | [TH](./chapters/chapter_027_th.md) | [EN](./chapters/chapter_027_en.md) | 94 | - (ข้อมูล Kiwix 850GB จัดเก็บลง SSD 2TB, ยืนยันสสารข้ามไม่ได้) |
 | **028** | เมล็ดพันธุ์แห่งอนาคตและการปฏิวัติเกษตรกรรม | The Seeds of the Future & Paleolithic Agriculture | [TH](./chapters/chapter_028_th.md) | [EN](./chapters/chapter_028_en.md) | 83 | `#TH-582910` (ข้าวสาลี 2 กก., บาร์เลย์ 2 กก., ถั่วแขก 1 กก., ปุ๋ยอัดเม็ด 1.5 กก., เมล็ดผัก) |
 | *029* | *เตาหลอมโลหะแห่งแรกจากซากช่วงล่าง 10 ล้อ* | *The Primitive Blast Furnace* | *(รอเขียน)* | *(รอเขียน)* | - | *รื้อแหนบสปริง 5160 และเพลาขับ หลอมตีหัวคันไถและเคียวเกี่ยวข้าว* |
 
