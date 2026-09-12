@@ -100,7 +100,7 @@ In a Stone Age world where men routinely slaughtered one another over putrid scr
 
 Yet warmth from broth alone could not fend off the impending blizzard. Fortress Alpha's existing quarters were built to house only forty people. With the population suddenly surging beyond a hundred, erecting a massive communal log shelter became the most pressing survival emergency.
 
-Thame retreated into the dry container truck, moving past the Green and Blue Zones toward the hardware shelving racks.
+Thame stepped back into the dim interior of the container truck, clicking on his headlamp to scan the dense rows of tightly stacked freight. Flipping through his handwritten shipping manifest, he traced down the heavy construction hardware carton stowed along the lower floorboards.
 
 His eyes locked onto a heavy, reinforced corrugated carton bearing Waybill `#TH-392811`, weighing 8.5 kilograms and addressed to a construction hardware partnership.
 
