@@ -75,9 +75,9 @@ The war room server erupted into manic activity, generating high-speed direct do
 `@AgriTech_Kaset: "Transmitting ancient heirloom wheat stratification guides, anaerobic bio-fertilizer production manuals, and medicinal botanical encyclopedias!"`
 Thame snatched his braided Kevlar cable and the rugged two-terabyte portable SSD from his internal jacket pocket, plugging it directly into his smartphone.
 The transfer progress bar accelerated into gigabit-per-second throughput as millennia of accumulated human wisdom transferred across spacetime, etching permanently into the solid-state memory.
-At the twentieth minute of the window, Dr. Nicha’s phone chimed with a hauntingly familiar ringtone, displaying the caller ID: 'Mom.'
-With trembling hands, the physician answered, the weeping, emotional voice of her mother piercing across ten thousand years of separation: "Nicha!... Are you safe, my darling?... I saw the news..."
-"Mom... I am safe. Please don't worry about me," Nicha whispered, wiping a tear with a radiant, proud smile. "I have good people beside me who protect me... and I am proud to serve as a doctor saving lives here."
+At the twentieth minute of the window, Dr. Nicha’s phone erupted with the unmistakable chime of an incoming LINE video call, the glowing screen displaying the contact: 'Mom.'
+With trembling fingers, the physician accepted the call. The high-definition screen lit up with the face of a middle-aged woman, her eyes reddened and drenched in tears of desperate longing spanning ten thousand years: "Nicha!... Is that really you, my child?... I saw the breaking news... I thought..."
+"Mom... I am safe. Please don't cry," Nicha whispered, brushing away a tear with a radiant smile as she briefly panned the camera across the majestic cliffs of Fortress Alpha. "I have good people beside me who protect me... and I am proud to serve as a doctor saving lives here."
 Simultaneously, Thame’s private chat notification chimed with an audio message from Uncle Dej, the veteran trucker resting in his hospital recovery ward:
 *"Thame, you magnificent kid... I am so damn proud of you! That ten-wheeler, the spare parts, the spring steel, whatever is in that trailer—strip it down and use every scrap to build your city! You survive, you hear me? Survived and make me proud!"*
 A wide, tearful grin spread across Thame’s face as the emotional ties to his old life solidified into an impenetrable shield of purpose.
