@@ -58,7 +58,7 @@ As the frenzied horde charged blindly into the funnel... the first fifteen warri
 
 Razor-sharp four-point steel barbs ripped viciously into bare skin, thighs, calves, and torsos. The more the savages thrashed, the deeper the steel teeth bit and clamped. The charging ranks behind them, unable to halt on the slick ice, crashed into the pile-up, entangling themselves in the razor web. The mighty horde collapsed into a screaming, writhing heap of human flesh, shrieking in agony!
 
-Atop the truck roof, Elya and the archers on the ramparts did not let the opportunity slip. Carbon arrows and flint points hissed through the leaf-spring slits, methodically suppressing warriors attempting to scale the rocky flanks.
+Atop the truck roof, Elya held her precious carbon arrows strictly in reserve, leading the rampart archers to loose a barrage of flint-tipped hunting arrows through the leaf-spring slits, methodically suppressing warriors attempting to scale the rocky flanks.
 
 Lurking in the rear, Victor cursed violently, drawing his Glock 17 to fire two rapid shots at the firing slits:
 *Bang! Bang!*
