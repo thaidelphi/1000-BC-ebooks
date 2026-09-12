@@ -54,7 +54,7 @@ Using sterile surgical forceps, the physician patiently debrided charred bear-pe
 
 Using a wooden spatula, she scooped a generous layer of amber-colored herbal Mebo burn ointment, coating the charred skin with a thick, protective balm. The cooling moisture and therapeutic properties of the sesame and beta-sitosterol immediately extinguished the searing flame eating through Grak's chest muscles.
 
-The warlord, who had previously groaned in agony, slowly opened his eyes. His slate-gray eyes, once ravenous for slaughter, were now filled with reverence and awe as he watched this woman in a pristine white coat wrapping soft, snow-white bandages around his torso without demanding his life in return.
+The warlord, who had previously groaned in agony, slowly opened his eyes. His slate-gray eyes, once ravenous for slaughter, were now filled with reverence and awe as he watched this modern healer in surgical gloves wrapping soft, clean white bandages around his torso without demanding his life in return.
 
 Grak glanced up at Thame, who had walked over to stand beside the stretcher. The truck driver carried neither the flare gun nor any weapon, displaying only a steady, resolute gaze.
 

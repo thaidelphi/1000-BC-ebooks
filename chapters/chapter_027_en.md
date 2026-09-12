@@ -22,7 +22,7 @@ Beside the central fire pit, Shaman Moka prostrated himself flat, pressing his f
 
 "Dr. Nicha! Can you feel this?!" Thame shouted down toward the ten-wheeler, leaping off the timber stockade and sprinting toward the cab.
 
-Dr. Nicha, her heavy winter coat draped beneath a pristine white lab coat, thrust aside the thick thermal curtain of the insulated container clinic. Her fair face was chalk-white, her dark eyes darting between the rippling sky and the smartphone gripped tightly in her hand:
+Dr. Nicha, clad in her heavy winter field jacket, thrust aside the thick thermal curtain of the insulated container clinic. Her fair face was chalk-white, her dark eyes darting between the rippling sky and the smartphone gripped tightly in her hand:
 
 "It's the signal, Thame!... The cellular network is surging!"
 
