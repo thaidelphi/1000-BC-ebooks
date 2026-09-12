@@ -66,6 +66,14 @@ He yielded unconditionally to the power of the divine flame, pledging his life t
 
 "If you understand friendship... we will survive this winter together," Thame said calmly, giving Grak's massive shoulder a reassuring pat.
 
+Yet Thame's mercy was far from naive. He understood with icy clarity that seasoned marauders forged in bloodshed would not shed their savage instincts overnight. Turning to Kuran and Borg, he issued strict, unyielding tactical commands:
+
+"Lock down every seized weapon. Every flint spear and bone axe stays secured within the inner rock armory. Not a single captive touches a blade. Confine their bivouac to the open yard beyond the inner palisade, strictly forbidding access to the container truck, the Cliff Sanctuary, or the food stores... If any man stirs mutiny or breaches the perimeter under cover of dark, the archers on the ramparts have full authority to execute on sight."
+
+Kuran and Borg nodded in grim approval. The constant vigil of recurve bows, leaf-spring steel lances, and the 130 dB air-horn perimeter alarm ensured an impregnable perimeter around the clock.
+
+Furthermore, with Grak immobilized and wholly dependent on Dr. Nicha's twice-daily wound debridement, and the captive warriors left utterly stripped of weapons, fire, and provisions, any treacherous flight into the subzero wilderness was tantamount to suicide. Every countermeasure had been cold-bloodedly calculated; mutiny was physically impossible.
+
 Yet the greatest logistical crisis following the end of hostilities was feeding more than one hundred and twenty souls in an instant!
 
 If eighty captive warriors were left to starve, hunger would inevitably reignite their feral instincts and spark bloody rebellion. But if nourishment and genuine care were used to bind their hearts, these men would become a bulwark of loyalty stronger than any stone rampart.
