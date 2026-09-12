@@ -8,9 +8,9 @@ The soft glow from the display illuminated particle size distribution charts and
 "Glacial flour and river deposits are packed with soluble potassium... but to get wheat and barley to take root in limestone soil, we need to balance the acidity and inject concentrated organic nitrogen," he muttered, dusting powdered quicklime over the soil specimens to sweeten the acidic forest loam.
 Dr. Nicha, bundled in her dark-olive expedition jacket, stepped to his side, carrying a graduated glass measuring cylinder from her personal medical kit.
 She leaned down, meticulously dropping an indicator solution extracted from crushed purple alpine petals onto the moistened soil samples to verify the pH reaction.
-"If we rely entirely on game hunts and wild foraging, more than a hundred and twenty people will never survive the glacial winter creeping toward us, Thame... Look at the pine needles—morning frost is settling thicker with every passing dawn."
+"Even now, thick shelves of ice are already choking the riverbanks, and the wind off the glacial peaks cuts straight to the bone... When the true polar deep freeze hits, game will vanish south and the waterways will freeze solid. A hundred and twenty people cannot survive on hunting alone, Thame."
 Nicha said, her voice taut with medical urgency and compassion for the gathered tribes.
-"You're exactly right, Doctor. When the deep freeze sets in, herds will migrate south, rivers will freeze solid, and wild flora will wither into dormancy,"
+"You're exactly right, Doctor. When that moment comes, the outer forests will turn desolate, flora will wither into stasis, and our lifeline streams will lock under impenetrable ice,"
 "The only path to permanent survival is taking the great leap from wandering nomads into a fully settled agricultural society,"
 Thame replied, rising to his feet and surveying the sweeping crescent bluff dominating the southern flank of the bastion.
 The limestone amphitheater basked in eight uninterrupted hours of direct southern sunlight each day, shielded from arctic gales by the sheer forty-meter limestone wall rising directly behind it.
