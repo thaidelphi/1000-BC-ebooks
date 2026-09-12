@@ -15,12 +15,12 @@ Nicha said, her voice taut with medical urgency and compassion for the gathered 
 Thame replied, rising to his feet and surveying the sweeping crescent bluff dominating the southern flank of the bastion.
 The limestone amphitheater basked in eight uninterrupted hours of direct southern sunlight each day, shielded from arctic gales by the sheer forty-meter limestone wall rising directly behind it.
 Below lay a broad, gently sloping terrace—an ideal natural foundation for humanity’s very first high-yield terraced agricultural project.
-"Kuran... Grak... Vah!" Thame signaled with a sharp wave of his hand, pointing directly toward the rear container doors of the iron fortress.
-The two burly men hurried behind him toward the aluminum doors of the ten-wheeler Hino 500 Victor, the modern fortress safeguarding over three thousand four hundred parcels.
-Thame vaulted into the cargo bed, aiming his penlight along the tightly packed stacks, scanning individual waybills and routing labels.
-His eyes locked onto a heavy triple-wall corrugated carton sealed with heavy-duty packing tape: Parcel `#TH-582910`.
-The freight label bore the official delivery address: 'Highland Heritage Seed Conservation Project & Organic Demonstration Farm' with a verified gross weight of 6.8 kilograms.
-Drawing his SK5 utility blade, Thame sliced through the reinforced adhesive tape, easing the carton flaps apart with reverence.
+Thame stepped back toward the rear doors of the ten-wheeler Hino 500 alone, vaulting into the cargo bed to locate the delivery according to the shipping manifests.
+Amidst over three thousand four hundred tightly stacked cartons, his penlight beam scanned along the freight labels until locking onto a heavy triple-wall corrugated box: Parcel `#TH-582910`.
+The manifest label bore the destination: 'Highland Heritage Seed Conservation Project & Organic Demonstration Farm' with a gross weight of 6.8 kilograms.
+Carrying the sealed carton down to the heavy timber worktable in the courtyard, Thame signaled with a sharp wave: "Kuran... Grak... Vah!"
+The two chieftains and Elya hurried over, encircling the table with keen, watchful curiosity.
+Drawing his SK5 utility blade, Thame sliced through the reinforced adhesive tape, easing the carton flaps open before them.
 The clean, earthy fragrance of dormant heritage grains and dried bio-fertilizer wafted into the crisp air.
 Inside rested four heavy vacuum-sealed moisture-proof foil bags alongside three smaller ziplock packets:
 The first sack contained **Ancient Cold-Climate Winter Wheat**, its elongated grains gleaming like polished amber, genetically bred to endure permafrost and biting frost, weighing exactly two kilograms.
