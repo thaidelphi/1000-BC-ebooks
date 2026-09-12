@@ -20,7 +20,7 @@ Her porcelain face was dead white, her dark eyes darting between the tearing sky
 "It's the cellular network, Thame!... The carrier signal is flooding through!"
 A deafening barrage of notification chimes, ringtones, and message alerts from the twenty-first century erupted simultaneously, rattling like rapid machine-gun fire.
 Thame leaped onto the truck’s access ladder, scrambling onto the container’s reinforced steel roof to reach the highest elevation beside the sandbag parapet.
-His smartphone display, which had flickered for days with a solitary, ghostlike 2G bar, suddenly locked firmly onto a rock-solid, four-bar 2G connection with an unprecedented carrier stability.
+His smartphone display, which had flickered for days with a solitary, ghostlike 2G bar, suddenly surged violently: 3G... 4G... until a blazing white '5G' emblem locked onto the screen with four solid bars.
 The international war room thread and the National Quantum Emergency Coordination channel pinned on his browser automatically refreshed, flashing urgent crimson banners across the glass:
 `[MAXIMUM EMERGENCY BROADCAST — NATIONAL QUANTUM RESCUE CENTER]`
 `"To both survivors trapped in the northern highland rift! The High Energy Physics Institute and Astronomical Observatory have successfully localized and locked the spacetime coordinates of your tear!"`
@@ -70,7 +70,7 @@ Thame unlocked his phone, his thumbs flying across the glass at blistering speed
 `@Thame_Courier: "We do not want handouts! Give us the accumulated wisdom of the twenty-first century, and we will build this civilization with our own two hands!"`
 His defiant declaration ignited an electrical wave of purpose across hundreds of thousands of citizens monitoring the live feed worldwide.
 The war room server erupted into manic activity, generating high-speed direct download mirrors and compressing petabytes of human knowledge:
-`@AstroNerd_Munich: "Understood! Pushing the compressed 'Civilization Acceleration Archive' across the cellular link right now!"`
+`@AstroNerd_Munich: "Understood! Pushing the 450-gigabyte 'Civilization Acceleration Archive' across the 5G carrier link right now!"`
 `@Metallurgy_Prof: "Here are the blueprints for low-shaft bloomery furnaces to smelt bog iron, laterite, and black river magnetite, including refractory clay and lime mortar recipes!"`
 `@AgriTech_Kaset: "Transmitting ancient heirloom wheat stratification guides, anaerobic bio-fertilizer production manuals, and medicinal botanical encyclopedias!"`
 Thame snatched his braided Kevlar cable and the rugged two-terabyte portable SSD from his internal jacket pocket, plugging it directly into his smartphone.
@@ -83,7 +83,7 @@ Simultaneously, Thame’s private chat notification chimed with an audio message
 A wide, tearful grin spread across Thame’s face as the emotional ties to his old life solidified into an impenetrable shield of purpose.
 Above the cliffs, the violet aurora began to stutter and fracture as the black event horizon contracted toward a pinpoint, the ozone odor fading as the icy northern wind reclaimed the gorge.
 A notification dialogue chimed on the screen: *Download Complete (100%) — 850 Gigabytes of Engineering, Agricultural, and Medical Archives Successfully Stored.*
-The 2G signal bars on his smartphone flickered and dropped rapidly: four bars... two bars... a faint single bar... before winking out into profound, familiar silence.
+The signal bars on his smartphone plummeted in rapid succession: 5G... 4G... 3G... a fading single bar of 2G... before winking out into profound, familiar silence.
 The spacetime rift sealed shut, restoring the sky above the amphitheater to a serene pale blue beneath the crisp, cold autumn sun.
 Thame unplugged the drive, carefully stowing the solid-state archive containing the collected genius of humanity inside his secure coat pocket.
 He climbed down the access ladder, walking with deliberate, steady strides toward the open clearing where Elya, Kuran, Grak, and over a hundred settlers stood waiting for their commander.
