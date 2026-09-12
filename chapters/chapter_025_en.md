@@ -75,19 +75,15 @@ Yet on the battlefield, War Chief Grak was lost to berserk bloodlust. Oblivious 
 
 The colossal blow shattered an eight-inch pine timber. The crossbeam groaned under immense stress. Two more strikes, and the timber gate would collapse, allowing eighty warriors to flood Fortress Alpha in a bloody close-quarters massacre!
 
-Kuran and his men thrust their spears through the gaps, but Grak batted the points aside with his scarred forearms, swinging his hammer with unstoppable momentum!
+Kuran and the Cliff Clan warriors thrust their spears through the timber gaps, but Grak swatted the stone points aside with his thick, pelt-wrapped forearms, cocking the limestone hammer back for another crushing blow!
 
-Tham knew this was the decisive crossroads. He would not permit a single casualty among his people, nor would he waste a single shot from his strictly rationed forty-three rounds of .38 Special!
+The fatal crisis exploded before their eyes—one more strike would breach the palisade gate wide open!
 
-Dropping the megaphone, Tham vaulted down from the truck roof, bolted into the shipping container's marine safety section, and hauled out a heavy, high-visibility orange waterproof box labeled `#TH-001928`, weighing 2.8 kilograms.
+Tham did not hesitate for a microsecond. Casting the megaphone aside onto the truck roof, he reached down and seized the decisive trump card he had unboxed from the heavy orange waterproof case `#TH-001928` and staged right beside the sandbag parapet during evening preparations.
 
-He flicked open his 1095 carbon steel blade, slicing through the industrial seal in a fraction of a second!
+It was a heavy-duty, break-action 26.5mm Marine Distress Flare Gun molded from high-impact international orange polymer—already pre-loaded with a massive High-Intensity Red Aerial Distress Cartridge ready for immediate discharge! Packed with magnesium and strontium nitrate, the cartridge was engineered to burn at an incandescent 3,000 degrees Fahrenheit (1,650°C) with a blinding output exceeding 30,000 candela.
 
-Inside rested a heavy-duty, break-action 26.5mm Marine Flare Gun molded from high-impact international orange polymer, nestled in dense foam alongside three High-Intensity Red Aerial Distress Cartridges—packed with magnesium and strontium nitrate, engineered to burn at over 3,000 degrees Fahrenheit (1,650°C) with a blinding output exceeding 30,000 candela!
-
-Tham seized the flare gun, snapped the break-barrel open, and slammed a massive 26.5mm red shell into the chamber. *Click!* He locked the breech shut and cocked the hammer with his right thumb.
-
-In three bounds, Tham was back inside the sandbag bunker atop the ten-wheeler. He rested the orange barrel over the sandbags, aligning the iron sights squarely on War Chief Grak’s chest from a distance of barely twelve meters!
+With his right thumb, Tham pulled the external hammer back until it locked with a crisp *clack!* Resting the heavy orange barrel firmly across the sandbags, he brought the wide bore into dead center alignment with War Chief Grak’s chest from barely twelve meters away!
 
 "Grak! Look up here!" Tham’s voice cut through the clamor like an executioner's bell.
 
