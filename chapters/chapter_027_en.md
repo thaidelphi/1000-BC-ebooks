@@ -60,7 +60,7 @@ The declaration struck like a sledgehammer to the chest, causing Dr. Nicha to si
 They were never going home. No physical rescue, no supply shipments, and no miracles from the modern world would ever reach them again.
 Thame stood motionless in the biting wind, closing his eyes and drawing a long, frigid breath deep into his lungs to steady his racing pulse.
 Deep within his soul, the young engineer confronted the brutal reality with unyielding composure, refusing to drown in despair because he knew with absolute certainty that he was no longer alone in this savage epoch.
-Down on the clearing stood Elya, who would gladly take an arrow for him; Kuran; little Tara; elder Somboon; young Meena; and over a hundred souls of the Horseshoe Valley Coalition whose survival rested upon his shoulders.
+Down on the clearing stood Elya, who would gladly take an arrow for him; Kuran; Grak; little Tara; and over a hundred souls of the Horseshoe Valley Coalition whose survival rested upon his shoulders.
 Thame turned to Dr. Nicha, extending his rough, calloused hand to clasp her chilled fingers with unwavering warmth and resolve:
 "Look at me, Nicha. We cannot step back across... but we have not lost, and we will never surrender to fate."
 Nicha looked up into his steady eyes, where the unshakeable fire in Thame's gaze scorched away the lingering panic in her chest, and she nodded firmly, drawing strength from his defiance.
