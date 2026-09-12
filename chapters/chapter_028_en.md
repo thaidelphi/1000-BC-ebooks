@@ -15,10 +15,10 @@ Nicha said, her voice taut with medical urgency and compassion for the gathered 
 Thame replied, rising to his feet and surveying the sweeping crescent bluff dominating the southern flank of the bastion.
 The limestone amphitheater basked in eight uninterrupted hours of direct southern sunlight each day, shielded from arctic gales by the sheer forty-meter limestone wall rising directly behind it.
 Below lay a broad, gently sloping terrace—an ideal natural foundation for humanity’s very first high-yield terraced agricultural project.
-"Kuran, Grak... follow me to the rear cargo doors," Thame called out to the two warlords, who stood watching the soil trials with unblinking fascination.
-The two burly men hurried behind him toward the aluminum container doors of the twenty-five-ton Hino 500 Victor, the modern iron fortress safeguarding over three thousand four hundred parcels.
-Thame vaulted into the cargo bed, navigating the central stowage rows where agrarian supplies and horticulture tools were stowed according to original manifest waybills.
-His eyes scanned the barcode labels until they locked onto a heavy triple-wall corrugated carton sealed with heavy-duty packing tape: Parcel `#TH-582910`.
+"Kuran... Grak... Vah!" Thame signaled with a sharp wave of his hand, pointing directly toward the rear container doors of the iron fortress.
+The two burly men hurried behind him toward the aluminum doors of the ten-wheeler Hino 500 Victor, the modern fortress safeguarding over three thousand four hundred parcels.
+Thame vaulted into the cargo bed, aiming his penlight along the tightly packed stacks, scanning individual waybills and routing labels.
+His eyes locked onto a heavy triple-wall corrugated carton sealed with heavy-duty packing tape: Parcel `#TH-582910`.
 The freight label bore the official delivery address: 'Highland Heritage Seed Conservation Project & Organic Demonstration Farm' with a verified gross weight of 6.8 kilograms.
 Drawing his SK5 utility blade, Thame sliced through the reinforced adhesive tape, easing the carton flaps apart with reverence.
 The clean, earthy fragrance of dormant heritage grains and dried bio-fertilizer wafted into the crisp air.
