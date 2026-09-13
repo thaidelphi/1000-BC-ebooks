@@ -17,17 +17,17 @@ A red high-priority dispatch from the Doi Inthanon field telemetry station pinne
 "Ground magnetometers register a steep energy decay rate; analytical gradient curves project the ionized curtain will collapse within ten to twelve minutes."
 "Radio telemetry and digital data packets will cease to penetrate the cross-era ionospheric barrier once magnetic resonance drops to baseline."
 "There is zero empirical data to predict if or when the anomaly will ever reopen, or if this severance is permanent."
-Dr. Nicha slipped her wired hands-free earpiece on, her wool-gloved thumb tapping the microphone icon in her family chatroom.
-Her slender fingers trembled faintly against the frost, yet her gaze remained rock-steady and serene.
-"Mom... If you hear this, please do not weep for me," Nicha's voice carried clearly into the tiny microphone.
-"I am safe. I have an impenetrable fortress, abundant provisions, and people here who protect me with their very lives."
-"As a doctor, I have used my craft to save dozens who were on the brink of death... I am fulfilling my oath with absolute honor."
-"I love you, Dad, and everyone at home. No matter what happens from here on... take care of yourselves."
-The audio memo uploaded into the ether.
-A green arrow flashed, followed by two clean checkmarks confirming flawless delivery.
-A heartbeat later, a miracle occurred as a brief voice clip from her father downloaded in the final dying packet.
-"I am proud of you, Nicha... Stand firm with Thame. Keep those people alive... Do not worry about us!"
-A solitary tear welled in the corner of the doctor's eye before she brushed it away in silence.
+Dr. Nicha plugged her wired headset into the smartphone, her wool-gloved thumb tapping the video call icon to her family.
+The dying two-bar signal caused heavy pixelation and latency, yet the faces of her waiting parents flickered onto the display like a miracle.
+Across ten thousand years of time, their gazes locked; her mother and father stared back with red-rimmed eyes drenched in tears of profound sorrow and longing.
+"Mom... Dad... I am safe, please do not cry," Nicha choked back the lump in her throat, forcing a radiant, reassuring smile toward the camera.
+"I have an impenetrable fortress, abundant food, and Thame and our companions protect me with their lives."
+"As a physician, I have used my craft to save dozens on the verge of death... I have fulfilled my calling with the highest honor."
+"I am so proud of you, Nicha...!" Her father's voice surged through the speaker over her mother's weeping. "Stand firm beside Thame! Keep everyone alive... Do not worry about home!"
+"I love you Mom, Dad, everyone... No matter what comes next, take care of yourselves!"
+In that instant, the video feed froze, static tearing violently across the digital image of her parents' faces.
+The call abruptly snapped shut to a black screen, severing the link forever and leaving only their final words engraved in her soul.
+A solitary tear welled in the corner of the doctor's eye before she brushed it away, her gaze returning to quiet, unbreakable resolve.
 Across the war room thread, tens of thousands of netizens posted their farewells and heartfelt blessings.
 User `@PattayaMechanic` wrote: "That 850GB blueprint archive on your hard drive is the birthright of mankind. Build an Iron Age empire, little brother!"
 User `@RuralMedic` added: "Herbal extraction guides and natural antiseptics are stored in the medical subfolder. Both of you survive and come home!"
