@@ -30,7 +30,7 @@ Elya knelt beside the wheel hub, her slender fingers gripping her high-carbon bu
 Tapping the spine of her knife against the heavy steel with a sharp metallic clink, she ran her fingertips over the twelve-millimeter plate, pointing between her saber-tooth talisman and the black steel, uttering a raw, guttural murmur: "Thame... Black... Strong... Crushes saber-tooth!"
 "They are not stone, Elya. This is 5160 spring steel," Thame replied quietly.
 "An alloy enriched with silicon and chromium, resilient enough to absorb brutal impacts without snapping."
-"If we forge this into a plowshare, it will slice through frozen earth like tallow. And when we forge it into adzes and chisels, it will frame warm timber halls to shelter all our people from the ice storms."
+"If we forge this into heavy mattock hoes and trenching spades, it will cleave through the stony terrace soil in a single stroke. And when we forge it into adzes and chisels, it will frame warm timber halls to shelter all our people from the ice storms."
 Elya gave a slow nod, her dark hazel eyes ablaze with understanding.
 Turning toward the perimeter, she flashed ancient hunter hand signals to six young warriors from both the Cliff Deer and Demon Fang clans.
 Eight burly hunters leveraged stout pine poles beneath the main spring pack, dragging the freed leaves out from beneath the undercarriage.
@@ -96,32 +96,33 @@ Under relentless rhythmic blows, the ductile 5160 steel flattened, densified, an
 Thame manipulated the workpiece with tongs, having Grak strike heavy flattening blows while Kuran trimmed the edges.
 To achieve the required geometry, the workpiece endured eight exhausting heat cycles, pulled repeatedly from the glowing hearth and beaten without mercy.
 Sweat drenched the sinewy torsos of Grak and Kuran until their knotted muscles trembled from exhaustion, yet the primal fire in their eyes never flickered.
-From a flat, rectangular spring leaf, the glowing metal curved and expanded into a thick, flanged blade with a reinforced central rib and a tapered prow.
-It was the first spring-steel plowshare head in human history.
+From a flat, rectangular spring leaf, the glowing metal widened and curled at the haft collar beneath rhythmic hammer blows, taking shape as a thick, broad-bladed heavy mattock hoe with a reinforced spine and a razor-sharp bevel.
+It was the first spring-steel mattock hoe in human history.
 Before the hearth coals dwindled in the late afternoon chill, Thame inserted another segment of spring leaf, hot-cutting several pre-sized billets reserved for tomorrow's woodworking broad adzes and heavy mortise chisels.
 From a remaining thick scrap, he rapidly hammered out a heavy splitting wedge for the timber framing teams.
-Once true, Thame reheated the plowshare and wedge to a dull cherry red.
+Once true, Thame reheated the mattock head and splitting wedge to a dull cherry red.
 Beside the anvil, he readied a quenching trough blending spare motor oil dregs from the under-chassis toolbox with rendered deer tallow from the camp hearth, plunging the glowing steel straight into the dark mixture.
 SSSHHH...!
 A thick cloud of white smoke erupted toward the twilight sky. Oil quenching moderated the cooling rate, preventing the high-tensile 5160 steel from micro-fracturing.
 Thame immediately tempered the blades over warm charcoal ashes, drawing the hardness back to a resilient spring temper that would never chip or shatter against stone.
 Testing the edge with a diamond-grit file, the teeth skated across the hardened steel without scratching—a testament to textbook heat treatment.
 Tara watched her wide-eyed reflection in the oily sheen as the smoke cleared, smiling in child-like fascination.
-Thame raised the gleaming black plowshare high above his head before the gathered assembly of over a hundred silent survivors.
+Thame raised the gleaming black mattock head high above his head before the gathered assembly of over a hundred silent survivors.
 Kuran stepped forward with trembling fingers, brushing the chilled, mirror-like steel—an edge infinitely smoother and denser than any flint nodule shaped by his ancestors.
 "Sharp... Unbroken... Forever..." Kuran whispered in awe, his gaze shifting toward the pre-cut billets lined up for tomorrow's adzes and chisels with profound hope.
 Bork took a newly forged steel splitting wedge, placed it upon a knotty two-foot pine log, and struck it once with a heavy stone mallet.
 CRACK!
 The dense trunk split cleanly down the center with a sound like a rifle shot, leaving Bork staring at the sheared grain in utter disbelief.
-Grak took the heavy plowshare, wedged it into a notched oak beam, and leaned his massive frame into the harness across the lower terrace.
+Grak fitted the heavy steel mattock onto a stout, wedged oak handle and strode onto the stony lower terrace.
+Raising the heavy iron high above his broad shoulders, the giant warrior brought it down with all his might!
 CHUNK!
-The 5160 steel blade bit deep, shearing through stony clay and ancient tree roots without a nick or burr.
-Rich, dark loamy soil turned over in a deep furrow in mere seconds.
-A furrow that once demanded twenty men digging with fire-hardened sticks for three days was completed in three paces.
-Grak dropped to his knees beside the plowed earth, pressing his forehead against the soil at Thame's boots, surrendering to the power of creation that eclipsed all warfare.
-Old Shaman Moga limped forward, laying a withered hand upon the cold black steel, chanting low incantations to the spirits of fire and black iron.
+The 5160 steel blade bit deep, slicing through compacted earth and severing stubborn pine roots without a single nick on its cutting edge.
+With a single levering heave of the oak haft, thick slabs of dark, loamy soil overturned into a broad, rich pit.
+Excavation that once demanded twenty men clawing with fire-hardened sticks for three days was achieved in three effortless strikes.
+Grak dropped to his knees beside the freshly broken earth, pressing his forehead against the soil at Thame's boots, surrendering to the power of creation that eclipsed all warfare.
+Old Shaman Moga limped forward, laying a withered hand upon the cold black steel of the hoe, chanting low incantations to the spirits of fire and black iron.
 Elya stepped to Thame's side, resting a gentle hand upon his forearm before striking her fist against her left chest in the sacred blood-oath gesture of the mountain hunters.
-Pointing across the freshly turned dark furrows toward the green seedling trays, she whispered in a low, fierce cadence: "Thame... Sua... Earth wakes... We live!"
+Pointing across the freshly broken dark earth toward the green seedling trays, she whispered in a low, fierce cadence: "Thame... Sua... Earth wakes... We live!"
 The ringing of the forge echoed late into the twilight, golden embers swirling beneath the towering limestone shadow.
 Up on the roof of the truck cab, Thame stood watch alongside Dr. Nicha in the brisk night air.
 All forty-three rounds of .38 Special revolver ammunition remained safely nested inside his coat pocket, preserved without a single wasted shot.
