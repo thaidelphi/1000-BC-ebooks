@@ -109,14 +109,14 @@ The twenty-four-volt alternator spun true, sending silent current through wiring
 Along the terrace bluffs, three tiers of stone-walled agricultural beds lay bathed in pale moonlight like an ancient amphitheater.
 Clear protective plastic sheets salvaged from freight packages covered the tender crops, trapping geothermal heat within the soil.
 Inside the central log lodge, the rocket mass heater radiated deep warmth, driving away the frost.
-Thame climbed back to the cockpit of the truck to perform a meticulous audit of his invariant reserves.
-Reaching inside his rescue jacket, he felt the cold, familiar steel of the S&W .38 Masterpiece revolver.
-All forty-three rounds of .38 Special ammunition remained snug in their factory carton, pristine and completely untouched.
-The orange emergency flare gun lay locked in the console drawer alongside its two remaining red signals.
-The diesel fuel gauge registered exactly 198.5 liters, preserved without a single drop squandered.
-Eight thousand four hundred and twenty grams of pure sea salt and ten bouillon cubes rested in airtight containers within the dry lockbox.
-Three thousand four hundred and sixty-seven freight parcels inside the aluminum cargo hold awaited systematic classification with the dawn.
-The two-terabyte portable solid-state drive safely preserved the collective wisdom and science of human civilization.
+Thame walked toward the front chokepoint to inspect the late-night sentry watch.
+Astride the wooden observation platform, two young warriors from different clans stood vigilant watch side by side.
+Their hands gripped fire-hardened spears, torches flaring defiantly against the howling draft.
+Beneath the covered shelters, stacks of seasoned pine cordwood lay neatly dry, ready to feed the hearths through the long dark.
+Thame flashed a quiet hand signal; both sentries thumped their chests in crisp salute, their eyes calm and unwavering.
+Pale tendrils of woodsmoke drifted lazily from cabin chimneys into the star-strewn sky.
+One hundred and forty souls slept deeply and safely beneath well-chinked log rafters.
+The readiness of their ramparts, rationed stores, and steadfast watch forged an unyielding shield against the wild.
 The triple-layered concertina razor wire barbed fences spanned the four-meter chokepoint without a gap.
 The double-log ballistic breastwork, packed forty centimeters deep with limestone ballast, stood impassive against all arrows.
 The solar floodlights and dual air horns remained poised to shatter any nocturnal intrusion.
