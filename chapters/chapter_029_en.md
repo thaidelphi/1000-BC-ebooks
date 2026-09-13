@@ -85,12 +85,12 @@ CLANG! CLANG!
 The hot-cut chisel bit cleanly through the softened alloy. Scoring both sides, a single heavy blow snapped the billet free with clean, surgical precision.
 The watching hunters gasped in awe as the rock-hard black metal surrendered effortlessly to the mastery of fire and steel.
 Thame thrust the glowing billet back into the coals to bring it back to bright orange forging heat, before transferring it back onto the anvil.
-"Hammers down! Spread the steel!" Thame roared.
-Grak swung the four-kilogram sledgehammer down upon the glowing core with ferocious strength, while Kuran moved in with the fiberglass claw hammer to dress the flanged edges.
-"Remember the heat color, Grak!" Thame instructed, pointing at the glowing ingot. "Bright orange is workable. Dark cherry red is too stiff. If it sparks like a starburst, the steel is burning!"
-Kuran nodded intently, etching the thermal spectrum into his primal memory just as he read seasonal animal coats.
-"Strike the center! Flatten the steel and draw it out!"
+Thame pointed at the incandescent orange steel, nodding with a sharp primal command: "Tor... Vah!"
+Elya reinforced with hunter hand-signals and swift primal analogies: "Sun at high noon—strike! Dark like dried blood—Tah! Stop! The metal will freeze and break the hammer!"
+Grak growled in deep comprehension, "Ugh... Vah!" etching the heat spectrum into his hunting instincts.
+"Hammers down! Spread the steel!" Thame roared, pointing dead-center.
 CLANG! CLANG! CLANG!
+Grak swung the four-kilogram maintenance sledgehammer down upon the glowing billet with ferocious strength, while Kuran followed up with the claw hammer to dress the flanged edges.
 Hammer blows crashed upon the incandescent steel, reverberating through the amphitheater of stone. Showers of golden sparks cascaded like meteorites.
 Under relentless rhythmic blows, the ductile 5160 steel flattened, densified, and took shape beneath the hammer.
 Thame manipulated the workpiece with tongs, having Grak strike heavy flattening blows while Kuran trimmed the edges.
