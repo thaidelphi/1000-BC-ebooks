@@ -57,7 +57,7 @@ The second team, guided by Grak, squared limestone boulders to lay a horseshoe f
 Thame built a thick-walled beehive clay hearth eighty centimeters high, with an open top to feed charcoal and allow long spring leaves to be inserted directly into the core.
 At the base, an angled ceramic tuyere port was sculpted at a twenty-degree downward angle, aimed dead-center into the pine fuel bed.
 This compact beehive hearth focused radiant heat intensely, minimizing thermal dissipation and conserving precious pine charcoal.
-Directly before the forge, Thame had the solid cast-steel wheel hub from the truck, weighing nearly a hundred kilograms, mounted firmly into a massive pine stump to serve as an exceptional heavy-duty anvil.
+Directly before the forge, Thame had the solid cast-steel wheel hub from the truck, weighing nearly a hundred kilograms, mounted firmly into a massive pine stump to serve as an exceptional heavy-duty anvil, laying out the four-kilogram maintenance sledgehammer and steel chisel from the truck's toolbox alongside the fiberglass claw hammer from the carpentry cache.
 While the furnace walls dried under a slow wood fire, Elya and Nicha laboured to craft the beating heart of the forced-draft system.
 This was the twin-chamber leather bellows Thame had adapted from classical fluid dynamics schematics.
 Two supple sheets of cured Irish elk hide were stitched tightly over triangular wooden frames using heavy braided PE line.
@@ -80,13 +80,13 @@ Blistering thermal waves flushed the pumpers' faces crimson; Dr. Nicha moved amo
 Young warriors rotated onto the levers in pairs every fifteen minutes, chanting a primal working cadence: "Huk... Hah... Huk... Hah!"
 Within twenty minutes, the inserted steel end glowed a brilliant orange-yellow, reaching a plastic state as pliable as stiff clay.
 Donning heavy leather gauntlets, Thame hauled the glowing leaf with heavy iron tongs, laying it across the wheel-hub anvil.
-"Kuran, place the hot-cut chisel right on the mark! Grak, strike the chisel head with the truck toolbox sledgehammer!" Thame ordered.
+"Kuran, hold the chisel on the mark! Grak, strike!" Thame commanded.
 CLANG! CLANG!
 The hot-cut chisel bit cleanly through the softened alloy. Scoring both sides, a single heavy blow snapped the billet free with clean, surgical precision.
 The watching hunters gasped in awe as the rock-hard black metal surrendered effortlessly to the mastery of fire and steel.
 Thame thrust the glowing billet back into the coals to bring it back to bright orange forging heat, before transferring it back onto the anvil.
-"Heavy hammers up!" Thame bellowed.
-Grak stepped forward, wielding the truck's four-kilogram maintenance sledgehammer with both hands, while Kuran readied the fiberglass claw hammer from the carpentry cache to dress the edges.
+"Hammers down! Spread the steel!" Thame roared.
+Grak swung the four-kilogram sledgehammer down upon the glowing core with ferocious strength, while Kuran moved in with the fiberglass claw hammer to dress the flanged edges.
 "Remember the heat color, Grak!" Thame instructed, pointing at the glowing ingot. "Bright orange is workable. Dark cherry red is too stiff. If it sparks like a starburst, the steel is burning!"
 Kuran nodded intently, etching the thermal spectrum into his primal memory just as he read seasonal animal coats.
 "Strike the center! Flatten the steel and draw it out!"
