@@ -37,9 +37,9 @@ Eight burly hunters leveraged stout pine poles beneath the main spring pack, dra
 THUD!
 The ground trembled slightly as the nearly two-meter-long main leaf of 5160 spring steel dropped heavily onto the frozen dirt.
 A single leaf weighed nearly sixty kilograms; across five graduated leaves on either side, this shattered suspension yielded over two hundred and fifty kilograms of virgin high-grade alloy steel.
-Nearby, Dr. Nicha stood in her white lab coat over a down parka, carefully inspecting the pinkish scar tissue across Grak’s broad chest.
+Nearby, Dr. Nicha stood in her olive-green tactical windbreaker over a heavy wool sweater and rugged cargo trousers, carefully inspecting the pinkish scar tissue across Grak’s broad chest.
 "The burn is healing remarkably well. Avoid tearing the pectoral muscles with sudden jerks, Grak," Nicha cautioned in gentle Thai reinforced by pantomime.
-Grak touched two fingers reverently to his left chest, dipping into a slight crouch before the white-coated healer: "Sua... A-ka... Good!"
+Grak touched two fingers reverently to his left chest, dipping into a slight crouch before the miracle doctor: "Sua... A-ka... Good!"
 Thame walked over to the wooden field desk beside the container doors, connecting his two-terabyte portable SSD to his smartphone to pull up ancient metallurgical schematics.
 The high-resolution screen displayed cross-sectional blueprints of conical bloomery furnaces, Viking shaft kilns, and thermodynamic heat-balance charts.
 The engineering notes underscored three inviolable requirements: heat must breach 1,200°C to fluidize silicate slag, refractory clay must resist thermal shock without spalling, and forced air draft must be continuous and unbroken.
