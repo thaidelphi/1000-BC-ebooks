@@ -62,11 +62,11 @@ The warm amber radiance of the bloomery furnace and stone hearths illuminated th
 One hundred and forty men, women, and children from three distinct clans—Cliff Deer, Mountain Sheep, and Demon Fang—stood gathered in a solemn circle.
 The grueling labor of the day had finally ceased, replaced by the comforting crackle of burning pine logs.
 The monolithic limestone stele, quarried from the southern ridge, had already been erected at the courtyard’s center that afternoon.
-Weighing nearly half a ton, twenty hunters led by Kuran, Grak, and Bork had transported it across debarked log rollers before sundown.
+Weighing nearly half a ton, twenty hunters from the three clans had transported it on pine rollers while Kuran, Grak, and Bork assisted Thame at the forge.
 Its base was anchored deep into the frozen earth, buttressed with sticky river clay and compacted crushed limestone ballast.
 The surface of the pale gray monolith had been dressed flat and smooth with chisels forged from 5160 spring steel.
 Now, as biting frost descended upon the valley, all physical toil ceased, and everyone drew close around the monolith and hearth.
-Kuran, Grak, and Bork, wrapped in thick fur mantles, stood shoulder to shoulder alongside families from all three clans.
+Kuran, Grak, and Bork, their grueling blacksmithing shift concluded, stood in thick fur mantles shoulder to shoulder with every clan family.
 Orange embers danced across the virgin face of the limestone, like a pristine canvas awaiting the imprint of history.
 The rich aroma of simmered marrow broth and smoked venison wafted from wide clay pots, restoring strength to weary limbs.
 No one toiled in the freezing dark; only warmth, shared sustenance, and rising brotherhood bound the valley together.
