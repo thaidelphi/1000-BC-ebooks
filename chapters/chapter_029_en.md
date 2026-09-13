@@ -80,13 +80,13 @@ Blistering thermal waves flushed the pumpers' faces crimson; Dr. Nicha moved amo
 Young warriors rotated onto the levers in pairs every fifteen minutes, chanting a primal working cadence: "Huk... Hah... Huk... Hah!"
 Within twenty minutes, the inserted steel end glowed a brilliant orange-yellow, reaching a plastic state as pliable as stiff clay.
 Donning heavy leather gauntlets, Thame hauled the glowing leaf with heavy iron tongs, laying it across the wheel-hub anvil.
-"Kuran, place the hot-cut chisel right on the mark! Grak, strike the chisel head with the sledgehammer!" Thame ordered.
+"Kuran, place the hot-cut chisel right on the mark! Grak, strike the chisel head with the truck toolbox sledgehammer!" Thame ordered.
 CLANG! CLANG!
 The hot-cut chisel bit cleanly through the softened alloy. Scoring both sides, a single heavy blow snapped the billet free with clean, surgical precision.
 The watching hunters gasped in awe as the rock-hard black metal surrendered effortlessly to the mastery of fire and steel.
 Thame thrust the glowing billet back into the coals to bring it back to bright orange forging heat, before transferring it back onto the anvil.
-"Heavy hammers!" Thame bellowed.
-Grak lunged forward, swinging a forged steel claw hammer with both hands.
+"Heavy hammers up!" Thame bellowed.
+Grak stepped forward, wielding the truck's four-kilogram maintenance sledgehammer with both hands, while Kuran readied the fiberglass claw hammer from the carpentry cache to dress the edges.
 "Remember the heat color, Grak!" Thame instructed, pointing at the glowing ingot. "Bright orange is workable. Dark cherry red is too stiff. If it sparks like a starburst, the steel is burning!"
 Kuran nodded intently, etching the thermal spectrum into his primal memory just as he read seasonal animal coats.
 "Strike the center! Flatten the steel and draw it out!"
