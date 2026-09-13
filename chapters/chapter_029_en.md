@@ -124,10 +124,10 @@ Old Shaman Moga limped forward, laying a withered hand upon the cold black steel
 Elya stepped to Thame's side, resting a gentle hand upon his forearm before striking her fist against her left chest in the sacred blood-oath gesture of the mountain hunters.
 Pointing across the freshly broken dark earth toward the green seedling trays, she whispered in a low, fierce cadence: "Thame... Sua... Earth wakes... We live!"
 The ringing of the forge echoed late into the twilight, golden embers swirling beneath the towering limestone shadow.
-Up on the roof of the truck cab, Thame stood watch alongside Dr. Nicha in the brisk night air.
-All forty-three rounds of .38 Special revolver ammunition remained safely nested inside his coat pocket, preserved without a single wasted shot.
-The orange flare gun rested ready with its two remaining red signals; the diesel tank held firm at exactly 198.5 liters.
-The 8,420 grams of pure sea salt and ten bouillon cubes remained locked tight within the dry storeroom.
-Tonight, Fortress Alpha shone with the hearthfire of a blacksmith forge, its sparks illuminating ten thousand years of prehistoric wilderness.
+Up on the roof of the truck cab, Thame braced against the rising chill, surveying the secured perimeter alongside Dr. Nicha.
+Solar floodlights swept across the fortified sandbag revetments and coiled concertina wire.
+Deep within his heavy coat pocket, the service revolver rested undisturbed, preserved without a single wasted shot.
+The fortified ramparts and dry cellars stood primed for the first deep freezes of the approaching winter.
+Tonight, Fortress Alpha glowed with the hearthfire of the forge, its sparks illuminating ten thousand years of prehistoric wilderness.
 Yet far to the south, deep within the shadows of the pine ridge, the cold wind carried the metallic ring of steel farther than anyone knew.
 And something lurking in the darkness listened to the dawn of the Iron Age with predatory hunger!
