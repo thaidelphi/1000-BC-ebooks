@@ -60,16 +60,16 @@ Dr. Nicha removed her earpiece, gazing at the darkened display with a tranquil, 
 Standing tall on the steel roof, he cast his gaze downward into the courtyard below.
 The warm amber radiance of the bloomery furnace and stone hearths illuminated the valley floor.
 One hundred and forty men, women, and children from three distinct clans—Cliff Deer, Mountain Sheep, and Demon Fang—stood gathered in a solemn circle.
-No war cries echoed. No screams of terror shattered the night. Only the steady rhythm of footsteps and united breath.
-Kuran, Grak, and Bork, clad in tire-tread breastplates and heavy fur mantles, led twenty young warriors hauling a massive wooden sledge.
-Resting atop the pine timber sledge was a monolithic slab of fine-grained limestone, quarried from the southern ridges.
-Weighing nearly half a ton, the stone trailed a faint mist of powdered chalk in the crisp frost.
-Kuran flashed swift hand gestures; four seasoned hunters rolled debarked pine logs beneath the runners.
-Kinetic friction vanished before the ancient engineering of log rollers.
-Hauling on braided paracord and thick wild vine cordage, the warriors pulled in rhythmic unison.
-The face of the pale gray monolith had been dressed flat and smooth with chisels forged from 5160 spring steel.
-Using breaker bars and heavy levers, the men hoisted the monolith upright before the truck’s massive grill.
-Its base sank deep into a prepared trench, packed solid with sticky clay and crushed river gravel until it stood immovable as a mountain.
+The grueling labor of the day had finally ceased, replaced by the comforting crackle of burning pine logs.
+The monolithic limestone stele, quarried from the southern ridge, had already been erected at the courtyard’s center that afternoon.
+Weighing nearly half a ton, twenty hunters led by Kuran, Grak, and Bork had transported it across debarked log rollers before sundown.
+Its base was anchored deep into the frozen earth, buttressed with sticky river clay and compacted crushed limestone ballast.
+The surface of the pale gray monolith had been dressed flat and smooth with chisels forged from 5160 spring steel.
+Now, as biting frost descended upon the valley, all physical toil ceased, and everyone drew close around the monolith and hearth.
+Kuran, Grak, and Bork, wrapped in thick fur mantles, stood shoulder to shoulder alongside families from all three clans.
+Orange embers danced across the virgin face of the limestone, like a pristine canvas awaiting the imprint of history.
+The rich aroma of simmered marrow broth and smoked venison wafted from wide clay pots, restoring strength to weary limbs.
+No one toiled in the freezing dark; only warmth, shared sustenance, and rising brotherhood bound the valley together.
 Thame and Dr. Nicha climbed down the rear cab ladder, stepping into the center of the gathering.
 Little Tara dashed forward, offering two carved wooden cups steaming with rich bone broth to warm their hands.
 Elya, draped in her gray wolfskin mantle, stepped to Thame’s side.
