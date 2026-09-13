@@ -1,10 +1,10 @@
 # Chapter 30: The Final Transmission of Saga 1 & The First Bastion
 
-The red countdown digits on the smartphone screen pulsed with urgent cadence alongside the high-pitched telemetry chirp.
-BEEP... BEEP... BEEP...
-The swirling curtains of ultraviolet and emerald aurora that once draped the limestone bluffs began to shrivel like morning mist before a rising gale.
-The gravitational flux lines warping the late Pleistocene sky were slowly unwinding, releasing their cosmic tension.
+Above the limestone bluffs, the ultraviolet and emerald ribbons of the temporal rift began to shrivel like morning mist before a rising gale.
+The spacetime anomaly that had briefly allowed modern cellular signals to breach ten thousand years of prehistory was slowly unwinding.
 The sharp tang of ozone and static electricity that raised the hair on bare arms steadily dissipated as spacetime settled back into stillness.
+On the smartphone display, the countdown timer pinned atop the War Room thread ticked downward in eerie silence.
+The temporary 5G connection that bridged two separated epochs was fading fast, poised to sever and cast this primal wilderness back into absolute radio silence.
 High atop the roof of the ten-wheel truck, Thame and Dr. Nicha sat shoulder to shoulder against the biting valley wind.
 The steel roof plating was frigid, its bitter chill penetrating even the heavy soles of Thame's combat boots.
 A black braided cable linked the smartphone to a 30,000mAh power bank, maintaining battery reserves at a steady eighty-four percent.
