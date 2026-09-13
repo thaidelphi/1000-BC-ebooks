@@ -101,7 +101,7 @@ It was the first spring-steel plowshare head in human history.
 Before the hearth coals dwindled in the late afternoon chill, Thame inserted another segment of spring leaf, hot-cutting several pre-sized billets reserved for tomorrow's woodworking broad adzes and heavy mortise chisels.
 From a remaining thick scrap, he rapidly hammered out a heavy splitting wedge for the timber framing teams.
 Once true, Thame reheated the plowshare and wedge to a dull cherry red.
-He then plunged them into a steel trough of used motor oil mixed with rendered animal tallow.
+Beside the anvil, he readied a quenching trough blending spare motor oil dregs from the under-chassis toolbox with rendered deer tallow from the camp hearth, plunging the glowing steel straight into the dark mixture.
 SSSHHH...!
 A thick cloud of white smoke erupted toward the twilight sky. Oil quenching moderated the cooling rate, preventing the high-tensile 5160 steel from micro-fracturing.
 Thame immediately tempered the blades over warm charcoal ashes, drawing the hardness back to a resilient spring temper that would never chip or shatter against stone.
