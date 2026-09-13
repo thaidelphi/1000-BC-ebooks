@@ -16,13 +16,13 @@ Hundreds of thousands of citizens across the world of 2026 stared at their scree
 A red high-priority dispatch from the Doi Inthanon field telemetry station pinned atop the thread:
 "Ground magnetometers register a steep energy decay rate; analytical gradient curves project the ionized curtain will collapse within ten to twelve minutes."
 "Radio telemetry and digital data packets will cease to penetrate the cross-era ionospheric barrier once magnetic resonance drops to baseline."
-"Numerical computer models confirm the geomagnetic anomaly will settle into an extended dormant phase throughout the brutal winter ahead."
+"There is zero empirical data to predict if or when the anomaly will ever reopen, or if this severance is permanent."
 Dr. Nicha slipped her wired hands-free earpiece on, her wool-gloved thumb tapping the microphone icon in her family chatroom.
 Her slender fingers trembled faintly against the frost, yet her gaze remained rock-steady and serene.
 "Mom... If you hear this, please do not weep for me," Nicha's voice carried clearly into the tiny microphone.
 "I am safe. I have an impenetrable fortress, abundant provisions, and people here who protect me with their very lives."
 "As a doctor, I have used my craft to save dozens who were on the brink of death... I am fulfilling my oath with absolute honor."
-"I love you, Dad, and everyone at home. Until the skies open once more... take care of yourselves."
+"I love you, Dad, and everyone at home. No matter what happens from here on... take care of yourselves."
 The audio memo uploaded into the ether.
 A green arrow flashed, followed by two clean checkmarks confirming flawless delivery.
 A heartbeat later, a miracle occurred as a brief voice clip from her father downloaded in the final dying packet.
