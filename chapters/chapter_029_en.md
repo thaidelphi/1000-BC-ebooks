@@ -94,21 +94,22 @@ Grak swung the four-kilogram maintenance sledgehammer down upon the glowing bill
 Hammer blows crashed upon the incandescent steel, reverberating through the amphitheater of stone. Showers of golden sparks cascaded like meteorites.
 Under relentless rhythmic blows, the ductile 5160 steel flattened, densified, and took shape beneath the hammer.
 Thame manipulated the workpiece with tongs, having Grak strike heavy flattening blows while Kuran trimmed the edges.
+To achieve the required geometry, the workpiece endured eight exhausting heat cycles, pulled repeatedly from the glowing hearth and beaten without mercy.
+Sweat drenched the sinewy torsos of Grak and Kuran until their knotted muscles trembled from exhaustion, yet the primal fire in their eyes never flickered.
 From a flat, rectangular spring leaf, the glowing metal curved and expanded into a thick, flanged blade with a reinforced central rib and a tapered prow.
 It was the first spring-steel plowshare head in human history.
-Next, Thame heated another billet to forge two crescent harvesting sickles, followed by a broad woodworking adze and heavy splitting wedges for the timber crews.
-Once the profiles were true, Thame reheated the cutting edges to a dull cherry red.
+Before the hearth coals dwindled in the late afternoon chill, Thame inserted another segment of spring leaf, hot-cutting several pre-sized billets reserved for tomorrow's sickles and woodworking adzes.
+From a remaining thick scrap, he rapidly hammered out a heavy splitting wedge for the timber framing teams.
+Once true, Thame reheated the plowshare and wedge to a dull cherry red.
 He then plunged them into a steel trough of used motor oil mixed with rendered animal tallow.
 SSSHHH...!
 A thick cloud of white smoke erupted toward the twilight sky. Oil quenching moderated the cooling rate, preventing the high-tensile 5160 steel from micro-fracturing.
-Thame immediately tempered the blades over gentle coals, drawing the hardness back to a resilient spring temper that would never chip or shatter against stone.
+Thame immediately tempered the blades over warm charcoal ashes, drawing the hardness back to a resilient spring temper that would never chip or shatter against stone.
 Testing the edge with a diamond-grit file, the teeth skated across the hardened steel without scratching—a testament to textbook heat treatment.
-Tara watched her wide-eyed reflection in the still water of the quench trough, smiling in child-like fascination.
-Thame raised the finished plowshare and curved sickle high above his head before the gathered assembly of over a hundred silent survivors.
-Kuran stepped forward with trembling fingers, brushing the polished, chilled steel edge—an edge infinitely smoother and keener than any flint nodule shaped by his ancestors.
-"Sharp... Unbroken... Forever..." Kuran whispered in awe, tears glistening in his rugged eyes.
-Taking the sickle, Kuran swept it through a dense clump of dried wild grass beside the fence; with a flick of his wrist, the stalks parted like silk.
-The grain heads dropped cleanly into his palm without shattering. Elya nodded in silent admiration at the sheer efficiency of the harvest tool.
+Tara watched her wide-eyed reflection in the oily sheen as the smoke cleared, smiling in child-like fascination.
+Thame raised the gleaming black plowshare high above his head before the gathered assembly of over a hundred silent survivors.
+Kuran stepped forward with trembling fingers, brushing the chilled, mirror-like steel—an edge infinitely smoother and denser than any flint nodule shaped by his ancestors.
+"Sharp... Unbroken... Forever..." Kuran whispered in awe, his gaze shifting toward the pre-cut billets lined up for tomorrow's sickles with profound hope.
 Bork took a newly forged steel splitting wedge, placed it upon a knotty two-foot pine log, and struck it once with a heavy stone mallet.
 CRACK!
 The dense trunk split cleanly down the center with a sound like a rifle shot, leaving Bork staring at the sheared grain in utter disbelief.
