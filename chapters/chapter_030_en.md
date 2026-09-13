@@ -13,10 +13,10 @@ White puffs of steam billowed from their lips with every deliberate breath.
 In the upper-right corner of the display, the signal bars plummeted from five full indicators down to two.
 On the screen, the interdimensional rescue war room thread scrolled by at dizzying speed, dozens of posts flooding every second.
 Hundreds of thousands of citizens across the world of 2026 stared at their screens, holding their breath for the final moments of the temporal rift.
-A pinned administrative alert from the National Institute of Astronomical and Particle Research flashed stark red at the top of the thread:
-"Interdimensional magnetic induction field is in complete collapse. The wormhole throat will seal permanently within twelve minutes."
-"Radio telemetry and digital data packets will no longer penetrate the cross-era ionospheric barrier."
-"Gravitational mass readings confirm the rift will remain dormant throughout the harsh polar winter ahead."
+A red high-priority dispatch from the Doi Inthanon field telemetry station pinned atop the thread:
+"Ground magnetometers register a steep energy decay rate; analytical gradient curves project the ionized curtain will collapse within ten to twelve minutes."
+"Radio telemetry and digital data packets will cease to penetrate the cross-era ionospheric barrier once magnetic resonance drops to baseline."
+"Numerical computer models confirm the geomagnetic anomaly will settle into an extended dormant phase throughout the brutal winter ahead."
 Dr. Nicha slipped her wired hands-free earpiece on, her wool-gloved thumb tapping the microphone icon in her family chatroom.
 Her slender fingers trembled faintly against the frost, yet her gaze remained rock-steady and serene.
 "Mom... If you hear this, please do not weep for me," Nicha's voice carried clearly into the tiny microphone.
