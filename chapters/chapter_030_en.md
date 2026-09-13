@@ -69,7 +69,7 @@ Now, as biting frost descended upon the valley, all physical toil ceased, and ev
 Kuran, Grak, and Bork, their grueling blacksmithing shift concluded, stood in thick fur mantles shoulder to shoulder with every clan family.
 Orange embers danced across the virgin face of the limestone, like a pristine canvas awaiting the imprint of history.
 The rich aroma of simmered marrow broth and smoked venison wafted from wide clay pots, restoring strength to weary limbs.
-No one toiled in the freezing dark; only warmth, shared sustenance, and rising brotherhood bound the valley together.
+A freezing gust howled through the narrow defile; every eye fixed silently on the monolith, waiting for the first mark to be struck.
 Thame and Dr. Nicha climbed down the rear cab ladder, stepping into the center of the gathering.
 Little Tara dashed forward, offering two carved wooden cups steaming with rich bone broth to warm their hands.
 Elya, draped in her gray wolfskin mantle, stepped to Thame’s side.
