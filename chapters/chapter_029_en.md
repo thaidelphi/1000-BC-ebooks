@@ -30,7 +30,7 @@ Elya knelt beside the wheel hub, her slender fingers gripping her high-carbon bu
 Tapping the spine of her knife against the heavy steel with a sharp metallic clink, she ran her fingertips over the twelve-millimeter plate, pointing between her saber-tooth talisman and the black steel, uttering a raw, guttural murmur: "Thame... Black... Strong... Crushes saber-tooth!"
 "They are not stone, Elya. This is 5160 spring steel," Thame replied quietly.
 "An alloy enriched with silicon and chromium, resilient enough to absorb brutal impacts without snapping."
-"If we forge this into a plowshare, it will slice through frozen earth like tallow. And if we turn it into sickles, it will reap tens of thousands of grain stalks without dulling."
+"If we forge this into a plowshare, it will slice through frozen earth like tallow. And when we forge it into adzes and chisels, it will frame warm timber halls to shelter all our people from the ice storms."
 Elya gave a slow nod, her dark hazel eyes ablaze with understanding.
 Turning toward the perimeter, she flashed ancient hunter hand signals to six young warriors from both the Cliff Deer and Demon Fang clans.
 Eight burly hunters leveraged stout pine poles beneath the main spring pack, dragging the freed leaves out from beneath the undercarriage.
@@ -98,7 +98,7 @@ To achieve the required geometry, the workpiece endured eight exhausting heat cy
 Sweat drenched the sinewy torsos of Grak and Kuran until their knotted muscles trembled from exhaustion, yet the primal fire in their eyes never flickered.
 From a flat, rectangular spring leaf, the glowing metal curved and expanded into a thick, flanged blade with a reinforced central rib and a tapered prow.
 It was the first spring-steel plowshare head in human history.
-Before the hearth coals dwindled in the late afternoon chill, Thame inserted another segment of spring leaf, hot-cutting several pre-sized billets reserved for tomorrow's sickles and woodworking adzes.
+Before the hearth coals dwindled in the late afternoon chill, Thame inserted another segment of spring leaf, hot-cutting several pre-sized billets reserved for tomorrow's woodworking broad adzes and heavy mortise chisels.
 From a remaining thick scrap, he rapidly hammered out a heavy splitting wedge for the timber framing teams.
 Once true, Thame reheated the plowshare and wedge to a dull cherry red.
 He then plunged them into a steel trough of used motor oil mixed with rendered animal tallow.
@@ -109,7 +109,7 @@ Testing the edge with a diamond-grit file, the teeth skated across the hardened 
 Tara watched her wide-eyed reflection in the oily sheen as the smoke cleared, smiling in child-like fascination.
 Thame raised the gleaming black plowshare high above his head before the gathered assembly of over a hundred silent survivors.
 Kuran stepped forward with trembling fingers, brushing the chilled, mirror-like steel—an edge infinitely smoother and denser than any flint nodule shaped by his ancestors.
-"Sharp... Unbroken... Forever..." Kuran whispered in awe, his gaze shifting toward the pre-cut billets lined up for tomorrow's sickles with profound hope.
+"Sharp... Unbroken... Forever..." Kuran whispered in awe, his gaze shifting toward the pre-cut billets lined up for tomorrow's adzes and chisels with profound hope.
 Bork took a newly forged steel splitting wedge, placed it upon a knotty two-foot pine log, and struck it once with a heavy stone mallet.
 CRACK!
 The dense trunk split cleanly down the center with a sound like a rifle shot, leaving Bork staring at the sheared grain in utter disbelief.
