@@ -29,7 +29,7 @@ In that instant, the video feed froze, static tearing violently across the digit
 The call abruptly snapped shut to a black screen, severing the link forever and leaving only their final words engraved in her soul.
 A solitary tear welled in the corner of the doctor's eye before she brushed it away, her gaze returning to quiet, unbreakable resolve.
 Across the war room thread, tens of thousands of netizens posted their farewells and heartfelt blessings.
-User `@PattayaMechanic` wrote: "That 850GB blueprint archive on your hard drive is the birthright of mankind. Build an Iron Age empire, little brother!"
+User `@PattayaMechanic` wrote: "The blueprint and knowledge archives stored on your hard drive are the birthright of mankind. Build an Iron Age empire, little brother!"
 User `@RuralMedic` added: "Herbal extraction guides and natural antiseptics are stored in the medical subfolder. Both of you survive and come home!"
 User `@DoiInthanonHunter` posted a stark warning: "Do not underestimate the first blizzard. Pile firewood above your heads, pack meat to the rafters, and you shall cheat death!"
 User `@SouthernTeacher` offered hope: "You are the beacon of our ancestors. We will watch the night sky until your signal fires flare again!"
@@ -39,7 +39,7 @@ Thame took a deep breath, the rich fragrance of pine charcoal and damp earth ris
 Resting his calloused fingers upon the touchscreen, he typed his final official communique to the modern world:
 "To everyone in the war room, our rescue coordinators, and the people of Thailand..."
 "Though physical relief could not cross the dimensional gravitational shear to reach our hands,"
-"The 850 gigabytes of human wisdom you delivered shall become the bedrock of prehistoric human civilization."
+"The vast archives of human wisdom and knowledge you delivered shall become the bedrock of prehistoric human civilization."
 "I cannot say whether the future holds a path back to our modern home, nor can any man foresee tomorrow's destiny."
 "Yet in this singular moment, my sacred duty is to stand firm and shepherd these one hundred and forty souls through the great winter."
 "We possess our first steel tools, our terraced fields, uninterrupted hydroelectric power, and a collective will that refuses to yield."
@@ -116,7 +116,7 @@ The orange emergency flare gun lay locked in the console drawer alongside its tw
 The diesel fuel gauge registered exactly 198.5 liters, preserved without a single drop squandered.
 Eight thousand four hundred and twenty grams of pure sea salt and ten bouillon cubes rested in airtight containers within the dry lockbox.
 Three thousand four hundred and sixty-seven freight parcels inside the aluminum cargo hold awaited systematic classification with the dawn.
-The two-terabyte portable solid-state drive safely preserved 850 gigabytes of modern human civilization.
+The two-terabyte portable solid-state drive safely preserved the collective wisdom and science of human civilization.
 The triple-layered concertina razor wire barbed fences spanned the four-meter chokepoint without a gap.
 The double-log ballistic breastwork, packed forty centimeters deep with limestone ballast, stood impassive against all arrows.
 The solar floodlights and dual air horns remained poised to shatter any nocturnal intrusion.
