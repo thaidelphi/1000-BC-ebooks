@@ -30,7 +30,7 @@ Elya knelt beside the wheel hub, her slender fingers gripping her high-carbon bu
 Tapping the spine of her knife against the heavy steel with a sharp metallic clink, she ran her fingertips over the twelve-millimeter plate, pointing between her saber-tooth talisman and the black steel, uttering a raw, guttural murmur: "Thame... Black... Strong... Crushes saber-tooth!"
 "They are not stone, Elya. This is 5160 spring steel," Thame replied quietly.
 "An alloy enriched with silicon and chromium, resilient enough to absorb brutal impacts without snapping."
-"If we forge this into heavy mattock hoes and trenching spades, it will cleave through the stony terrace soil in a single stroke. And when we forge it into adzes and chisels, it will frame warm timber halls to shelter all our people from the ice storms."
+"If we forge this into heavy mattock hoes and trenching spades, it will dig post-holes for our winter cabins and cleave through the stony terrace soil in a single stroke. And when we forge it into adzes and chisels, it will frame warm timber halls to shelter all our people from the ice storms."
 Elya gave a slow nod, her dark hazel eyes ablaze with understanding.
 Turning toward the perimeter, she flashed ancient hunter hand signals to six young warriors from both the Cliff Deer and Demon Fang clans.
 Eight burly hunters leveraged stout pine poles beneath the main spring pack, dragging the freed leaves out from beneath the undercarriage.
@@ -118,7 +118,7 @@ Raising the heavy iron high above his broad shoulders, the giant warrior brought
 CHUNK!
 The 5160 steel blade bit deep, slicing through compacted earth and severing stubborn pine roots without a single nick on its cutting edge.
 With a single levering heave of the oak haft, thick slabs of dark, loamy soil overturned into a broad, rich pit.
-Excavation that once demanded twenty men clawing with fire-hardened sticks for three days was achieved in three effortless strikes.
+It would not only revolutionize their agriculture, but excavate post-hole foundations and drainage trenches for fifteen winter longhouses. Excavation that once demanded twenty men clawing with fire-hardened sticks for three days was achieved in three effortless strikes.
 Grak dropped to his knees beside the freshly broken earth, pressing his forehead against the soil at Thame's boots, surrendering to the power of creation that eclipsed all warfare.
 Old Shaman Moga limped forward, laying a withered hand upon the cold black steel of the hoe, chanting low incantations to the spirits of fire and black iron.
 Elya stepped to Thame's side, resting a gentle hand upon his forearm before striking her fist against her left chest in the sacred blood-oath gesture of the mountain hunters.
