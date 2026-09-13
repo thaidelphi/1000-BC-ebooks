@@ -27,7 +27,7 @@ The corroded threads sheared free with a deafening snap, and the coarse-threaded
 Grak’s eyes bulged in disbelief. He thumped his barrel chest, roaring in fierce triumph: "Hrmph... Wah!"
 "Keep turning. Back off the retaining plates and the center tie bolts," Thame ordered, wedging the wrecking bar into the leaf brackets to pry them free.
 Elya knelt beside the wheel hub, her slender fingers gripping her high-carbon bushcraft knife to scrape out compacted clay and gravel packed tightly within the spring box.
-"Thame... These black stones are far harder than any saber-tooth claw," Elya noted in a measured voice, caressing the smooth, twelve-millimeter-thick steel leaf that slid free from the bracket.
+Tapping the spine of her knife against the heavy steel with a sharp metallic clink, she ran her fingertips over the twelve-millimeter plate, pointing between her saber-tooth talisman and the black steel, uttering a raw, guttural murmur: "Thame... Black... Strong... Crushes saber-tooth!"
 "They are not stone, Elya. This is 5160 spring steel," Thame replied quietly.
 "An alloy enriched with silicon and chromium, resilient enough to absorb brutal impacts without snapping."
 "If we forge this into a plowshare, it will slice through frozen earth like tallow. And if we turn it into sickles, it will reap tens of thousands of grain stalks without dulling."
@@ -84,7 +84,7 @@ An hour into the smelt, Thame thrust a steel wrecking bar into the clay plug at 
 HISS...!
 A thick, bubbling stream of molten orange slag poured out along the sand trench, crackling fiercely.
 It was the liquid silica impurities and metallic scale, driven out from the molten metal by intense reducing heat.
-Circling hunters scrambled back in terror, roaring in superstitious awe: "Thor... Stone blood... Fire of heaven!"
+Circling hunters scrambled back in terror, roaring in superstitious awe: "Thor... Stone blood... Lightning fire!"
 "Hold your ground! That is merely slag!" Thame called out firmly, his polycarbonate goggles and heavy leather gauntlets shielding him from the glare.
 "Kuran! Grak! Give me full draft! The steel is consolidating!"
 Thame scattered a handful of fine quartz sand into the throat; the silica melted into a glass glaze over the steel billet, sealing it against oxidation and preserving its precious carbon.
@@ -118,7 +118,7 @@ Kuran stepped forward with trembling fingers, brushing the polished, chilled ste
 Taking the sickle, Kuran swept it through a dense clump of dried wild grass beside the fence; with a flick of his wrist, the stalks parted like silk.
 The grain heads dropped cleanly into his palm without shattering. Elya nodded in silent admiration at the sheer efficiency of the harvest tool.
 Bork took a newly forged steel splitting wedge, placed it upon a knotty two-foot pine log, and struck it once with a heavy stone mallet.
-เปรี๊ยะ!
+CRACK!
 The dense trunk split cleanly down the center with a sound like a rifle shot, leaving Bork staring at the sheared grain in utter disbelief.
 Grak took the heavy plowshare, wedged it into a notched oak beam, and leaned his massive frame into the harness across the lower terrace.
 CHUNK!
@@ -127,8 +127,8 @@ Rich, dark loamy soil turned over in a deep furrow in mere seconds.
 A furrow that once demanded twenty men digging with fire-hardened sticks for three days was completed in three paces.
 Grak dropped to his knees beside the plowed earth, pressing his forehead against the soil at Thame's boots, surrendering to the power of creation that eclipsed all warfare.
 Old Shaman Moga limped forward, laying a withered hand upon the cold black steel, chanting low incantations to the spirits of fire and black iron.
-Elya stepped to Thame's side, resting a gentle hand upon his forearm, her lips parting in a serene, proud smile.
-"You did not merely forge weapons, Thame... You have given our people a future."
+Elya stepped to Thame's side, resting a gentle hand upon his forearm before striking her fist against her left chest in the sacred blood-oath gesture of the mountain hunters.
+Pointing across the freshly turned dark furrows toward the green seedling trays, she whispered in a low, fierce cadence: "Thame... Sua... Earth wakes... We live!"
 The ringing of the forge echoed late into the twilight, golden embers swirling beneath the towering limestone shadow.
 Up on the roof of the truck cab, Thame stood watch alongside Dr. Nicha in the brisk night air.
 All forty-three rounds of .38 Special revolver ammunition remained safely nested inside his coat pocket, preserved without a single wasted shot.
