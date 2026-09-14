@@ -130,10 +130,10 @@ During the morning’s sorting of medical and household supplies in Zones Six an
 The first was a parcel containing a high-pressure chrome showerhead complete with a flexible stainless-steel hose and a quarter-turn brass lever valve.
 The second was a heavy-duty polypropylene toilet seat assembly featuring a sealed lid and an odor-trapping rubber gasket.
 Alongside these lay an assorted parcel of herbal soaps, wildflower-scented shampoo, toothbrushes, refreshing mint toothpaste, and jars of rich moisturizing cold cream formulated for severe winter conditions.
-Teaming up with Kuran and Bork, the young engineer erected a dedicated "Private Latrine and Shower Bathhouse" nestled inside a secluded limestone alcove directly at the base of the cliff below Heaven's Cave.
-The structure was framed with straight pine timbers and lined with split-bamboo panels, sealed internally with heavy dark waterproof canvas and twin layers of bubble wrap.
-The insulated enclosure blocked out the freezing canyon drafts and guaranteed total, impenetrable privacy.
-The floor was fitted with slatted pine duckboards elevated over a drainage filtration trench packed with crushed limestone, activated charcoal, and coarse river gravel to swiftly absorb greywater.
+Mobilizing Kuran, Bork, and half a dozen strong hunters, the engineer rapidly assembled a field latrine and shower booth inside the secluded limestone alcove below Heaven's Cave.
+The natural rock fissure provided solid windbreak walls on three sides, while seasoned pine poles and split bamboo from camp stockpiles framed the front enclosure.
+The interior was insulated with waterproof canvas and twin layers of bubble wrap, locking in thermal vapor and guaranteeing total privacy.
+Slatted wooden duckboards were laid across an elevated frame over a drainage bed of crushed limestone and river gravel to absorb greywater instantly.
 For the latrine, Thame engineered a urine-diverting dry toilet, anchoring the smooth plastic seat over an airtight receptacle.
 Beside the bench sat a wooden tub filled with dry pine ash and pulverized charcoal, complete with a bamboo ladle to dust over waste after every use, neutralizing bacteria and eliminating odors entirely.
 The adjoining shower stall was a triumph of primitive hydraulics: Thame tapped a secondary bamboo conduit into the gravity-fed aqueduct line.
