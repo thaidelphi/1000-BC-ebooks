@@ -78,22 +78,22 @@ Forcing them open blindly without proper diagnostic tools or controlled storage 
 "We leave these sealed for now," Thame informed Elya and Dr. Nicha firmly. "Secure them at the deepest bulkhead until a true existential crisis demands them."
 Thame had the three mystery crates positioned firmly against the cab wall, framing them with heavy pine bracing timber and covering them beneath heavy-duty waterproof tarps.
 Just as the tool crates were being slotted into place, Dr. Nicha’s excited voice carried over from the front of the staging area.
-"Thame! Come look at this parcel... it’s field geological survey equipment!"
-Thame stepped forward swiftly; nestled within dense closed-cell polyethylene foam lay a heavy-duty ruggedized military laptop.
-Encased in an olive-drab magnesium-alloy chassis, the machine was engineered to withstand severe shock, driving rain, and sub-zero temperatures down to minus twenty degrees.
-It featured reinforced rubber corner bumpers, a sealed backlit membrane keyboard, and a high-nit sunlight-readable display.
-Crucially, its power management system accepted wide-range DC input via an ultra-durable high-wattage power port (Type-C 65W).
+Just as the tool crates were being slotted into place, Dr. Nicha’s voice called out with pleasant surprise from the front of the staging area.
+"Thame! Come look at this parcel... there's a laptop computer shipped in here!"
+Thame stepped forward swiftly; nestled within protective bubble wrap and foam lay an ordinary consumer notebook computer.
+Finished in sleek dark gray, it was a standard lightweight laptop with an everyday plastic and aluminum chassis, commonly used for office work or study.
+Inside the box were its standard wall charger, charging cables, and a simple padded fabric sleeve.
+Crucially, the laptop supported standard modern universal charging via its multi-purpose port (Type-C 65W).
 The young engineer’s eyes lit up with profound satisfaction.
-This was no ordinary consumer laptop—it was the definitive command terminal needed to unlock their entire offline digital knowledge archive!
-Thame quickly assembled a field engineering desk in the forward corner of the trailer, bolting its steel struts directly to the container's structural ribbing.
+Though merely an ordinary everyday laptop, it was the definitive command terminal needed to unlock their entire offline digital knowledge archive!
 Using wire strippers, he prepped high-temp silicone copper wiring and tied it into a fused terminal block to shield against hydro-turbine voltage surges.
 Direct current from the Pelton turbine's 24-volt main bus was stepped down smoothly and fed into the rugged laptop's power port.
-The solid-green charging indicator illuminated instantly, confirming that the camp's hydroelectric generation was clean, steady, and flawless.
+Direct current from the Pelton turbine's 24-volt main bus was stepped down smoothly and fed into the laptop's power port.
 Thame then connected the shockproof two-terabyte solid-state drive housing the distilled legacy of human civilization into the high-speed data port.
 His index finger pressed the sealed power button.
-BEEP...!
+His index finger pressed the power button.
 The rugged display flared to life amidst the shadows, its internal cooling fan spinning up with a crisp, reassuring whistle.
-The air-gapped operating system booted seamlessly to the desktop, displaying vast directories of engineering blueprints, 3D CAD models, and foundational texts.
+The display flared to life amidst the shadows, its internal cooling fan spinning up with a crisp, reassuring whistle.
 The archives spanned prehistoric botany, iron-carbon phase diagrams, pyrotechnic chemistry, and pre-industrial civil engineering treatises.
 Thame pulled up the high-resolution digital elevation model and topographical contour map of their horseshoe canyon.
 Elya and Kuran leaned over the display, their eyes widening in breathless shock as they recognized the precise layout of their homeland.
