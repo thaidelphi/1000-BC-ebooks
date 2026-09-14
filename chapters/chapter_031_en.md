@@ -116,6 +116,32 @@ Dr. Nicha offered an encouraging smile, adding: "The medical cache is organized.
 Kuran and Grak gazed at the digital blueprint on screen before striking their fists firmly over their hearts, confirming the warriors' readiness.
 An overwhelming surge of collective purpose and hope radiated across the grounds of Fortress Alpha.
 A single day of disciplined labor had transformed pure chaos into iron-clad military order.
+Yet before the crimson sun dipped below the rugged limestone crags, a vital imperative of sanitation, comfort, and human dignity could no longer be deferred.
+For three grueling weeks, the camp’s only latrine had been a crude open pit dug eighty meters downwind, exposed to the biting alpine gale.
+Bathing required a treacherous fifteen-meter climb up the sheer cliff face to the geothermal cavern—a hazardous trek over slick stone, virtually impossible in pitch darkness.
+For a modern physician from the twenty-first century and the camp's leadership, personal hygiene was as vital a strategic asset as palisade walls.
+During the morning’s sorting of medical and household supplies in Zones Six and Seven, Thame had unearthed two packages that offered the perfect technical solution.
+The first was a parcel containing a high-pressure chrome showerhead complete with a flexible stainless-steel hose and a quarter-turn brass lever valve.
+The second was a heavy-duty polypropylene toilet seat assembly featuring a sealed lid and an odor-trapping rubber gasket.
+Teaming up with Kuran and Bork, the young engineer erected a dedicated "Private Latrine and Shower Bathhouse" nestled inside a limestone cleft beside the ten-wheel truck.
+The structure was framed with straight pine timbers and lined with split-bamboo panels, sealed internally with heavy dark waterproof canvas and twin layers of bubble wrap.
+The insulated enclosure blocked out the freezing canyon drafts and guaranteed total, impenetrable privacy.
+The floor was fitted with slatted pine duckboards elevated over a drainage filtration trench packed with crushed limestone, activated charcoal, and coarse river gravel to swiftly absorb greywater.
+For the latrine, Thame engineered a urine-diverting dry toilet, anchoring the smooth plastic seat over an airtight receptacle.
+Beside the bench sat a wooden tub filled with dry pine ash and pulverized charcoal, complete with a bamboo ladle to dust over waste after every use, neutralizing bacteria and eliminating odors entirely.
+The adjoining shower stall was a triumph of primitive hydraulics: Thame tapped a secondary bamboo conduit into the gravity-fed aqueduct line.
+Harnessing the immense head pressure from the cliff spring, he blended the cold alpine water with the forty-degree geothermal runoff piped from the cavern above.
+When plumbed into the lever valve and suspended from an overhead crossbeam, the showerhead delivered a pressurized, steaming cascade of mineral water at a steady thirty-eight degrees Celsius.
+Dr. Nicha was the first invited to step inside.
+As the insulated door latched shut and she shed her soot-stained layers, the doctor turned the valve; a dense, pulsating rain of hot mineral water washed down over her hair and shoulders.
+Fragrant soap lather mingled with billowing steam, dissolving weeks of grim exhaustion, stress, and wilderness grime in an instant.
+A quiet tear of sheer relief welled in her eyes—the profound, irreplaceable feeling of civilized dignity restored in the primeval wild.
+When Dr. Nicha emerged, radiating warmth with freshly dried hair, she gently took Elya’s hand and guided the hunter inside.
+The prehistoric huntress widened her eyes in astonishment as warm rain poured effortlessly from a polished metallic blossom without a single bucket being hoisted.
+"Aka... Tor... warm rain indoors!" Elya murmured in awe, tentatively cupping the falling torrent in her calloused palms, a shy smile breaking across her fierce features.
+The shared laughter and mutual comfort between the two women forged an unbreakable bond of sisterhood and unspoken trust.
+Standing guard outside the wooden threshold, Thame listened with quiet pride.
+For he knew that true civilization was not measured solely in sharp steel or stone fortifications, but in the sanitation, daily dignity, and living comfort bestowed upon those who fought to survive.
 As late afternoon bled into twilight, the sun dipped behind the western limestone crest, and the canyon temperature plummeted sharply toward four degrees Celsius.
 Brittle needles of white frost began crystallizing across the dried pine boughs lining the perimeter.
 Within the pens, the wolf-dogs and livestock whined uneasily, pacing their enclosures in growing agitation.
