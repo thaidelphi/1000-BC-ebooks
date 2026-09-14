@@ -41,6 +41,9 @@ Beneath lay ten pairs of heavy-duty knit work gloves coated with thick, vulcaniz
 The dense orange rubber coating offered total protection against razor-sharp splinters while insulating flesh from the bitter chill of freezing steel.
 Kuran slipped on a pair, flexing his gnarled fingers in sheer disbelief at the seamless grip and warm flexibility.
 Thame distributed the work gloves to the logging leads, supplementing them with hand-forged axes and splitting wedges hammered from leaf spring steel (5160 Spring Steel).
+Kuran glanced at the axes and pointed toward the truck's sentry roof, whistling in imitation of a high-speed whine. "Whirrr... wood-eating beast?" he asked, recalling the cordless chainsaw used to fell timber for the first stockade.
+"The giant pines to the south span two feet thick; our six-inch guide bar is far too small, and forced cuts will burn out the brushless motor," Thame explained with measured mechanical rationale.
+"Worse, the shrill screaming of high-RPM chain teeth will echo across the valleys, drawing Horok straight down upon us. We fell silently with axes and reserve the cordless saw for precision joinery back at camp."
 "These are the iron talons that will fell the ancient forest," Thame declared, handing the first orange felling axe to Kraak and the second to Kuran.
 Kraak ran his calloused thumb along the keen, mirror-honed edge, feeling the flawless balance that made his corded forearm muscles twitch with eager power.
 "Beast fangs... razor-sharp... unbroken by rock!" Kraak roared, slamming his left fist against his armored chest in boundless pride.
@@ -113,7 +116,9 @@ The young engineer wielded a steel brush hook and forged axe to strip away the c
 The harvested bark was carefully bundled for fire-starting tinder, while the stripped logs resisted moisture, fungal decay, and woodboring beetles.
 Kuran rendered fragrant pine resin with rendered animal tallow over the fire, brushing the thick sealant onto the cut log ends to prevent radial checking.
 Next came the masterwork of cabin framing: Thame used a steel scribe and charcoal to layout curved saddle notches at each interlocking corner.
-Carpenters swung forged chisels and axes with practiced rhythm, scooping concave cups that cradled the rounded contours of the underlying logs.
+Secured behind the sanctuary of the stockade, Thame deployed the 21V cordless mini chainsaw, freshly recharged from the 100W monocrystalline solar panels.
+The high-speed chain screamed into action, biting into the timber with surgical precision to score and rough-cut the concave saddle contours in seconds.
+Native craftsmen followed immediately behind with forged steel chisels and axes, dressing the curved troughs to seat flush against the rounded lower logs without a millimeter of gap.
 As each four-meter and six-meter timber was rolled into position, its colossal deadweight seated the notched joints airtight without requiring a single nail.
 Along the longitudinal grooves flanking each course, workers tamped thick beds of dried sphagnum moss and pine needles as primary thermal chinking.
 They then daubed the seams with a dense refractory mortar of sticky clay, sharp sand, and fine limestone powder, shutting out sub-zero draughts completely.
