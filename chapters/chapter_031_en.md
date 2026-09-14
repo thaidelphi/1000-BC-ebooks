@@ -130,7 +130,7 @@ During the morning’s sorting of medical and household supplies in Zones Six an
 The first was a parcel containing a high-pressure chrome showerhead complete with a flexible stainless-steel hose and a quarter-turn brass lever valve.
 The second was a heavy-duty polypropylene toilet seat assembly featuring a sealed lid and an odor-trapping rubber gasket.
 Alongside these lay an assorted parcel of herbal soaps, wildflower-scented shampoo, toothbrushes, refreshing mint toothpaste, and jars of rich moisturizing cold cream formulated for severe winter conditions.
-Teaming up with Kuran and Bork, the young engineer erected a dedicated "Private Latrine and Shower Bathhouse" nestled inside a limestone cleft beside the ten-wheel truck.
+Teaming up with Kuran and Bork, the young engineer erected a dedicated "Private Latrine and Shower Bathhouse" nestled inside a secluded limestone alcove directly at the base of the cliff below Heaven's Cave.
 The structure was framed with straight pine timbers and lined with split-bamboo panels, sealed internally with heavy dark waterproof canvas and twin layers of bubble wrap.
 The insulated enclosure blocked out the freezing canyon drafts and guaranteed total, impenetrable privacy.
 The floor was fitted with slatted pine duckboards elevated over a drainage filtration trench packed with crushed limestone, activated charcoal, and coarse river gravel to swiftly absorb greywater.
