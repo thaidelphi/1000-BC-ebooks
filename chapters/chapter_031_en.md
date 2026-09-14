@@ -144,12 +144,12 @@ As the insulated door latched shut and she shed her soot-stained layers, the doc
 Fragrant soap lather mingled with billowing steam, dissolving weeks of grim exhaustion, stress, and wilderness grime in an instant.
 She worked the liquid soap and botanical shampoo into a thick, snow-white lather, thoroughly cleansing away weeks of accumulated woodsmoke, trail sweat, and soot.
 A quiet tear of sheer relief welled in her eyes—the profound, irreplaceable feeling of civilized dignity restored in the primeval wild.
-When Dr. Nicha emerged, radiating warmth with freshly dried hair, she gently took Elya’s hand and guided the hunter inside.
-She handed the hunter a fresh toothbrush primed with mint paste, a cake of soap, shampoo, and a jar of protective moisturizing cream.
-The prehistoric huntress widened her eyes in astonishment as warm rain poured effortlessly from a polished metallic blossom without a single bucket being hoisted.
-"Aka... Tor... warm rain indoors!" Elya murmured in awe, tentatively cupping the falling torrent in her calloused palms, a shy smile breaking across her fierce features.
-Elya washed her thick hair until fragrant lather blossomed, brushed her teeth with the tingling mint paste that left her smiling wide with clean white teeth, and smoothed the soothing cold cream across her wind-chapped skin.
-The shared laughter and mutual comfort between the two women forged an unbreakable bond of sisterhood and unspoken trust.
+After refreshing herself and dressing, Dr. Nicha gently took the hesitant, wide-eyed Elya by the hand into the steaming booth.
+The prehistoric huntress stared in stunned disbelief as warm rain poured effortlessly from a polished steel blossom without anyone hoisting a bucket.
+"Aka... Tor... warm rain indoors!" Elya gasped, flinching back before Nicha gently guided her hand to feel the soothing thermal cascade.
+The physician stayed closely by her side, demonstrating how to rub the soap and work the shampoo into white lather, warning the curious huntress not to swallow the suds or sting her eyes.
+Nicha mimed brushing her teeth with strict gestures to spit and not swallow; Elya gasped in comical shock at the icy mint freeze before rinsing and beaming at her pristine white teeth.
+Finishing by showing her how to smooth rich moisturizing cream over wind-chapped cheeks, their joyful laughter melted away ten thousand years of isolation.
 Standing guard outside the wooden threshold, Thame listened with quiet pride.
 For he knew that true civilization was not measured solely in sharp steel or stone fortifications, but in the sanitation, daily dignity, and living comfort bestowed upon those who fought to survive.
 To celebrate the maiden launch of the bathhouse and elevate camp comfort before nightfall, Thame decided to unbox three parcels of domestic goods and pantry treats.
