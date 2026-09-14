@@ -24,7 +24,7 @@ Now, with the brutal polar winter of the Younger Dryas bearing down upon them, t
 Elya nodded in immediate comprehension, turning toward the hunters to issue crisp commands backed by primal hand signals.
 "Sua... lift... set down... do not tear!" Elya commanded sharply, her piercing hunter’s gaze demanding absolute obedience to Thame’s doctrine.
 Thus began the largest systematic warehouse logistics operation in prehistoric history.
-Thame uncapped a remaining can of white marking spray, tracing crisp grid lines across the frozen earth outside and the interior steel decking to mark seven primary zones.
+Thame uncapped a remaining can of white marking spray, tracing crisp grid lines across the frozen earth outside and the interior steel decking to demarcate nine strategic zones.
 The burly warriors, spearheaded by Grak and Kuran, took point as the primary heavy-lift vanguard.
 Even the healed captive warriors of the Beast Fang tribe, who had pledged fealty under the Blood Oath, stepped forward with deep reverence to assist.
 Their eyes widened in stunned awe as they grasped the staggering mountain of cold metal tools and boundless rations entombed within the belly of the iron beast.
@@ -44,7 +44,7 @@ Tara giggled brightly before scurrying off to deliver clean rolls of sterile gau
 Dr. Nicha established a sanitized field staging station, systematically cataloging incoming pharmaceutical crates with meticulous clinical precision.
 The doctor trained two young women from the Cliff Deer clan in basic sterile protocol and the necessity of boiling mineral spring water for handwashing.
 Broad-spectrum antibiotics, local anesthetics, burn ointments, sterile bandages, and surgical suture kits were sealed inside airtight, moisture-proof Pelican containers.
-Throughout the relentless morning labor, the mountain of freight was methodically divided into nine strategic supply depots:
+Throughout the relentless morning labor, Thame and the camp managed to process fifty to sixty percent of the container, categorizing the accessible cargo into nine strategic depots:
 Zone One: Industrial Construction and Hand Tools—mattocks, digging shovels, trenching spades, felling axes, claw hammers, wrenches, pliers, hand saws, wrecking bars, and high-speed drill bits.
 These carbon-steel implements were slotted into slotted wooden pallets along the left bulkhead, primed for immediate dispatch in timber-clearing and rampart expansion.
 Zone Two: Non-Perishable Rations and Survival Food—vacuum-packed staples, seasoning salts, unrefined sugar, fortified flour, dried legumes, and high-calorie energy bars.
@@ -62,8 +62,8 @@ Zone Eight: Daily Habitation Essentials and Personal Hygiene—herbal bar soaps,
 These domestic necessities were organized into modular plastic totes for systematic rationing, directly elevating daily sanitation and living comfort across the camp.
 And Zone Nine: Audio-Visual, Entertainment, and Consumer Electronics—high-output bass Bluetooth speakers, rolling PA speakers, voice-recording megaphones with emergency sirens, a mini LED projector, portable monitors, and cordless hair clippers.
 All entertainment and acoustic hardware was cushioned on foam-lined shelving, ready for recharging and immediate operation via the two-hundred-and-twenty-volt inverter.
+Though nearly half the freight stacked deep inside would require continuous sorting over the coming days, clearing a one-meter central gangway transformed the container into an organized forward armory.
 Over ninety-nine percent of the cargo remained hermetically sealed in protective cartons and waterproof sacks for long-term preservation, with only critical equipment unboxed for immediate deployment.
-A clean one-meter central gangway was maintained down the length of the container, allowing two-way traffic like a modern forward operating armory.
 Yet deep at the container’s bulkhead, tucked securely beneath the heavy nylon cargo netting, Thame and Elya encountered an unexpected discovery.
 Resting against the front wall were three unmarked, unmanifested mystery crates devoid of standard courier barcodes:
 The first was a heavy solid-oak crate reinforced with galvanized steel bands and stamped with unbroken lead seals, weighing over eighty kilograms.
