@@ -44,7 +44,7 @@ Tara giggled brightly before scurrying off to deliver clean rolls of sterile gau
 Dr. Nicha established a sanitized field staging station, systematically cataloging incoming pharmaceutical crates with meticulous clinical precision.
 The doctor trained two young women from the Cliff Deer clan in basic sterile protocol and the necessity of boiling mineral spring water for handwashing.
 Broad-spectrum antibiotics, local anesthetics, burn ointments, sterile bandages, and surgical suture kits were sealed inside airtight, moisture-proof Pelican containers.
-Throughout the relentless morning labor, the mountain of freight was methodically divided into eight strategic supply depots:
+Throughout the relentless morning labor, the mountain of freight was methodically divided into nine strategic supply depots:
 Zone One: Industrial Construction and Hand Tools—mattocks, digging shovels, trenching spades, felling axes, claw hammers, wrenches, pliers, hand saws, wrecking bars, and high-speed drill bits.
 These carbon-steel implements were slotted into slotted wooden pallets along the left bulkhead, primed for immediate dispatch in timber-clearing and rampart expansion.
 Zone Two: Non-Perishable Rations and Survival Food—vacuum-packed staples, seasoning salts, unrefined sugar, fortified flour, dried legumes, and high-calorie energy bars.
@@ -56,10 +56,13 @@ Strategic heirloom seed reserves were packed inside insulated cooler boxes, awai
 Zone Five: Electrical Infrastructure and Energy Distribution—heavy-gauge copper cabling, DC motors, reserve photovoltaic panels, industrial switches, high-efficiency LED fixtures, and a 24V-to-220V pure sine wave power inverter.
 Thame routed primary branch circuits, wired the power inverter with standard 220V household outlets, and mounted overhead LED strip lighting along the ceiling ribbing, illuminating every corner of the bay.
 Zone Six: Medical Reserves, Trauma Care, and Sanitation—sterile field-surgery kits, trauma dressings, and essential medications managed under Dr. Nicha’s sole authority.
-Zone Seven: Personal Hygiene and Daily Habitation Essentials—herbal bar soaps, liquid body wash, botanical shampoo, mint toothpaste, toothbrushes, rich moisturizing cold cream, sub-zero thermal blankets, sleeping bags, and heavy-duty duct tape.
+Zone Seven: Cold-Weather Apparel, Thermal Garments, and Footwear—goose down parkas, windproof expedition jackets, thermal base layers, ski pants, wool knit beanies, insulated gloves, thick fleece socks, waterproof hiking boots, and sub-zero snow boots.
+Representing the single largest category in the container, these garments were systematically stacked by size, prepared for camp-wide rationing before the Younger Dryas freeze struck.
+Zone Eight: Daily Habitation Essentials and Personal Hygiene—herbal bar soaps, liquid body wash, botanical shampoo, mint toothpaste, toothbrushes, rich moisturizing cold cream, thermal blankets, sleeping bags, and heavy-duty duct tape.
 These domestic necessities were organized into modular plastic totes for systematic rationing, directly elevating daily sanitation and living comfort across the camp.
-And Zone Eight: Audio-Visual, Entertainment, and Consumer Electronics—high-output bass Bluetooth speakers, rolling PA speakers, voice-recording megaphones with emergency sirens, a mini LED projector, portable monitors, and cordless hair clippers.
+And Zone Nine: Audio-Visual, Entertainment, and Consumer Electronics—high-output bass Bluetooth speakers, rolling PA speakers, voice-recording megaphones with emergency sirens, a mini LED projector, portable monitors, and cordless hair clippers.
 All entertainment and acoustic hardware was cushioned on foam-lined shelving, ready for recharging and immediate operation via the two-hundred-and-twenty-volt inverter.
+Over ninety-nine percent of the cargo remained hermetically sealed in protective cartons and waterproof sacks for long-term preservation, with only critical equipment unboxed for immediate deployment.
 A clean one-meter central gangway was maintained down the length of the container, allowing two-way traffic like a modern forward operating armory.
 Yet deep at the container’s bulkhead, tucked securely beneath the heavy nylon cargo netting, Thame and Elya encountered an unexpected discovery.
 Resting against the front wall were three unmarked, unmanifested mystery crates devoid of standard courier barcodes:
