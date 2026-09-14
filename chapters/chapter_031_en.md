@@ -95,12 +95,12 @@ Beep...!
 The digital screen flared to life amidst the shadows, its internal cooling fan spinning up with a crisp, reassuring hum.
 The offline operating system booted into the desktop seamlessly, unfurling an astonishing treasure trove of blueprints, 3D simulation schematics, and engineering treatises.
 The archives spanned prehistoric botany, iron-carbon phase diagrams, pyrotechnic chemistry, and pre-industrial civil engineering treatises.
-Thame pulled up the 3D topographical terrain model and contour map of the horseshoe canyon, plotted from his meticulous field survey data.
-Elya and Kuran leaned over the display, their eyes widening in breathless shock as they recognized the precise layout of their homeland.
-Elya traced the digitized bends of the White Stone Stream and the surrounding limestone ridges; she recognized the landscape instantly from ancestral hunting chants.
+Thame clicked open the architectural blueprint archives, displaying 3D structural models of ancient Nordic and polar log cabins.
+Elya and Kuran leaned over the glowing display, their eyes widening in breathless awe as they saw a virtual building rotating in full three dimensions.
+The interlocking timber joints and steep rooflines glowing on the screen looked infinitely sturdier than any rock overhang or mammoth hide shelter they had ever known.
 "This... shining stone... ancestor spirit, Thame?" Kuran whispered reverently, touching two fingers to his forehead in ancient tribute.
 "Not a spirit, Kuran... but an eye of human wisdom that will teach us how to build homes that will keep every soul alive through the frost," Thame replied with a calm smile.
-The engineer opened the parametric blueprints for the Polar Timber Cabin.
+The engineer zoomed into the parametric blueprints for the Polar Timber Cabin to reveal its interior cutaways.
 The screen rendered a detailed 3D cutaway of a semi-subterranean timber lodge anchored into solid limestone bedrock, measuring four by six meters.
 The design was excavated fifty centimeters into the frozen earth, using the subterranean thermal mass as natural sub-floor insulation.
 A steep forty-five-degree pitch prevented destructive snow accumulation, integrated with an internal vertical masonry draft system.
