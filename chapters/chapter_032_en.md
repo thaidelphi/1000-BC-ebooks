@@ -1,8 +1,8 @@
 # Chapter 32: Steel Axes and the First Timber Cabins
-A pale silvery mist drifted lazily across the jagged limestone rims, the dawn temperature plunging to four degrees Celsius until each breath coalesced into dense plumes of white vapor.
-Glittering hoarfrost clung to the coils of galvanized barbed wire framing the bastion, crackling faintly like brittle glass whenever the subarctic wind surged through.
-Clad in his heavy goose-down parka, Thame paced along the southern perimeter fence on morning patrol alongside Elya.
-The primeval huntress halted dead in her tracks the instant they cleared the outermost spiked deadfall trench.
+Elya's corded arm snapped up without warning, barring Thame's chest as her fingers clicked the recurve bow into ready draw.
+The huntress's primal instincts commanded her into an immediate low crouch, her keen eyes piercing the mist toward the dirt beyond the fence.
+"Hold... do not take another step," Elya hissed in a harsh whisper, prompting Thame in his heavy down parka to drop low beside her.
+The primeval huntress extended her bow tip toward an ominous anomaly the instant they cleared the outermost spiked deadfall trench.
 Her sharp, wide eyes locked onto the damp laterite soil, which was already hardening under the unyielding grip of the frost.
 Directly before her lay the colossal pugmark of an apex predator, spanning well over twenty-five centimeters across the frozen earth.
 The massive paw print was pressed deep into the packed ground, testifying to a monstrous body mass exceeding three hundred kilograms.
@@ -23,7 +23,7 @@ Encased in his steel-belted radial tire cuirass, Kraak tightened his grip around
 Kuran stepped forward, the elder chieftain's face lined with grave caution. "The southern pine forest is its hunting ground... entering to cut timber invites slaughter."
 "Yet we cannot halt the construction," Thame countered firmly, locking eyes with both chieftains with resolute determination.
 "The great polar blizzards of the Younger Dryas will strike any day now. Without fifteen heavy timber cabins, the cold will kill us just as surely as any predator."
-Dr. Nicha emerged from the container clinic, her sterile white coat donned over a thick thermal insulated sweater.
+Dr. Nicha emerged from the field medical pavilion by the courtyard hearth, her sterile white coat donned over a thick thermal sweater.
 Her discerning eyes swept across the gathered warriors before she handed Thame a vacuum flask filled with steaming pine needle tea.
 "In dense mist like this, visibility inside the timberline drops to under thirty meters," Dr. Nicha cautioned with clinical gravity.
 "A machairodont hunts through ambush from blind angles. If you enter the trees, Thame, you must form an airtight formation with overlapping sightlines."
