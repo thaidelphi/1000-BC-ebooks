@@ -44,7 +44,7 @@ Tara giggled brightly before scurrying off to deliver clean rolls of sterile gau
 Dr. Nicha established a sanitized field staging station, systematically cataloging incoming pharmaceutical crates with meticulous clinical precision.
 The doctor trained two young women from the Cliff Deer clan in basic sterile protocol and the necessity of boiling mineral spring water for handwashing.
 Broad-spectrum antibiotics, local anesthetics, burn ointments, sterile bandages, and surgical suture kits were sealed inside airtight, moisture-proof Pelican containers.
-Throughout the relentless morning labor, the mountain of freight was methodically divided into seven strategic supply depots:
+Throughout the relentless morning labor, the mountain of freight was methodically divided into eight strategic supply depots:
 Zone One: Industrial Construction and Hand Tools—mattocks, digging shovels, trenching spades, felling axes, claw hammers, wrenches, pliers, hand saws, wrecking bars, and high-speed drill bits.
 These carbon-steel implements were slotted into slotted wooden pallets along the left bulkhead, primed for immediate dispatch in timber-clearing and rampart expansion.
 Zone Two: Non-Perishable Rations and Survival Food—vacuum-packed staples, seasoning salts, unrefined sugar, fortified flour, dried legumes, and high-calorie energy bars.
@@ -53,10 +53,13 @@ Zone Three: Tactical Defense and Encampment Security—compound hunting bows, hi
 All defensive assets were secured within steel lockboxes deep inside the bay, governed by strict chain-of-custody protocols.
 Zone Four: Agronomy and Heirloom Seeds—pelletized organic fertilizers, soil inoculants, UV-treated greenhouse film, and biodegradable seedling trays.
 Strategic heirloom seed reserves were packed inside insulated cooler boxes, awaiting propagation within the geothermally warmed Heavenly Cliff Nursery.
-Zone Five: Electrical Infrastructure and Energy Distribution—heavy-gauge copper cabling, DC motors, reserve photovoltaic panels, industrial switches, and high-efficiency LED fixtures.
-Thame routed primary branch circuits and mounted overhead LED strip lighting along the ceiling ribbing, illuminating every corner of the twenty-five-ton bay.
+Zone Five: Electrical Infrastructure and Energy Distribution—heavy-gauge copper cabling, DC motors, reserve photovoltaic panels, industrial switches, high-efficiency LED fixtures, and a 24V-to-220V pure sine wave power inverter.
+Thame routed primary branch circuits, wired the power inverter with standard 220V household outlets, and mounted overhead LED strip lighting along the ceiling ribbing, illuminating every corner of the bay.
 Zone Six: Medical Reserves, Trauma Care, and Sanitation—sterile field-surgery kits, trauma dressings, and essential medications managed under Dr. Nicha’s sole authority.
-And Zone Seven: Daily Habitation Essentials—aluminized sub-zero thermal blankets, arctic sleeping bags, nylon cordage, epoxy adhesives, and heavy-duty duct tape.
+Zone Seven: Personal Hygiene and Daily Habitation Essentials—herbal bar soaps, liquid body wash, botanical shampoo, mint toothpaste, toothbrushes, rich moisturizing cold cream, sub-zero thermal blankets, sleeping bags, and heavy-duty duct tape.
+These domestic necessities were organized into modular plastic totes for systematic rationing, directly elevating daily sanitation and living comfort across the camp.
+And Zone Eight: Audio-Visual, Entertainment, and Consumer Electronics—high-output bass Bluetooth speakers, rolling PA speakers, voice-recording megaphones with emergency sirens, a mini LED projector, portable monitors, and cordless hair clippers.
+All entertainment and acoustic hardware was cushioned on foam-lined shelving, ready for recharging and immediate operation via the two-hundred-and-twenty-volt inverter.
 A clean one-meter central gangway was maintained down the length of the container, allowing two-way traffic like a modern forward operating armory.
 Yet deep at the container’s bulkhead, tucked securely beneath the heavy nylon cargo netting, Thame and Elya encountered an unexpected discovery.
 Resting against the front wall were three unmarked, unmanifested mystery crates devoid of standard courier barcodes:
@@ -123,6 +126,7 @@ For a modern physician from the twenty-first century and the camp's leadership, 
 During the morning’s sorting of medical and household supplies in Zones Six and Seven, Thame had unearthed two packages that offered the perfect technical solution.
 The first was a parcel containing a high-pressure chrome showerhead complete with a flexible stainless-steel hose and a quarter-turn brass lever valve.
 The second was a heavy-duty polypropylene toilet seat assembly featuring a sealed lid and an odor-trapping rubber gasket.
+Alongside these lay an assorted parcel of herbal soaps, wildflower-scented shampoo, toothbrushes, refreshing mint toothpaste, and jars of rich moisturizing cold cream formulated for severe winter conditions.
 Teaming up with Kuran and Bork, the young engineer erected a dedicated "Private Latrine and Shower Bathhouse" nestled inside a limestone cleft beside the ten-wheel truck.
 The structure was framed with straight pine timbers and lined with split-bamboo panels, sealed internally with heavy dark waterproof canvas and twin layers of bubble wrap.
 The insulated enclosure blocked out the freezing canyon drafts and guaranteed total, impenetrable privacy.
@@ -135,10 +139,13 @@ When plumbed into the lever valve and suspended from an overhead crossbeam, the 
 Dr. Nicha was the first invited to step inside.
 As the insulated door latched shut and she shed her soot-stained layers, the doctor turned the valve; a dense, pulsating rain of hot mineral water washed down over her hair and shoulders.
 Fragrant soap lather mingled with billowing steam, dissolving weeks of grim exhaustion, stress, and wilderness grime in an instant.
+She worked the liquid soap and botanical shampoo into a thick, snow-white lather, thoroughly cleansing away weeks of accumulated woodsmoke, trail sweat, and soot.
 A quiet tear of sheer relief welled in her eyes—the profound, irreplaceable feeling of civilized dignity restored in the primeval wild.
 When Dr. Nicha emerged, radiating warmth with freshly dried hair, she gently took Elya’s hand and guided the hunter inside.
+She handed the hunter a fresh toothbrush primed with mint paste, a cake of soap, shampoo, and a jar of protective moisturizing cream.
 The prehistoric huntress widened her eyes in astonishment as warm rain poured effortlessly from a polished metallic blossom without a single bucket being hoisted.
 "Aka... Tor... warm rain indoors!" Elya murmured in awe, tentatively cupping the falling torrent in her calloused palms, a shy smile breaking across her fierce features.
+Elya washed her thick hair until fragrant lather blossomed, brushed her teeth with the tingling mint paste that left her smiling wide with clean white teeth, and smoothed the soothing cold cream across her wind-chapped skin.
 The shared laughter and mutual comfort between the two women forged an unbreakable bond of sisterhood and unspoken trust.
 Standing guard outside the wooden threshold, Thame listened with quiet pride.
 For he knew that true civilization was not measured solely in sharp steel or stone fortifications, but in the sanitation, daily dignity, and living comfort bestowed upon those who fought to survive.
