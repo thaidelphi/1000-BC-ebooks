@@ -77,8 +77,8 @@ These sealed containers could hold high-tech electronics, volatile specialty rea
 Forcing them open blindly without proper diagnostic tools or controlled storage could ruin fragile contents or unleash catastrophic hazards.
 "We leave these sealed for now," Thame informed Elya and Dr. Nicha firmly. "Secure them at the deepest bulkhead until a true existential crisis demands them."
 Thame had the three mystery crates positioned firmly against the cab wall, framing them with heavy pine bracing timber and covering them beneath heavy-duty waterproof tarps.
-Just as the tool crates were being slotted into place, Dr. Nicha’s excited voice carried over from the front of the staging area.
-Just as the tool crates were being slotted into place, Dr. Nicha’s voice called out with pleasant surprise from the front of the staging area.
+Just as the tool crates and electrical supplies were being slotted into place, Dr. Nicha’s excited voice carried over from the front of the staging area.
+Clutching a heavy corrugated carton reinforced with thick protective foam, she hurried toward him with sparkling, enthusiastic eyes.
 "Thame! Come look at this parcel... there's a laptop computer shipped in here!"
 Thame stepped forward swiftly; nestled within protective bubble wrap and foam lay an ordinary consumer notebook computer.
 Finished in sleek dark gray, it was a standard lightweight laptop with an everyday plastic and aluminum chassis, commonly used for office work or study.
@@ -86,14 +86,14 @@ Inside the box were its standard wall charger, charging cables, and a simple pad
 Crucially, the laptop supported standard modern universal charging via its multi-purpose port (Type-C 65W).
 The young engineer’s eyes lit up with profound satisfaction.
 Though merely an ordinary everyday laptop, it was the definitive command terminal needed to unlock their entire offline digital knowledge archive!
-Using wire strippers, he prepped high-temp silicone copper wiring and tied it into a fused terminal block to shield against hydro-turbine voltage surges.
-Direct current from the Pelton turbine's 24-volt main bus was stepped down smoothly and fed into the rugged laptop's power port.
-Direct current from the Pelton turbine's 24-volt main bus was stepped down smoothly and fed into the laptop's power port.
+Thame retrieved the 24V-to-220V pure sine wave inverter from Zone Five, mounting the compact power unit securely beside the field desk.
+He wired the 24-volt direct current lines from the hydro-turbine through the fused safety block into the inverter, then plugged the laptop's factory power adapter into the 220-volt AC outlet.
+Flipping the inverter power switch, the solid-green charging indicator on the laptop illuminated instantly, confirming clean, steady, and flawless current.
 Thame then connected the shockproof two-terabyte solid-state drive housing the distilled legacy of human civilization into the high-speed data port.
-His index finger pressed the sealed power button.
-His index finger pressed the power button.
-The rugged display flared to life amidst the shadows, its internal cooling fan spinning up with a crisp, reassuring whistle.
-The display flared to life amidst the shadows, its internal cooling fan spinning up with a crisp, reassuring whistle.
+His index finger gently pressed the laptop's power button.
+Beep...!
+The digital screen flared to life amidst the shadows, its internal cooling fan spinning up with a crisp, reassuring hum.
+The offline operating system booted into the desktop seamlessly, unfurling an astonishing treasure trove of blueprints, 3D simulation schematics, and engineering treatises.
 The archives spanned prehistoric botany, iron-carbon phase diagrams, pyrotechnic chemistry, and pre-industrial civil engineering treatises.
 Thame pulled up the high-resolution digital elevation model and topographical contour map of their horseshoe canyon.
 Elya and Kuran leaned over the display, their eyes widening in breathless shock as they recognized the precise layout of their homeland.
