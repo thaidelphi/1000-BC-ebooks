@@ -95,7 +95,7 @@ Beep...!
 The digital screen flared to life amidst the shadows, its internal cooling fan spinning up with a crisp, reassuring hum.
 The offline operating system booted into the desktop seamlessly, unfurling an astonishing treasure trove of blueprints, 3D simulation schematics, and engineering treatises.
 The archives spanned prehistoric botany, iron-carbon phase diagrams, pyrotechnic chemistry, and pre-industrial civil engineering treatises.
-Thame pulled up the high-resolution digital elevation model and topographical contour map of their horseshoe canyon.
+Thame pulled up the 3D topographical terrain model and contour map of the horseshoe canyon, plotted from his meticulous field survey data.
 Elya and Kuran leaned over the display, their eyes widening in breathless shock as they recognized the precise layout of their homeland.
 Elya traced the digitized bends of the White Stone Stream and the surrounding limestone ridges; she recognized the landscape instantly from ancestral hunting chants.
 "This... shining stone... ancestor spirit, Thame?" Kuran whispered reverently, touching two fingers to his forehead in ancient tribute.
