@@ -80,12 +80,12 @@ Thame had the three mystery crates positioned firmly against the cab wall, frami
 Just as the tool crates and electrical supplies were being slotted into place, Dr. Nicha’s excited voice carried over from the front of the staging area.
 Clutching a heavy corrugated carton reinforced with thick protective foam, she hurried toward him with sparkling, enthusiastic eyes.
 "Thame! Come look at this parcel... there's a laptop computer shipped in here!"
-Thame stepped forward swiftly; nestled within protective bubble wrap and foam lay an ordinary consumer notebook computer.
-Finished in sleek dark gray, it was a standard lightweight laptop with an everyday plastic and aluminum chassis, commonly used for office work or study.
+Thame stepped forward swiftly; nestled within protective bubble wrap and foam lay a notebook computer.
+Finished in sleek dark gray, the machine was in pristine condition, its keyboard and display completely unscathed.
 Inside the box were its standard wall charger, charging cables, and a simple padded fabric sleeve.
 Crucially, the laptop supported standard modern universal charging via its multi-purpose port (Type-C 65W).
 The young engineer’s eyes lit up with profound satisfaction.
-Though merely an ordinary everyday laptop, it was the definitive command terminal needed to unlock their entire offline digital knowledge archive!
+This was the definitive command terminal needed to unlock their entire offline digital knowledge archive!
 Thame retrieved the 24V-to-220V pure sine wave inverter from Zone Five, mounting the compact power unit securely beside the field desk.
 He wired the 24-volt direct current lines from the hydro-turbine through the fused safety block into the inverter, then plugged the laptop's factory power adapter into the 220-volt AC outlet.
 Flipping the inverter power switch, the solid-green charging indicator on the laptop illuminated instantly, confirming clean, steady, and flawless current.
