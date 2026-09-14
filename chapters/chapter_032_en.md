@@ -108,15 +108,41 @@ Thame drew out the steel tape measure, pegging four corner stakes into an exact 
 Kuran led ten men wielding the forged spring steel mattock hoes, excavating the stony ground to a depth of fifty centimeters for a semi-subterranean foundation.
 This sunken earth floor provided natural geothermal insulation, keeping the bitter above-ground winds from chilling the cabin's lower perimeter.
 Thame laid the magnetic spirit level across the bed of crushed limestone gravel, the luminous vial bubble resting dead-center to verify true level.
-Carpenters notched the ends of the first massive pine timbers, seating them squarely as sill logs upon the stone foundation.
-Along the center of the sunken floor, Thame laid a winding clay flue duct connecting to the external Rocket Mass Heater, capped with flat limestone slabs.
-Dr. Nicha recommended blending wood ash and fine river sand into the clay matrix to prevent structural cracking under extreme thermal cycling.
-This heat-resistant refractory mortar cured the flue duct into stone-like solidity, ensuring years of safe, radiant warmth.
-This sub-floor masonry thermal mass would store and radiate gentle warmth at twenty-five degrees Celsius throughout the sub-zero night without smoke.
-The newly finished subterranean limestone bench began to radiate cozy warmth as heat from the kiln draft permeated the earthenware conduits.
+Before laying the timber courses, Thame demonstrated a vital bushcraft discipline: thorough debarking of every pine trunk.
+The young engineer wielded a steel brush hook and forged axe to strip away the coarse outer bark and brown cambium down to the bare, silky white wood.
+The harvested bark was carefully bundled for fire-starting tinder, while the stripped logs resisted moisture, fungal decay, and woodboring beetles.
+Kuran rendered fragrant pine resin with rendered animal tallow over the fire, brushing the thick sealant onto the cut log ends to prevent radial checking.
+Next came the masterwork of cabin framing: Thame used a steel scribe and charcoal to layout curved saddle notches at each interlocking corner.
+Carpenters swung forged chisels and axes with practiced rhythm, scooping concave cups that cradled the rounded contours of the underlying logs.
+As each four-meter and six-meter timber was rolled into position, its colossal deadweight seated the notched joints airtight without requiring a single nail.
+Along the longitudinal grooves flanking each course, workers tamped thick beds of dried sphagnum moss and pine needles as primary thermal chinking.
+They then daubed the seams with a dense refractory mortar of sticky clay, sharp sand, and fine limestone powder, shutting out sub-zero draughts completely.
+The massive sill logs rested squarely upon the leveled gravel trenches, anchoring a semi-subterranean fortress as sturdy as the limestone cliffs themselves.
+In the northern corner of the sunken chamber, Thame commenced the construction of an advanced thermal heart: the Rocket Mass Heater.
+The engine of this system was a classic J-tube combustion core, sculpted from heat-resistant limestone blocks and refractory clay cob.
+A compact vertical fuel drop tube fed into a narrow horizontal combustion tunnel, which terminated into an insulated vertical heat riser.
+This vertical heat riser was shrouded in a ten-centimeter sleeve of volcanic ash and river sand, driving internal temperatures past one thousand degrees Celsius.
+This infernal heat triggered hyper-efficient secondary combustion, vaporizing volatile wood gases and tar completely, turning dark smoke into pure heat.
+Over this glowing riser, Thame lowered an inverted steel heat exchange drum adapted from salvaged truck body plating.
+The searing exhaust gases struck the steel crown, radiating an immediate surge of gentle warmth into the cabin atmosphere within minutes,
+before cooling to roughly one hundred and fifty degrees Celsius and being drawn downward into horizontal earthenware sub-floor conduits.
+This winding underfloor flue snaked across a four-meter run, built of heavy baked clay ducting encased within a massive limestone masonry bench.
+Dr. Nicha formulated the ideal cob mortar ratio of clay, sand, and wood ash to sculpt a smooth, durable exterior across the masonry bench.
+Weighing over two tons, this immense mass of stone and cob acted as a natural thermal battery, absorbing nearly all residual heat from the exhaust.
+By the time the spent gases reached the exterior chimney vent, their temperature had plummeted to a mere forty degrees Celsius.
+The system harvested over ninety percent of the fuel's thermal energy, burning five times less firewood than an open prehistoric campfire.
+Thame gathered a modest handful of dry pine twigs, dropped them into the vertical feed tube, and sparked them with his windproof jet lighter.
+Whoosh... roarrr!
+The natural convective draft seized the flames with ferocious suction, spiraling them downward into the horizontal burn tunnel in sheer mechanical perfection.
+A deep, rhythmic rumble echoed through the masonry core like a miniature rocket engine, drawing in air so violently that not a trace of smoke escaped.
+Kuran and Kraak stared wide-eyed as the flames plunged downward instead of rising into the sky, their jaws slack at this inversion of primal physics.
+"Thor... diving into the earth... roaring like thunder!" Kraak gasped, extending trembling hands toward the warm steel radiator barrel.
+Within thirty minutes, the tremendous thermal energy of the core soaked through the clay conduits, warming the dense limestone slabs along the bench.
+The completed semi-subterranean bench radiated gentle, soothing warmth at twenty-five degrees Celsius, as comforting as a geothermal hot spring.
+This thermal battery would store and release steady heat across twenty-four to thirty-six hours, sheltering fifteen occupants even in minus twenty blizzards.
 Little Tara placed his small hands against the warm stone surface, his eyes widening in pure delight as he broke into joyous laughter.
+The child sat upon the warm stone bench, curling his legs to his chest and beaming happily as the gentle heat soaked through his cotton trousers.
 Dr. Nicha tended to the workers' hands, applying soothing herbal balm to abrasions and dressing minor contusions with sterile bandages.
-Little Tara darted between the loggers, gathering dry pine boughs and fragrant shavings into neat piles to serve as kindling for the hearth.
 By late afternoon, the interlocking corner-notched log walls rose proudly to a height of one and a half meters.
 The rich aroma of fresh pine sap and damp clay hung pleasantly in the crisp air, as the pioneering cabin of the fifteen-homestead village took solid form.
 Blue woodsmoke drifted from the communal hearth, where the titanium camp kettle simmered with rich venison bone broth seasoned with pure sea salt.
@@ -136,5 +162,6 @@ The first timber cabin was rising to shelter humanity against the great freeze.
 And with the coming of tomorrow's dawn, the steel axes would sing once more until the fifteen halls of the new world stood complete.
 Primeval hunters and modern castaways stood fused into a single tribe beneath the sheltering aegis of the ten-wheel bastion.
 The faint, steady tapping of mallets and chisels drifted into the peaceful night, a quiet hymn heralding the birth of an enduring civilization that would never be extinguished.
+A quiet hymn heralding the birth of an enduring civilization that would never be extinguished.
 Ten-thousand-year-old stars blazed brightly over the Horseshoe Basin, bestowing a celestial benediction upon all who lived within.
 And the looming clash with the king of the southern pines would become the ultimate crucible of this iron fortress!
