@@ -96,7 +96,7 @@ Glowing amber eyes burned with predatory intelligence, while a coarse crimson to
 It paced forward in dead silence, sinking low to the ground, coiled like an immense steel spring ready to launch a fatal pounce.
 "Form the line... bristling fangs... hold fast!" Kraak roared, his warriors locking shields and leveling barbed-wire pikes forward in an impenetrable wall.
 Thame calmly set his axe aside, unshouldering the 175-pound compound hunting crossbow and aligning the illuminated red dot dead between the beast's eyes.
-He knew the forty-three rounds of .38 Special must remain sacred; the silent, lethal power of the compound limbs was his weapon of choice.
+His trigger finger rested tense against the crossbow release, while his right hand hovered over the .38 revolver beneath his parka, ready to draw and fire point-blank down its maw if the beast breached the spear wall.
 Up on the cliff edge, Elya drew her recurve bow to maximum draw, the carbon-steel broadhead aimed straight into the predator's right eye socket.
 The Smilodon froze mid-stride, its amber gaze sweeping across the unbroken thicket of razor barbs, the cold gleam of steel, and the utter absence of panic.
 The beast registered the unnatural, concentrated pressure of coordinated human intelligence; a deep, infrasonic growl vibrated through its chest like thunder beneath the earth.
