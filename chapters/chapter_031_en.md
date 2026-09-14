@@ -87,7 +87,7 @@ Crucially, the laptop supported standard modern universal charging via its multi
 The young engineer’s eyes lit up with profound satisfaction.
 This was the definitive command terminal needed to unlock their entire offline digital knowledge archive!
 Thame retrieved the 24V-to-220V pure sine wave inverter from Zone Five, mounting the compact power unit securely beside the field desk.
-He wired the 24-volt direct current lines from the hydro-turbine through the fused safety block into the inverter, then plugged the laptop's factory power adapter into the 220-volt AC outlet.
+He wired the direct current lines from the 24-volt battery bank—continuously buffered and charged by the hydro-turbine—through the fused safety block into the inverter, then plugged the laptop's power adapter into the 220-volt AC outlet.
 Flipping the inverter power switch, the solid-green charging indicator on the laptop illuminated instantly, confirming clean, steady, and flawless current.
 Thame then connected the shockproof two-terabyte solid-state drive housing the distilled legacy of human civilization into the high-speed data port.
 His index finger gently pressed the laptop's power button.
