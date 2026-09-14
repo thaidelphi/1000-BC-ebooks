@@ -152,6 +152,21 @@ Elya washed her thick hair until fragrant lather blossomed, brushed her teeth wi
 The shared laughter and mutual comfort between the two women forged an unbreakable bond of sisterhood and unspoken trust.
 Standing guard outside the wooden threshold, Thame listened with quiet pride.
 For he knew that true civilization was not measured solely in sharp steel or stone fortifications, but in the sanitation, daily dignity, and living comfort bestowed upon those who fought to survive.
+To celebrate the maiden launch of the bathhouse and elevate camp comfort before nightfall, Thame decided to unbox three parcels of domestic goods and pantry treats.
+The first container yielded sets of breathable cotton loungewear, elastic-waist drawstring pants, soft cotton work gloves, and vibrant striped cotton socks.
+The second crate held an assortment of lightweight EVA foam slide sandals and cushioned rubber flip-flops across various sizes.
+And the third parcel was a treasure trove of packaged confectionery: golden butter crackers, chewy citrus and strawberry fruit jellies, and rich condensed-milk candies.
+Thame handed the soft cotton garments to the two women; Elya slipped into an oversized t-shirt and lounge pants, stroking the machine-spun cotton in awe of its cloud-like softness compared to stiff buckskin.
+The engineer waved little Tara over, lovingly fitting her small feet into vibrant striped socks and a pair of pastel foam slides.
+Tara peered down at her newly clad feet and took a hesitant step, then bounced vigorously on the cushioned soles, squealing with laughter as the freezing ground ceased to chill her toes.
+When Thame presented oversized rubber sandals to Kuran and Grak, the hulking warlord stared in utter bewilderment before tentatively slipping his scarred, calloused feet into the foam straps.
+Upon stepping forward, Grak wobbled comically like an awkward heron wading through a swamp, stunned by the springy, buoyant cushion beneath his soles.
+The sight of their fearsome chieftain tiptoeing on bouncy rubber sandals triggered an uproar of hearty laughter, causing even hardened captive warriors to grin ear to ear.
+Next, Thame cracked open the snack packages, distributing the fruit jellies and crisp butter crackers among the gathered throng.
+Tara bit into a translucent strawberry jelly; her round eyes widened in pure ecstasy as the explosive rush of sweet nectar sent her dancing in dizzying circles.
+When Grak and his veteran warriors tasted the fruit jellies and buttery wafers, the lingering grimness etched into their weather-beaten faces completely melted away.
+The intoxicating rush of refined sweetness and aromatic butter—flavors completely nonexistent in the prehistoric wilderness—touched the core of their hardened souls.
+Any lingering embers of ancient tribal enmity dissolved in an instant, replaced by an unbreakable communal bond forged in laughter, living comfort, and shared civilized sweetness.
 As late afternoon bled into twilight, the sun dipped behind the western limestone crest, and the canyon temperature plummeted sharply toward four degrees Celsius.
 Brittle needles of white frost began crystallizing across the dried pine boughs lining the perimeter.
 Within the pens, the wolf-dogs and livestock whined uneasily, pacing their enclosures in growing agitation.
