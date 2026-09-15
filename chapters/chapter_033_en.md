@@ -122,15 +122,15 @@ Across the dusting of snow before the wire fence, a trail of dark blood led into
 The freezing gale carried a deep, resonant roar vibrating up from the valley floor.
 It was not the solitary cry of a wounded cat.
 It was the chorus of answering roars from a pack coordinating in the dark.
-And deep within the timber, the rhythmic, guttural blast of a human horn answered the beasts.
+And deep within the timber, the chilling howls of a dire wolf pack echoed in answer to the scent of blood.
 Elya gripped her bow, her body taut with tension as she whispered with primal instinct.
-"Orok... Demon Fangs... blow beast horn... they drive the fangs!"
+"Horok... not alone... fang pack... hunt the blood!"
 Dr. Nicha stepped outside the container, her face pale with alarm.
 "Thame! The thermal sensors on the truck roof are flashing—dozens of hot signatures moving through the southern pines!"
-"They aren't just scavenging... they are encircling Fortress Alpha!"
+"It isn't just the saber-toothed cat... an entire wave of Ice Age predators is converging on the smell of blood!"
 Thame signaled the hunters along the rock ledge to ignite pine-pitch flares along the razor-wire perimeter.
 Leaping orange flames pushed back the gloom, illuminating the massive silhouettes of predators prowling at the wire.
 Kuran and Grak locked ranks behind the drawbridge platform, steel-tipped spears and forged axes held ready.
 Thame stared into the gloom of the taiga, his hands tightening around his rescue crowbar and crossbow.
 Fortress Alpha was forged of blood, stone, and tempered steel.
-And tonight, the legacy of modern civilization would face its trial by fire against the beasts of the ice age!
+And tonight, the legacy of modern civilization would face its trial by fire against the apex beasts of the ice age!
